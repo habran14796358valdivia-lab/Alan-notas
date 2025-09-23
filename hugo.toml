@@ -1,0 +1,6 @@
+baseURL = 'http://localhost:1313/'
+languageCode = 'es'
+title = 'Notas Alan'
+theme = 'Github Style'  
+PublishDir = 'docs'
+site_logo = "images/logoalan.jpg"
