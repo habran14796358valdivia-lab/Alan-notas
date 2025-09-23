@@ -7,5 +7,19 @@
     <generator>Hugo</generator>
     <language>es</language>
     <atom:link href="http://localhost:1313/Alan-notas/index.xml" rel="self" type="application/rss+xml" />
+    <item>
+      <title>Libro</title>
+      <link>http://localhost:1313/Alan-notas/libro/</link>
+      <pubDate>Mon, 01 Jan 0001 00:00:00 +0000</pubDate>
+      <guid>http://localhost:1313/Alan-notas/libro/</guid>
+      <description>&lt;h1 id=&#34;libro-de-prueba&#34;&gt;Libro de prueba&lt;/h1&gt;&#xA;&lt;h2 id=&#34;segunda-linea-par-aver&#34;&gt;segunda linea par aver&lt;/h2&gt;&#xA;&lt;p&gt;Custom domain&#xA;Custom domain&#xA;Custom domains allow you to serve your site from a domain other than habran14796358valdivia-lab.github.io. Learn more about configuring custom domains.&lt;/p&gt;&#xA;&lt;p&gt;Enforce HTTPS&#xA;— Required for your site because you are using the default domain (habran14796358valdivia-lab.github.io)&#xA;HTTPS provides a layer of encryption that prevents others from snooping on or tampering with traffic to your site.&#xA;When HTTPS is enforced, your site will only be served over HTTPS. Learn more about securing your GitHub Pages site with HTTPS.&lt;/p&gt;</description>
+    </item>
+    <item>
+      <title>Tito</title>
+      <link>http://localhost:1313/Alan-notas/tito/</link>
+      <pubDate>Mon, 01 Jan 0001 00:00:00 +0000</pubDate>
+      <guid>http://localhost:1313/Alan-notas/tito/</guid>
+      <description>&lt;h1 id=&#34;tito&#34;&gt;TITO&lt;/h1&gt;</description>
+    </item>
   </channel>
 </rss>

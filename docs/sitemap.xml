@@ -6,6 +6,10 @@
   </url><url>
     <loc>http://localhost:1313/Alan-notas/categories/</loc>
   </url><url>
+    <loc>http://localhost:1313/Alan-notas/libro/</loc>
+  </url><url>
     <loc>http://localhost:1313/Alan-notas/tags/</loc>
+  </url><url>
+    <loc>http://localhost:1313/Alan-notas/tito/</loc>
   </url>
 </urlset>
