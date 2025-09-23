@@ -1,6 +1,6 @@
-baseURL = 'http://localhost:1313/'
+baseURL = 'https://habran14796358valdivia-lab.github.io/Alan-notas/'
 languageCode = 'es'
 title = 'Notas Alan'
 theme = 'Github Style'  
 PublishDir = 'docs'
-site_logo = "images/logoalan.jpg"
+site_logo = 'images/logoalan.jpg'
