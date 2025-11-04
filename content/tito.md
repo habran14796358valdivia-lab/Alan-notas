@@ -47,3 +47,46 @@ Title: Tito
 ## Tito 1:15 "*Todas las cosas son puras para los puros, pero para los corrompidos e incrédulos nada es puro, sino que tanto su mente como su conciencia están corrompidas.*"
 
 ## Tito 1:16 "*Profesan conocer a Dios, pero con sus hechos lo niegan, siendo abominables y desobedientes e inútiles para cualquier obra buena.*"
+
+## Tito 2:1 "*Pero en cuanto a ti, enseña[a] lo que está de acuerdo con la sana doctrina:*"
+## Tito 2:2 "*Los ancianos deben ser sobrios, dignos, prudentes, sanos en la fe, en el amor, en la perseverancia. 
+## Tito 2:3 "*Asimismo, las ancianas deben ser reverentes en su conducta, no calumniadoras ni esclavas de mucho vino. Que enseñen lo bueno, 
+## Tito 2:4 "*para que puedan instruir[b] a las jóvenes a que amen a sus maridos, a que amen a sus hijos, 
+## Tito 2:5 "*a que sean prudentes, puras, hacendosas en el hogar, amables, sujetas a sus maridos, para que la palabra de Dios no sea blasfemada.
+
+## Tito 2:6 "*Asimismo, exhorta a los jóvenes a que sean prudentes. 
+## Tito 2:7 "*Muéstrate en todo[c] como ejemplo de buenas obras, con pureza[d] de doctrina, con dignidad, 
+## Tito 2:8 "*con palabra sana e irreprochable, a fin de que el adversario se avergüence al no tener nada malo que decir de nosotros.
+
+## Tito 2:9 "*Exhorta a los siervos[e] a que se sujeten a sus amos en todo, que sean complacientes, no contradiciendo, 
+## Tito 2:10 "*no defraudando, sino mostrando toda buena fe, para que adornen la doctrina de Dios nuestro Salvador en todo respecto.
+
+## Tito 2:11 "*Porque la gracia de Dios se ha manifestado, trayendo salvación a todos los hombres[f], 
+## Tito 2:12 "*enseñándonos, que negando la impiedad y los deseos mundanos, vivamos en este mundo[g] sobria, justa y piadosamente, 
+## Tito 2:13 "*aguardando la esperanza bienaventurada y la manifestación de la gloria de nuestro gran Dios y Salvador[h] Cristo Jesús. 
+## Tito 2:14 "*Él se dio por nosotros, para redimirnos de toda iniquidad y purificar para Sí un pueblo para posesión Suya, celoso de buenas obras.
+
+## Tito 2:15 "*Esto habla, exhorta y reprende con toda autoridad[i]. Que nadie te menosprecie.
+
+Recuérdales que estén sujetos a los gobernantes, a las autoridades; que sean obedientes, que estén preparados para toda buena obra. 
+2 Que no injurien a nadie, que no sean contenciosos, sino amables, mostrando toda consideración para con todos los hombres.
+
+3 Porque nosotros también en otro tiempo éramos necios, desobedientes, extraviados, esclavos de deleites y placeres diversos, viviendo en malicia y envidia, aborrecibles y odiándonos unos a otros. 
+4 Pero cuando se manifestó la bondad de Dios nuestro Salvador, y Su amor hacia la humanidad, 
+5 Él nos salvó, no por las obras de[a] justicia que nosotros hubiéramos hecho, sino conforme a Su misericordia, por medio del lavamiento de la regeneración y la renovación por el Espíritu Santo, 
+6 que Él derramó sobre nosotros abundantemente por medio de Jesucristo nuestro Salvador, 
+7 para que justificados por Su gracia fuéramos hechos herederos según la esperanza de la vida eterna[b].
+
+8 Palabra fiel es esta; y en cuanto a estas cosas quiero que hables con firmeza, para que los que han creído en Dios procuren ocuparse en buenas obras. Estas cosas son buenas y útiles para los hombres. 
+9 Pero evita controversias necias, genealogías, contiendas y discusiones acerca de la ley, porque son sin provecho y sin valor. 
+10 Al hombre que cause divisiones, después de la primera y segunda amonestación, recházalo, 
+11 sabiendo que el tal es perverso y está pecando, habiéndose condenado a sí mismo.
+
+Recomendaciones finales y bendición
+12 Cuando te envíe a Artemas o a Tíquico, procura venir a verme en Nicópolis, porque he decidido pasar allí el invierno. 
+13 Encamina con diligencia a Zenas, intérprete de la ley, y a Apolos, para que nada les falte. 
+14 Y que los nuestros aprendan a ocuparse en buenas obras, atendiendo a las necesidades apremiantes, para que no estén sin fruto.
+
+15 Todos los que están conmigo te saludan. Saluda a los que nos aman en la fe.
+
+La gracia sea con todos ustedes.
