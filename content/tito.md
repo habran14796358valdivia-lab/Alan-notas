@@ -30,7 +30,7 @@ Title: Tito
 
 ### Tito 1:4 "*a Tito, verdadero hijo en la común fe: Gracia y paz de parte de Dios el Padre y de Cristo Jesús nuestro Salvador.*"
 
-## Tito 1:5
+## Tito 1:5-16
 
 ### Tito 1:5 "*Por esta causa te dejé en Creta, para que pusieras en orden lo que queda, y designaras ancianos en cada ciudad como te mandé.*"
 
@@ -55,6 +55,8 @@ Title: Tito
 ### Tito 1:15 "*Todas las cosas son puras para los puros, pero para los corrompidos e incrédulos nada es puro, sino que tanto su mente como su conciencia están corrompidas.*"
 
 ### Tito 1:16 "*Profesan conocer a Dios, pero con sus hechos lo niegan, siendo abominables y desobedientes e inútiles para cualquier obra buena.*"
+
+# Tito 2:1-15
 
 ### Tito 2:1 "*Pero en cuanto a ti, enseña lo que está de acuerdo con la sana doctrina:*"
 
@@ -85,6 +87,10 @@ Title: Tito
 ### Tito 2:14 "*Él se dio por nosotros, para redimirnos de toda iniquidad y purificar para Sí un pueblo para posesión Suya, celoso de buenas obras.*"
 
 ### Tito 2:15 "*Esto habla, exhorta y reprende con toda autoridad. Que nadie te menosprecie.*"
+
+# Tito 3:1-15
+
+##
 
 ### Tito 3:1 "*Recuérdales que estén sujetos a los gobernantes, a las autoridades; que sean obedientes, que estén preparados para toda buena obra.*"
 
