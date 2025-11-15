@@ -130,82 +130,227 @@ Title: Tito
 
 ## Ser corrompidos nos vuelve inutiles.
 
-### Tito 1:15 "*Todas las cosas son puras para los puros, pero para los corrompidos e incrédulos nada es puro, sino que tanto su mente como su conciencia están corrompidas.*"
+### Tito 1:15 "*Todas las cosas son puras para los puros,...*"
+pero para los corrompidos e incrédulos nada es puro,...*"
+sino que tanto su mente como su conciencia están corrompidas....*"
 
-### Tito 1:16 "*Profesan conocer a Dios, pero con sus hechos lo niegan, siendo abominables y desobedientes e inútiles para cualquier obra buena.*"
+### Tito 1:16 "*Profesan conocer a Dios,...*"
+pero con sus hechos lo niegan,...*"
+siendo abominables y desobedientes...*"
+e inútiles para cualquier obra buena....*"
 
 # Tito 2:1-15 Un contraste, lo que esta deacuerdo con la sana doctrina
 
 ## Una conducta alineada a una enseñanza sana.
 
-### Tito 2:1 "*Pero en cuanto a ti, enseña lo que está de acuerdo con la sana doctrina:*"
+### Tito 2:1a "*Pero en cuanto a ti,...*"
 
-### Tito 2:2 "*Los ancianos deben ser sobrios, dignos, prudentes, sanos en la fe, en el amor, en la perseverancia.*"
+### Tito 2:1b "*enseña lo que está de acuerdo con la sana doctrina:...*"
 
-### Tito 2:3 "*Asimismo, las ancianas deben ser reverentes en su conducta, no calumniadoras ni esclavas de mucho vino. Que enseñen lo bueno,*"
+### Tito 2:2a "*Los ancianos deben ser sobrios,...*"
 
-### Tito 2:4 "*para que puedan instruir a las jóvenes a que amen a sus maridos, a que amen a sus hijos,*"
+### Tito 2:2b "*dignos,...*"
 
-### Tito 2:5 "*a que sean prudentes, puras, hacendosas en el hogar, amables, sujetas a sus maridos, para que la palabra de Dios no sea blasfemada.*"
+### Tito 2:2c "*prudentes,...*"
 
-### Tito 2:6 "*Asimismo, exhorta a los jóvenes a que sean prudentes.*"
+### Tito 2:2d "*sanos en la fe,...*"
 
-### Tito 2:7 "*Muéstrate en todo como ejemplo de buenas obras, con pureza de doctrina, con dignidad,*"
+### Tito 2:2e "*en el amor,...*"
 
-### Tito 2:8 "*con palabra sana e irreprochable, a fin de que el adversario se avergüence al no tener nada malo que decir de nosotros.*"
+### Tito 2:2f "*en la perseverancia....*"
 
-### Tito 2:9 "*Exhorta a los siervos a que se sujeten a sus amos en todo, que sean complacientes, no contradiciendo,*"
+### Tito 2:3a "*Asimismo, las ancianas deben ser reverentes en su conducta,...*"
 
-### Tito 2:10 "*no defraudando, sino mostrando toda buena fe, para que adornen la doctrina de Dios nuestro Salvador en todo respecto.*"
+### Tito 2:3b "*no calumniadoras...*"
 
-### Tito 2:11 "*Porque la gracia de Dios se ha manifestado, trayendo salvación a todos los hombres,*"
+### Tito 2:3c "*ni esclavas de mucho vino....*"
 
-### Tito 2:12 "*enseñándonos, que negando la impiedad y los deseos mundanos, vivamos en este mundo sobria, justa y piadosamente,*"
+### Tito 2:3d "*Que enseñen lo bueno,...*"
 
-### Tito 2:13 "*aguardando la esperanza bienaventurada y la manifestación de la gloria de nuestro gran Dios y Salvador Cristo Jesús.*"
+### Tito 2:4a "*para que puedan instruir a las jóvenes...*"
 
-### Tito 2:14 "*Él se dio por nosotros, para redimirnos de toda iniquidad y purificar para Sí un pueblo para posesión Suya, celoso de buenas obras.*"
+### Tito 2:4b "*a que amen a sus maridos,...*"
 
-### Tito 2:15 "*Esto habla, exhorta y reprende con toda autoridad. Que nadie te menosprecie.*"
+### Tito 2:4c "*a que amen a sus hijos,...*"
+
+### Tito 2:5a "*a que sean prudentes,...*"
+
+### Tito 2:5b "*puras,...*"
+
+### Tito 2:5c "*hacendosas en el hogar,...*"
+
+### Tito 2:5d "*amables,...*"
+
+### Tito 2:5e "*sujetas a sus maridos,...*"
+
+### Tito 2:5f "*para que la palabra de Dios no sea blasfemada....*"
+
+### Tito 2:6a "*Asimismo, exhorta a los jóvenes a que sean prudentes.*"
+
+### Tito 2:7a "*Muéstrate en todo...*"
+
+### Tito 2:7b "*como ejemplo de buenas obras,...*"
+
+### Tito 2:7c "*con pureza de doctrina,...*"
+
+### Tito 2:7d "*con dignidad,...*"
+
+### Tito 2:8a "*con palabra sana e irreprochable,...*"
+
+### Tito 2:8b "*a fin de que el adversario se avergüence...*"
+
+### Tito 2:8c "*al no tener nada malo que decir de nosotros....*"
+
+### Tito 2:9a "*Exhorta a los siervos a que se sujeten a sus amos en todo,...*"
+
+### Tito 2:9b "*que sean complacientes,...*"
+
+### Tito 2:9c "*no contradiciendo,...*"
+
+### Tito 2:10a "*no defraudando,...*"
+
+### Tito 2:10b "*sino mostrando toda buena fe,...*"
+
+### Tito 2:10c "*para que adornen la doctrina de Dios nuestro Salvador en todo respecto....*"
+
+### Tito 2:11a "*Porque la gracia de Dios se ha manifestado,...*"
+
+### Tito 2:11b "*trayendo salvación a todos los hombres,...*"
+
+### Tito 2:12a "*enseñándonos,...*"
+
+### Tito 2:12b "*que negando la impiedad y los deseos mundanos,...*"
+
+### Tito 2:12c "*vivamos en este mundo sobria, justa y piadosamente,...*"
+
+### Tito 2:13a "*aguardando la esperanza bienaventurada...*"
+
+### Tito 2:13b "*y la manifestación de la gloria de nuestro gran Dios y Salvador Cristo Jesús....*"
+
+### Tito 2:14a "*Él se dio por nosotros,...*"
+
+### Tito 2:14b "*para redimirnos de toda iniquidad...*"
+
+### Tito 2:14c "*y purificar para Sí un pueblo para posesión Suya,...*"
+
+### Tito 2:14d "*celoso de buenas obras....*"
+
+### Tito 2:15a "*Esto habla, exhorta y reprende con toda autoridad....*"
+
+### Tito 2:15b "*Que nadie te menosprecie....*"
 
 # Tito 3:1-15 Lo Bueno y Util a los hombres.
 
 ## Dispuestos para toda buena obra por su misericordia.
 
-### Tito 3:1 "*Recuérdales que estén sujetos a los gobernantes, a las autoridades; que sean obedientes, que estén preparados para toda buena obra.*"
+### Tito 3:1a "*Recuérdales que estén sujetos a los gobernantes, a las autoridades;...*"
 
-### Tito 3:2 "*Que no injurien a nadie, que no sean contenciosos, sino amables, mostrando toda consideración para con todos los hombres.*"
+### Tito 3:1b "*que sean obedientes,...*"
 
-### Tito 3:3 "*Porque nosotros también en otro tiempo éramos necios, desobedientes, extraviados, esclavos de deleites y placeres diversos, viviendo en malicia y envidia, aborrecibles y odiándonos unos a otros.*"
+### Tito 3:1c "*que estén preparados para toda buena obra....*"
 
-### Tito 3:4 "*Pero cuando se manifestó la bondad de Dios nuestro Salvador, y Su amor hacia la humanidad,*"
+### Tito 3:2a "*Que no injurien a nadie,...*"
 
-### Tito 3:5 "*Él nos salvó, no por las obras de justicia que nosotros hubiéramos hecho, sino conforme a Su misericordia, por medio del lavamiento de la regeneración y la renovación por el Espíritu Santo,*"
+### Tito 3:2b "*que no sean contenciosos,...*"
 
-### Tito 3:6 "*que Él derramó sobre nosotros abundantemente por medio de Jesucristo nuestro Salvador,*"
+### Tito 3:2c "*sino amables,...*"
 
-### Tito 3:7 "*para que justificados por Su gracia fuéramos hechos herederos según la esperanza de la vida eterna.*"
+### Tito 3:2d "*mostrando toda consideración para con todos los hombres....*"
 
-### Tito 3:8 "*Palabra fiel es esta; y en cuanto a estas cosas quiero que hables con firmeza, para que los que han creído en Dios procuren ocuparse en buenas obras. Estas cosas son buenas y útiles para los hombres.*"
+### Tito 3:3a "*Porque nosotros...*"
+
+### Tito 3:3b "*también en otro tiempo éramos necios...*"
+
+### Tito 3:3c "*desobedientes,...*"
+
+### Tito 3:3d "*extraviados,...*"
+
+### Tito 3:3e "*esclavos de deleites y placeres diversos,...*"
+
+### Tito 3:3f "*viviendo en malicia y envidia,...*"
+
+### Tito 3:3g "*aborrecibles y odiándonos unos a otros....*"
+
+### Tito 3:4a "*Pero cuando se manifestó la bondad de Dios nuestro Salvador,...*"
+
+### Tito 3:4b "*y Su amor hacia la humanidad,...*"
+
+### Tito 3:5a "*Él nos salvó,...*"
+
+### Tito 3:5b "*no por las obras de justicia que nosotros hubiéramos hecho,...*"
+
+### Tito 3:5c "*sino conforme a Su misericordia,...*"
+
+### Tito 3:5d "*por medio del lavamiento de la regeneración...*"
+
+### Tito 3:5e "*y la renovación por el Espíritu Santo,...*"
+
+### Tito 3:6a "*que Él derramó sobre nosotros abundantemente...*"
+
+### Tito 3:6b "*por medio de Jesucristo nuestro Salvador,...*"
+
+### Tito 3:7a "*para que justificados por Su gracia...*"
+
+### Tito 3:7b "*fuéramos hechos herederos según la esperanza de la vida eterna....*"
+
+### Tito 3:8a "*Palabra fiel es esta;...*"
+
+### Tito 3:8b "*y en cuanto a estas cosas quiero que hables con firmeza,...*"
+
+### Tito 3:8c "*para que los que han creído en Dios...*"
+
+### Tito 3:8d "*procuren ocuparse en buenas obras....*"
+
+### Tito 3:8e "*Estas cosas son buenas y útiles para los hombres....*"
 
 ## Un contraste, lo que no es bueno, ni útil.
 
-### Tito 3:9 "*Pero evita controversias necias, genealogías, contiendas y discusiones acerca de la ley, porque son sin provecho y sin valor.*"
+### Tito 3:9a "*Pero evita controversias necias...*"
 
-### Tito 3:10 "*Al hombre que cause divisiones, después de la primera y segunda amonestación, recházalo,*"
+### Tito 3:9b "*genealogías,...*"
 
-### Tito 3:11 "*sabiendo que el tal es perverso y está pecando, habiéndose condenado a sí mismo.*"
+### Tito 3:9c "*contiendas...*"
+
+### Tito 3:9d "*y discusiones acerca de la ley,...*"
+
+### Tito 3:9e "*porque son sin provecho y sin valor....*"
+
+### Tito 3:10a "*Al hombre que cause divisiones,...*"
+
+### Tito 3:10b "*después de la primera y segunda amonestación, recházalo,...*"
+
+### Tito 3:11a "*sabiendo que el tal es perverso y está pecando,...*"
+
+### Tito 3:11b "*habiéndose condenado a sí mismo....*"
 
 ## Instrucción personal, nuestros compañeros.
 
-### Tito 3:12 "*Cuando te envíe a Artemas o a Tíquico, procura venir a verme en Nicópolis, porque he decidido pasar allí el invierno.*"
+### Tito 3:12a "*Cuando te envíe a Artemas o a Tíquico,...*"
 
-### Tito 3:13 "*Encamina con diligencia a Zenas, intérprete de la ley, y a Apolos, para que nada les falte.*"
+### Tito 3:12b "*procura venir a verme en Nicópolis,...*"
+
+### Tito 3:12c "*porque he decidido pasar allí el invierno....*"
+
+### Tito 3:13a "*Encamina con diligencia a Zenas,...*"
+
+### Tito 3:13b "*intérprete de la ley, y a Apolos,...*"
+
+### Tito 3:13c "*para que nada les falte....*"
 
 ## Ultima petición, los casos de necesidad.
 
-### Tito 3:14 "*Y que los nuestros aprendan a ocuparse en buenas obras, atendiendo a las necesidades apremiantes, para que no estén sin fruto.*"
+### Tito 3:14a "*Y que los nuestros...*"
+
+### Tito 3:14b "*aprendan a ocuparse en buenas obras,...*"
+
+### Tito 3:14c "*atendiendo a las necesidades apremiantes,...*"
+
+### Tito 3:14d "*para que no estén sin fruto....*"
 
 ## Saludos Finales.
 
-### Tito 3:15 "*Todos los que están conmigo te saludan. Saluda a los que nos aman en la fe. La gracia sea con todos ustedes.*"
+### Tito 3:15a "*Todos los que están conmigo te saludan....*"
+
+### Tito 3:15b "*Saluda a los que nos aman en la fe....*"
+
+### Tito 3:15c "*La gracia sea con todos ustedes....*"
