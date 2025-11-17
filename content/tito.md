@@ -10,6 +10,8 @@ Title: Tito
 
 ## Contexto cultural
 
+###
+
 ## Contexto historico
 
 ## Autor y fecha
@@ -130,14 +132,19 @@ Title: Tito
 
 ## Ser corrompidos nos vuelve inutiles.
 
-### Tito 1:15 "*Todas las cosas son puras para los puros,...*"
-pero para los corrompidos e incrédulos nada es puro,...*"
-sino que tanto su mente como su conciencia están corrompidas....*"
+### Tito 1:15a "*Todas las cosas son puras para los puros,...*"
 
-### Tito 1:16 "*Profesan conocer a Dios,...*"
-pero con sus hechos lo niegan,...*"
-siendo abominables y desobedientes...*"
-e inútiles para cualquier obra buena....*"
+### Tito 1:15b "*pero para los corrompidos e incrédulos nada es puro,...*"
+
+### Tito 1:15c "*sino que tanto su mente como su conciencia están corrompidas....*"
+
+### Tito 1:16a "*Profesan conocer a Dios,...*"
+
+### Tito 1:16b "*pero con sus hechos lo niegan,...*"
+
+### Tito 1:16c "*siendo abominables y desobedientes...*"
+
+### Tito 1:16d "*e inútiles para cualquier obra buena....*"
 
 # Tito 2:1-15 Un contraste, lo que esta deacuerdo con la sana doctrina
 
