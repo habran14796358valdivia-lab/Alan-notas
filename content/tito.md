@@ -10,7 +10,26 @@ Title: Tito
 
 ## Contexto cultural
 
-###
+### La isla de creta muy famosa en la historia se forjo un estereotipo dentro del mundo antiguo (greco-romano), lo cual definio su cultura.
+
+### Creta se se carectizo por la pirateria, al ser un punto dentro de la ruta maritima de comercio, los cretences constantemente asaltaban los cargamnetos de los barcos.
+
+### Los cretenses habian afirmado que la tumba de zeus (jupiter) se encontraba en su isla, esto hizo estallar al mundo conocido debido a la adoracion del panteon de los dioses, para ellos zeus era el dios eterno e inmortal.
+
+#### Los antiguos eruditos se referian a creta de una manera despectiva, Estrabon, dice: "Los cetenses están envueltos en constantes disputas civiles y prácticas de piratería."[1]
+
+#### Epimenes, dice: "Κρῆτες ἀεὶ ψεῦσται, κακὰ θηρία, γαστέρες ἀργαί" "Los cretenses siempre mentirosos, malas bestias, barrigas ociosas.”[2]
+
+#### Polibio, dice: “Creta ha adoptado un sistema de vida que es el único sin excepción en el mundo que carece de moral y lo considera una virtud.”[3]
+
+#### Platon, aunque este mismo no se refiere de manera despectiva de creta si enfatiza asperctos de su cultura, organizacion y educacion, que despues seria utilizado para referise a los cretences como glotones ociosos.
+
+##### En creta existia el "andreida" un comedor publico, para ellos fomentaba la igualdad social y  reforzaba la disciplina. Los demas griegos considerarían esta costumbre como exceso de festividad, ocio o glotonería.
+
+### Los cretenses eran conocidos por ser mentiroso compulsivos, mentian sin necesidad de hacerlo, "cretenizar" era usado para las mentiras.
+
+### LOs cretences eran conciderados desordenados, son como bestias salvajes.... dice Epimanes.
+
 
 ## Contexto historico
 
@@ -361,3 +380,11 @@ Title: Tito
 ### Tito 3:15b "*Saluda a los que nos aman en la fe....*"
 
 ### Tito 3:15c "*La gracia sea con todos ustedes....*"
+
+
+
+
+referencias.
+[1] Estrabón, Geografía 10.4.16–20
+[2]Epiménides, Cretica (fragmento 1)
+[3]Polibio, Historias 6.46–47.
