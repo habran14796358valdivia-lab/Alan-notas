@@ -30,14 +30,47 @@ Title: Tito
 
 ### LOs cretences eran conciderados desordenados, son como bestias salvajes.... dice Epimanes.
 
+## Contexto historico 
 
-## Contexto historico
+### Lo primero que podemos notar alrededor de la carta a Tito es el lugar, Creta, si revisamos biblicamente la propagacion del evangelio en creta esto nos llevara al 60-61 d.C.
+
+### Esto seria mientras Pablo se encuentra rumbo a Roma en calidad de prisionero. Hechos 27:1, 7-8
+
+### En Hechos 27:9, Lucas decribe que paso mucho tiempo, en el contexto vemos que Pablo y los tripulantes habian permanecido en creta por un tiempo. Hechos 27:7-12
+
+#### Aunque no se nos dice el tiempo, Pablo pudo haber estado aununciando y enseñando el evangelio, como lo haria posteriormente en la isla de malta. Hechos 28:7-10
+
+### Despues de esto Pablo llegaria a Roma como pricionero, donde permaneceria por dos años en una casa. Hechos 28:16, 30-31
+
+#### Pablo habria permanecido en prision domiciliaria hasta el 63 d.C. Lucas no nos relata de lo que sucedio despues, segun la tradicion Pablo habria sido liberado o habria tenido libertal de viajar.
+
+#### Pablo habria escrito la carta a los Efesios, Filipenses, Colosenses y Filemon durante este encarcelamiento, todas fechadas entre el 61-62 d.C. o inicios del 63 d.C
+
+#### En estas cartas Pablo menciona su encarcelamiento o  espera a ser liberado. Efesios 6:19-20; Filipenses 1:12-14, 19-20; Colosenses 4:3-4, 10, 18; FIlemon 1:1, 22, 23
+
+### Tras su liberacion Pablo habria emprendido otro viaje a macedocia, asia menor(efeso, donde dejo a Timoteo), creta(donde dejo a Tito). 1 Timoteo 1:3, 3:14-15; Tito 1:5, 12
+
+### Despues veriamos en 2 Timoteo 4:10 que Tito fue a Dalmacia, esto despues de Creta y Nicopolis.
+
+### Segun la tradicion despues de esto, Pablo volveria a ser llevado a prision desde el 64-67 d.C. donde moriria a manos de Neron en Roma.
 
 ## Autor y fecha
 
-### Genero literario
+### Vemos que el autor se identifica como Pablo, siervo de Dios y apostol de Jesucristo. Tito 1:1
 
-## Receptor de la carta
+### Al igual que en muchas otras cartas vemos que el autor es Pablo antes conocido como Saulo, asi mismo vemos menciones de Pablo en la escritura de Pablo y Tito estado juntos como compañeros. 2 Corintios 7:6, 13, 8:6, 16, 23; Galatas 2:1, 3
+
+### Esta carta podria haber sido escrita entre el 63-64 d.C. al igual que la primera carta a Timoteo en las mismas fechas.
+
+## Receptor de la carta.
+
+### La carta a Tito comunmente es llamada una carta pastoral al igual que 1 y 2 Timoteo, por bastante tiempo se a enfocado que esta carta esta dirigida a los pastores, ancianos o lideres de las iglesias locales.
+
+### Sin embargo, podremos ver a lo largo de la carta que no solo habla a los ancianos, sino tambien habla a los hombres mayores, mujeres mayores,a las mujeres jovenes,a los varones jovenes y los siervos. Tito 1:4, 5, 13, 2:2, 3, 6, 9, 3:1, 14
+
+### Esta carta abarca a una audiencia grande, es decir, no solamente a Tito o los ancianos, sino a toda la iglesia local.
+
+### Aun que Tito es el encargado de enseñar a la iglesia, la enzeñanza de la carta es para todos y no solo para algunos.
 
 # Tito 1:1-16 Orden en la verdad que es segun la piedad-
 
