@@ -87,7 +87,7 @@ Title: Tito
 
 ### Tito 1:1b "*y apóstol de Jesucristo,...*" Pablo tambien es un apóstol de Cristo.
 
-#### Ser apóstol, APOSTOLOS quiere decir ser un mensajero o emisario, alguien quien lleva un mensaje. En si la palabra apóstol no es especial, era comunmente usada en el primer siglo para denotar a un mensajero.
+#### Ser apóstol, APOSTOLOS quiere decir ser un mensajero o emisario, alguien que lleva un mensaje. En si la palabra apóstol no es especial, era comunmente usada en el primer siglo para denotar a un mensajero.
 
 #### La difencia esta en el que te envia, Cristo solo comisiono a 12 apóstoles, 12 persononas enviadas persolmente por Cristo con un mensaje. 1 Corintios 1:1; 2 Corintios 1:1; Gálatas 1:1; Efesios 1:1; Colosenses 1:1; 1 Timoteo 1:!; 2 Timoteo 1:1; Apocalipsis 21:14
 
@@ -95,7 +95,9 @@ Title: Tito
 
 ##### En resumen hay 2 requisitos indispensables: (1) "Ser comisionado por Cristo personalmente" y (2) "Ser testigo ocular del Cristo resucitado". Aunque Matias fue testigo ocular, no fue comisionado por Cristo personalmente a diferencia de Pablo en Hechos 9:3-8, 15-17; 1 Corintios 9:1-2, 15:3-8; Galatas 1:1, 11-12, 2:6-9
 
-### Tito 1:1c "*conforme a la fe de los escogidos de Dios...*"
+### Tito 1:1c "*conforme a la fe de los escogidos de Dios...*" Pablo es siervo y apostol conforme a la fe o de acuerdo a la fe.
+
+#### Esta expresion es interesante, el servicio y apostolado de Pablo esta alineado con la fe (conjunto de enseñanza) de este grupo (los escogido) de Dios.
 
 ### Tito 1:1d "*y al pleno conocimiento de la verdad que es según la piedad,...*"
 
