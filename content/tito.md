@@ -16,11 +16,11 @@ Title: Tito
 
 ### Los cretenses habian afirmado que la tumba de zeus (jupiter) se encontraba en su isla, esto hizo estallar al mundo conocido debido a la adoracion del panteon de los dioses, para ellos zeus era el dios eterno e inmortal.
 
-#### Los antiguos eruditos se referian a creta de una manera despectiva, Estrabon, dice: "Los cetenses están envueltos en constantes disputas civiles y prácticas de piratería."[1]
+#### Los antiguos eruditos se referian a creta de una manera despectiva, Estrabon, dice: "Los cetenses están envueltos en constantes disputas civiles y prácticas de piratería."[^1]
 
-#### Epimenes, dice: "Κρῆτες ἀεὶ ψεῦσται, κακὰ θηρία, γαστέρες ἀργαί" "Los cretenses siempre mentirosos, malas bestias, barrigas ociosas.”[2]
+#### Epimenes, dice: "Κρῆτες ἀεὶ ψεῦσται, κακὰ θηρία, γαστέρες ἀργαί" "Los cretenses siempre mentirosos, malas bestias, barrigas ociosas.”[^2]
 
-#### Polibio, dice: “Creta ha adoptado un sistema de vida que es el único sin excepción en el mundo que carece de moral y lo considera una virtud.”[3]
+#### Polibio, dice: “Creta ha adoptado un sistema de vida que es el único sin excepción en el mundo que carece de moral y lo considera una virtud.”[^3]
 
 #### Platon, aunque este mismo no se refiere de manera despectiva de creta si enfatiza asperctos de su cultura, organizacion y educacion, que despues seria utilizado para referise a los cretences como glotones ociosos.
 
@@ -72,13 +72,28 @@ Title: Tito
 
 ### Aun que Tito es el encargado de enseñar a la iglesia, la enzeñanza de la carta es para todos y no solo para algunos.
 
-# Tito 1:1-16 Orden en la verdad que es segun la piedad-
+## Antes de comenzar
+
+
+# Tito 1:1-16 Orden en la verdad que es segun la piedad.
 
 ## Tito 1:1-4 Saludos.
 
-### Tito 1:1a "*Pablo, siervo de Dios...*"
+### Tito 1:1a "*Pablo, siervo de Dios...*" Pablo, un antiguo preseguidor de la iglesia ahora se presenta y considera como un siervo.
 
-### Tito 1:1b "*y apóstol de Jesucristo,...*"
+#### Siervo, DULOS de Dios, esto quiere decir un esclavo de Dios, esto no era una condicion obligada, el se concideraba al servicio de Dios. Romanos 1:1; Filipenses 1:1; Tito 1:1
+
+#### El siervo no hace lo que quiere o parezca, el esta a la disposicion de su amo, hace lo que el amo le indica, Pablo esta sujeto a lo que Dios le mando a hacer. Hechos 9:15-16; Gálatas 1:15-16; 1 Corintios 1:1; 1 Timoteo 1:12
+
+### Tito 1:1b "*y apóstol de Jesucristo,...*" Pablo tambien es un apóstol de Cristo.
+
+#### Ser apóstol, APOSTOLOS quiere decir ser un mensajero o emisario, alguien quien lleva un mensaje. En si la palabra apóstol no es especial, era comunmente usada en el primer siglo para denotar a un mensajero.
+
+#### La difencia esta en el que te envia, Cristo solo comisiono a 12 apóstoles, 12 persononas enviadas persolmente por Cristo con un mensaje. 1 Corintios 1:1; 2 Corintios 1:1; Gálatas 1:1; Efesios 1:1; Colosenses 1:1; 1 Timoteo 1:!; 2 Timoteo 1:1; Apocalipsis 21:14
+
+#### Una pregunta podria ser ¿Jesús ya habia escogido 12 apóstoles? o ¿Qué sucede con Matias?, Bueno en Apocalipsis 21:14 vemos solo hay doce apostoles "y sobre ellos doce nombres de los doce apostoles del Cordero" en Lucas 6:13 Jesús escoge a 12 y los llama apostoles, en este versiculo vemos un hecho, Jesús debe comisionarlo personalmente para ser apóstol del Cordero, en Hechos 1:17-20 vemos como Judas Iscariote no seria contado como apóstol, esto lo confima Hechos 1:26, asi mismo vemos otro requisito indispensable mensionado por Pedro en Hechos 1:21-22 ser testigo del Cristo resucitado.
+
+##### En resumen hay 2 requisitos indispensables: (1) "Ser comisionado por Cristo personalmente" y (2) "Ser testigo ocular del Cristo resucitado". Aunque Matias fue testigo ocular, no fue comisionado por Cristo personalmente a diferencia de Pablo en Hechos 9:3-8, 15-17; 1 Corintios 9:1-2, 15:3-8; Galatas 1:1, 11-12, 2:6-9
 
 ### Tito 1:1c "*conforme a la fe de los escogidos de Dios...*"
 
@@ -418,6 +433,6 @@ Title: Tito
 
 
 referencias.
-[1] Estrabón, Geografía 10.4.16–20
-[2]Epiménides, Cretica (fragmento 1)
-[3]Polibio, Historias 6.46–47.
+[^1]:Estrabón, Geografía 10.4.16–20
+[^2]:Epiménides, Cretica (fragmento 1)
+[^3]:Polibio, Historias 6.46–47.
