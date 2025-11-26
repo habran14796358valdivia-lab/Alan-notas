@@ -97,11 +97,21 @@ Title: Tito
 
 ### Tito 1:1c "*conforme a la fe de los escogidos de Dios...*" Pablo es siervo y apostol conforme a la fe o de acuerdo a la fe.
 
-#### Esta expresion es interesante, el servicio y apostolado de Pablo esta alineado con la fe (conjunto de enseñanza) de este grupo (los escogido) de Dios.
+#### Esta expresion es interesante, el servicio y apóstolado de Pablo esta alineado con la fe (conjunto de enseñanza) de este grupo (los escogido) de Dios.
 
-### Tito 1:1d "*y al pleno conocimiento de la verdad que es según la piedad,...*"
+### Tito 1:1d "*y al pleno conocimiento de la verdad que es según la piedad,...*" El servicio y apostolado de Pablo estaba alineado al pleno conocimiento de la verdad, la verdad que es según piedad.
 
-### Tito 1:2a "*con la esperanza de vida eterna,...*"
+#### La palabra pleno no se encuentra en el griego, " y al conocimiento de la verdad"
+
+#### ¿Que es el conocimiento de la verdad?, Conocimiento es EPIGNOSIS esto se refiere a un conocimiento acertado o preciso de algo, en este caso es de la verdad. La carta a tito no nos dice que es la verdad, asume ser ya conocida por los creyentes, sin embargo tenemos una pauta importante, la verdad se alinea a la piedad.
+
+#### La piedad esta realsando la verdad, la verdad aline con la piedad, esto no es cualquier verdad entre comillas, dice un conocimiento acertado de la verdad, el texto la muestra como unica. Juan 1:14, 17, 3:21, 4:23-24, 8:32, 40, 45-46, 14:6, 17, 16:13, 17:17, 19; Romanoa 1:25; 1 Corintios 13:6; 2 Corintios 4:2, 6:7, 13:7-8; Gálatas 2:5, 14, 5:7; Efesios 1:13, 4:20-22
+
+#### EL servicio, apostolado y Pablo mismo estaba alineado no solo con la fe sino con el conocimiento de la verdad que es segun piedad.
+
+#### Esto es algo que veremos implicito a lo largo de todad la carta, el conocimiento de la verdad que es segun la piedad y a raiz de esto que es lo deficiente. 
+
+### Tito 1:2a "*con la esperanza de vida eterna,...*" Esta verdad y esta piedad es la que contiene la esperanza de la vida eterna.
 
 ### Tito 1:2b "*la cual Dios, que no miente,...*"
 
