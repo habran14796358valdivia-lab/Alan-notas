@@ -111,11 +111,21 @@ Title: Tito
 
 #### Esto es algo que veremos implicito a lo largo de todad la carta, el conocimiento de la verdad que es segun la piedad y a raiz de esto que es lo deficiente. 
 
-### Tito 1:2a "*con la esperanza de vida eterna,...*" Esta verdad y esta piedad es la que contiene la esperanza de la vida eterna.
+### Tito 1:2a "*con la esperanza de vida eterna,...*" La verdad contiene la esperanza de la vida eterna.
 
-### Tito 1:2b "*la cual Dios, que no miente,...*"
+#### Para ser mas exactos la verdad no solo esta alineadad con la piedad, sino la verdad tiene como base la esperanza de vida eterna.
 
-### Tito 1:2c "*prometió desde los tiempos eternos,...*"
+### Tito 1:2b "*la cual Dios, que no miente,...*" Dios no miente, no es parte de su naturaleza, es mas, el es verdad, y siempre resulta veraz.
+
+#### Cuando se dice "que no miente" esto es un adjetivo, es una caracteriztica de Dios, el no puede mentit, entonces podemos confiar plenamente que cuando Dios dice algo es completamente verdad.
+
+#### Dios no miente cuando habla de la vida eterna, esta es completamente real.
+
+### Tito 1:2c "*prometió desde los tiempos eternos,...*" Dios habia prometido la vida eterna desde los tiempos en la eternidad.
+
+#### "prometio" es un verbo (aoristo, indicativo, medio), esto nos señala que Dios habia prometido en un punto del tiempo, el mismo versiculo nos dice que fue desde "los tiempos eternos".
+
+#### Al ser un indicativo no deja lugar a dudas, esto es un hecho veraz, una certeza "Dios lo prometio". la voz media nos dice que Dios prometio por si mismo, el seria el unico encargado de llevar acabo su promesa. Hechos 7:5; Romanos 1:2
 
 ### Tito 1:3a "*y a su debido tiempo,...*"
 
