@@ -105,7 +105,7 @@ Title: Tito
 
 #### ¿Que es el conocimiento de la verdad?, Conocimiento es EPIGNOSIS esto se refiere a un conocimiento acertado o preciso de algo, en este caso es de la verdad. La carta a tito no nos dice que es la verdad, asume ser ya conocida por los creyentes, sin embargo tenemos una pauta importante, la verdad se alinea a la piedad.
 
-#### La piedad esta realsando la verdad, la verdad aline con la piedad, esto no es cualquier verdad entre comillas, dice un conocimiento acertado de la verdad, el texto la muestra como unica. Juan 1:14, 17, 3:21, 4:23-24, 8:32, 40, 45-46, 14:6, 17, 16:13, 17:17, 19; Romanoa 1:25; 1 Corintios 13:6; 2 Corintios 4:2, 6:7, 13:7-8; Gálatas 2:5, 14, 5:7; Efesios 1:13, 4:20-22
+#### La piedad esta realsando la verdad, la verdad aline con la piedad, esto no es cualquier verdad entre comillas, dice un conocimiento acertado de la verdad, el texto la muestra como unica. Juan 1:14, 17, 3:21, 4:23-24, 8:32, 40, 45-46, 14:6, 17, 16:13, 17:17, 19; Romanos 1:25; 1 Corintios 13:6; 2 Corintios 4:2, 6:7, 13:7-8; Gálatas 2:5, 14, 5:7; Efesios 1:13, 4:20-22
 
 #### EL servicio, apostolado y Pablo mismo estaba alineado no solo con la fe sino con el conocimiento de la verdad que es segun piedad.
 
@@ -125,13 +125,13 @@ Title: Tito
 
 #### "prometio" es un verbo (aoristo, indicativo, medio), esto nos señala que Dios habia prometido en un punto del tiempo, el mismo versiculo nos dice que fue desde "los tiempos eternos".
 
-#### Al ser un indicativo no deja lugar a dudas, esto es un hecho veraz, una certeza "Dios lo prometio". la voz media nos dice que Dios prometio por si mismo, el seria el unico encargado de llevar acabo su promesa. Hechos 7:5; Romanos 1:2
+#### Al ser un indicativo no deja lugar a dudas, esto es un hecho veraz, una certeza que "Dios lo prometio". la voz media nos dice que Dios prometio por si mismo, el seria el unico encargado de llevar acabo su promesa. Hechos 7:5; Romanos 1:2
 
-### Tito 1:3a "*y a su debido tiempo,...*"
+### Tito 1:3a "*y a su debido tiempo, manifestó Su palabra por la predicación que me fue confiada,...*" Dios manifesto la promesa que habia hecho en el tiempo justo.
 
-### Tito 1:3b "*manifestó Su palabra por la predicación que me fue confiada,...*"
+#### Dios manifesto su promesa (vida eterna) por medio de la predicación, la vida eterna estaba contenida en su palabra predicada, esto le fue confiado a Pablo anunciar (el avangelio). Gálatas 1:11-12; 1 Corintios 15:3-4; Hechos 9:15-17,13:16-41; Juan 3:36, 5:24, 6:40, 47 
 
-### Tito 1:3c "*conforme al mandamiento de Dios nuestro Salvador,...*"
+### Tito 1:3b "*conforme al mandamiento de Dios nuestro Salvador,...*"Dios habria determinado que Pablo le era util en el ministerio
 
 ### Tito 1:4a "*a Tito, verdadero hijo en la común fe:...*"
 
