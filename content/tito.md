@@ -131,7 +131,7 @@ Title: Tito
 
 #### Dios manifesto su promesa (vida eterna) por medio de la predicación, la vida eterna estaba contenida en su palabra predicada, esto le fue confiado a Pablo anunciar (el avangelio). Gálatas 1:11-12; 1 Corintios 15:3-4; Hechos 9:15-17,13:16-41; Juan 3:36, 5:24, 6:40, 47 
 
-### Tito 1:3b "*conforme al mandamiento de Dios nuestro Salvador,...*"Dios habria determinado que Pablo le era util en el ministerio
+### Tito 1:3b "*conforme al mandamiento de Dios nuestro Salvador,...*"Dios habria determinado que Pablo le era util en el ministerio 
 
 ### Tito 1:4a "*a Tito, verdadero hijo en la común fe:...*"
 
