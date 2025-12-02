@@ -74,6 +74,11 @@ Title: Tito
 
 ## Antes de comenzar
 
+#### Aunque la verdad segun piedad es solo mensionada una vez en la carta esto sera un tema implicito en la carta, hay un orden que esta alineado a la verdad o mejor dico esto procede de la verdad, hay una conducta alineada a la verdad, y la verdad esta alineada auna conducta de piedad.
+
+#### Los cretenses tenian una influencia y raiz cultural fuerte, lo cual es presentado como un problema, la cultura se mezclaba con la verdad, es bueno preguntarnos, ¿La cultura es mala?, ¿Cuanto debe influir la cultura en los creyentes y en la iglesia?, ¿Hay aspectos buenos de la cultura?, ¿Debemos quedarnos con nuestra cultura, o dejarnos ser transformados por la verdad?, ¿ La cultura define nuestra identidad o nuestra identidad define nuestra cultura?
+
+#### Dejemos que la escritura nos enseñe en la verdad y la gracia en la piedad, ¿Como debemos conducirnos como iglesia y  como personas?.
 
 # Tito 1:1-16 Orden en la verdad que es segun la piedad.
 
