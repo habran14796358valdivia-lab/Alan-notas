@@ -78,7 +78,7 @@ Title: Tito
 
 #### Los cretenses tenian una influencia y raiz cultural fuerte, lo cual es presentado como un problema, la cultura se mezclaba con la verdad, es bueno preguntarnos, ¿La cultura es mala?, ¿Cuanto debe influir la cultura en los creyentes y en la iglesia?, ¿Hay aspectos buenos de la cultura?, ¿Debemos quedarnos con nuestra cultura, o dejarnos ser transformados por la verdad?, ¿ La cultura define nuestra identidad o nuestra identidad define nuestra cultura?
 
-#### Dejemos que la escritura nos enseñe en la verdad y la gracia en la piedad, ¿Como debemos conducirnos como iglesia y  como personas?.
+#### Dejemos que la escritura nos enseñe en la verdad y la gracia en la piedad, ¿Como debemos conducirnos como iglesia y  como individuos?.
 
 # Tito 1:1-16 Orden en la verdad que es segun la piedad.
 
@@ -148,13 +148,17 @@ Title: Tito
 
 ### Tito 1:4c "*y de Cristo Jesús nuestro Salvador....*" Asi mismo, el extiende la gracia y la paz de parte de Jesús quien nos salvó.
 
-#### El creyente solo podra hallar la gracia y paz en el Padre y el Hijo, el creyente necesita de la gracia de Dios en Cristo para su diario vivir, asi como de su paz vine en el descanso que solo Dios y cristo pueden ofrecer en la verdad.
+#### El creyente solo podra hallar la gracia y paz en el Padre y el Hijo, el creyente necesita de la gracia de Dios en Cristo para su diario vivir, asi como su paz vine en el descanso que solo Dios y cristo pueden ofrecer en la verdad.
 
 ## Corrigiendo lo deficiente para salvarnos del engaño.
 
-### Tito 1:5a "*Por esta causa te dejé en Creta,...*"
+### Tito 1:5a "*Por esta causa te dejé en Creta,...*" Pablo tiene una razón o proposito para dejar a Tito en creta.
 
-### Tito 1:5b "*para que pusieras en orden lo que queda,...*"
+#### Aun que no sabemos cuanto tiempo Pablo estuvo en creta, por la carta a Tito sabemos que habia muchas iglesia locales en creta, seguramente Pablo y Tito habrian ido juntos la isla y habiendose cumplido un tiempo Pablo partio a otro lugar dejando a Tito con la enseñanza.
+
+### Tito 1:5b "*para que pusieras en orden lo que queda,...*" Primero veremos que Tito debia poner en orden lo que faltaba en la enzeñanza.
+
+#### RVR60 dice "para que corrigiesees lo deficiente" aunque literalmente se puede decir "para que las cosas que dejamos atras hagas rectas"
 
 ### Tito 1:5c "*y designaras ancianos en cada ciudad como te mandé....*"
 
