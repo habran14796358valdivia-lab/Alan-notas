@@ -117,27 +117,33 @@ Title: Tito
 
 ### Tito 1:2b "*la cual Dios, que no miente,...*" Dios no miente, no es parte de su naturaleza, es mas, el es verdad, y siempre resulta veraz.
 
-#### Cuando se dice "que no miente" esto es un adjetivo, es una caracteriztica de Dios, el no puede mentit, entonces podemos confiar plenamente que cuando Dios dice algo es completamente verdad.
+#### Cuando se dice "que no miente" esto es un adjetivo, es una caracteriztica de Dios, el no puede mentit, entonces podemos confiar plenamente que cuando Dios dice algo es completamente verdad. Romanos 3:4; Hebreos 6:18
 
 #### Dios no miente cuando habla de la vida eterna, esta es completamente real.
 
 ### Tito 1:2c "*prometió desde los tiempos eternos,...*" Dios habia prometido la vida eterna desde los tiempos en la eternidad.
 
-#### "prometio" es un verbo (aoristo, indicativo, medio), esto nos señala que Dios habia prometido en un punto del tiempo, el mismo versiculo nos dice que fue desde "los tiempos eternos".
+#### "prometió" es un verbo (aoristo, indicativo, medio), esto nos señala que Dios habia prometido en un punto del tiempo, el mismo versiculo nos dice que fue desde "los tiempos eternos".
 
 #### Al ser un indicativo no deja lugar a dudas, esto es un hecho veraz, una certeza que "Dios lo prometio". la voz media nos dice que Dios prometio por si mismo, el seria el unico encargado de llevar acabo su promesa. Hechos 7:5; Romanos 1:2
 
-### Tito 1:3a "*y a su debido tiempo, manifestó Su palabra por la predicación que me fue confiada,...*" Dios manifesto la promesa que habia hecho en el tiempo justo.
+### Tito 1:3a "*y a su debido tiempo, manifestó Su palabra por la predicación que me fue confiada,...*" Dios manifestó su palabra en el tiempo justo,. Galatas 4:4
 
-#### Dios manifesto su promesa (vida eterna) por medio de la predicación, la vida eterna estaba contenida en su palabra predicada, esto le fue confiado a Pablo anunciar (el avangelio). Gálatas 1:11-12; 1 Corintios 15:3-4; Hechos 9:15-17,13:16-41; Juan 3:36, 5:24, 6:40, 47 
+#### Dios manifestó su promesa (vida eterna) por medio de la predicación, la vida eterna estaba contenida en su palabra predicada, esto le fue confiado a Pablo anunciar (el evangelio). Gálatas 1:11-12; 1 Corintios 15:3-4; Hechos 9:15-17,13:16-41; Juan 3:36, 5:24, 6:40, 47 
 
-### Tito 1:3b "*conforme al mandamiento de Dios nuestro Salvador,...*"Dios habria determinado que Pablo le era util en el ministerio 
+### Tito 1:3b "*conforme al mandamiento de Dios nuestro Salvador,...*"Dios habria determinado que Pablo le era útil en el ministerio. 1 Timoteo 1:12-13
 
-### Tito 1:4a "*a Tito, verdadero hijo en la común fe:...*"
+### Tito 1:4a "*a Tito, verdadero hijo en la común fe:...*" Tito seria el receptor de la carta.
 
-### Tito 1:4b "*Gracia y paz de parte de Dios el Padre...*"
+#### Al referirse a Tito como "verdadero" solo da a entender que genuinamente Tito era su hijo nacido en la fe que conparten los creyentes.
 
-### Tito 1:4c "*y de Cristo Jesús nuestro Salvador....*"
+### Tito 1:4b "*Gracia y paz de parte de Dios el Padre...*" Pablo extiende gracia y paz de parte de Dios el Padre.
+
+#### Aunque lo vemos como un saludo comun de parte de Pablo, no es solo un saludo, el quiere extender la gracia y la paz de Dios para con Tito y los creyentes, en la carta hay repenciones duras, como esto puede ir asociado a la gracia y a la paz, pues estas estan alinineadas con la verdad.
+
+### Tito 1:4c "*y de Cristo Jesús nuestro Salvador....*" Asi mismo, el extiende la gracia y la paz de parte de Jesús quien nos salvó.
+
+#### El creyente solo podra hallar la gracia y paz en el Padre y el Hijo, el creyente necesita de la gracia de Dios en Cristo para su diario vivir, asi como de su paz vine en el descanso que solo Dios y cristo pueden ofrecer en la verdad.
 
 ## Corrigiendo lo deficiente para salvarnos del engaño.
 
