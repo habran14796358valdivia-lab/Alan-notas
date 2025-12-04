@@ -80,6 +80,8 @@ Title: Tito
 
 #### Dejemos que la escritura nos enseñe en la verdad y la gracia en la piedad, ¿Como debemos conducirnos como iglesia y  como individuos?.
 
+#### Las iglesia en creta parecen ser iglesias en la cuales faltaba instrucion (enseñar), Pablo dejo a Tito para que se hiciera cargo de completar la enseñanza, en la carta vemos especial enfasis en lo que esta deacuerdo con el conocimiento de la verdad y como está alinea con una vida de piedad, esto es tanto como individuos y como iglesia
+
 # Tito 1:1-16 Orden en la verdad que es segun la piedad.
 
 ## Tito 1:1-4 Saludos.
@@ -160,9 +162,25 @@ Title: Tito
 
 #### RVR60 dice "para que corrigiesees lo deficiente" aunque literalmente se puede decir "para que las cosas que dejamos atras hagas rectas"
 
-### Tito 1:5c "*y designaras ancianos en cada ciudad como te mandé....*"
+#### Pablo viajaba de ciudad en ciudad anunciando y enseñando el evangelio, aqui Tito fue comisionado a terminar el trabajo en creta de enseñar el evangelio a los creyentes, especialmente en cuanto a la piedad y como el conocimiento de la verdad, tanto general como especifica alinea con una vida o andar de piedad (la verdad segun piedad). Hechos 20:26-28
 
-### Tito 1:6a "*Lo designarás, si el anciano es irreprensible,...*"
+### Tito 1:5c "*y designaras ancianos en cada ciudad como te mandé....*" En segundo lugar Tito debia designar ancianos en cada iglesia local.
+
+#### Esta forma de proceder es muy comun de Pablo, primero anunciaba el evangelio, despues enseñaba todo el consejo de Dios a los discipulos y por ultimo establecia ancianos en la iglesia local. Tito debia establecer ancianos despues de terminar de completar la enseñanza. Hechos 14:23, 1 Timoteo 3:1-7
+
+#### Veremos que hay una forma de designar ancianos que alinea con la verdad de la escritura, la designacion de un anciano/opispo/pastor no tiene relacion a los años dentro de la iglesia, el conocimiento, la participacion, por voto popular o por democracia .
+
+#### Es interesante notar que la carta nos muestra una forma de designar a un anciano, veremos que no se debe designar un anciano a la ligera, es mas veremos una lista de requisitos sumamente indispensables. Ademas que alinean con la verdad que es segun piedad.
+
+#### "Ancianos" es un adjetivo en plural masculino, esto lo denota como una caracteristica o rol de un grupo de hombres creyentes.
+
+### Tito 1:6a "*Lo designarás, si el anciano es irreprensible,...*" La designación de un anciano contiene una condicionante de 1ra clase "si", esto indica que algo es una realida o un hecho.
+
+#### Para este caso alguien es designado como anciano solo si esta siendo en tiempo presente (irreprensible, marido de una sola mujer, que tenga hijos crtentes......no obstinado, no iracundo.......debe ser hospitalario, amante de lo bueno, etc).
+
+#### La lista de requisitos que vemos desde el verso 6 hasta 9, son adjetivos, esto quiere decir que son caracteristicas que forman parte del anciano. Ahora si volvemos al texto, no dice que alguien sea designado como anciano para ir adquiriendo estas caracteristicas.
+
+#### Asi como no dice "Alguien que antes fue anciano esta calificado para volverlo a ser", al contrario el varon que desea el obispado 1 Timoteo 3:1 debe mostrar en el tiempo presente todas estas cualidades.
 
 ### Tito 1:6b "*marido de una sola mujer,...*"
 
