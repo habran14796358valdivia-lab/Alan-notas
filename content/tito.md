@@ -200,7 +200,11 @@ Title: Tito
 
 #### "rebeldia" quiere decir no estar bajo sujecion, en este caso a sus padres, tambien conocido como un desobediente.
 
-### Tito 1:7a "*Porque el obispo debe ser irreprensible como administrador de Dios,...*"
+### Tito 1:7a "*Porque el obispo debe ser irreprensible como administrador de Dios,...*" Estos requisitos tienen una razon, el obispo debe ser irreprensible.
+
+#### "Irreprencible" significa que no puede ser acusado de nada, no tiene nada en su contra, alguien no debe ser llamado a rendir cuentas, esto no solo va en direccion con la iglesia sibo tambien para con los de afuera.
+
+
 
 ### Tito 1:7b "*no obstinado,...*"
 
