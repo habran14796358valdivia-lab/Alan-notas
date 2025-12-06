@@ -182,11 +182,23 @@ Title: Tito
 
 #### Asi como no dice "Alguien que antes fue anciano esta calificado para volverlo a ser", al contrario el varon que desea el obispado 1 Timoteo 3:1 debe mostrar en el tiempo presente todas estas cualidades.
 
-### Tito 1:6b "*marido de una sola mujer,...*"
+### Tito 1:6b "*marido de una sola mujer,...*" Debe ser en el tiempo presente marido/hombre de una sola mujer.
 
-### Tito 1:6c "*que tenga hijos creyentes,...*"
+#### Este requisito no descalifica a un viudo o soltero, no dice que debe ser casado, el requisito se enfoca en ser hobre de una sola mujer esto contrasta con un hobre de muchas mujeres (un mujeriego). Proverbios 6:25-29; Mateo 5:28; 1 Corintios 7:2; Efesios 5:3; 1 Tesalonicenses 4:4
 
-### Tito 1:6e "*no acusados de disolución ni de rebeldía....*"
+#### Para este caso si el varon que desea el obispado esta casado debe ser un hombre/marido de una sola mujer.
+
+### Tito 1:6c "*que tenga hijos creyentes,...*" Para el creyente eque desea el obispado y tenga hijos dben ser creyentes.
+
+#### Cuando se menciona la palabra creyentes no significa que deben ser salvos, ninguna persona puede manipular la salvacion de una otra, la palabra es "pista" es un adjetivo, un hijo fiel o digno de confianza, esto para con su padre mientras vive bajo su cuidado. Hechos 13:34; 1 Timoteo 3:11
+
+### Tito 1:6e "*no acusados de disolución ni de rebeldía....*" Sus hijos no deben estar acusados de libertinaje o rebeldia.
+
+#### Mientras sus hijos vivan bajo su cuidado asi como su padre debe ser irreprencible, ellos tambien deben ser irreprencibles, esto esta relacionado que son fieles en la casa de su padre sujetandose a el, esto no esta ligado a exigir sujecion o rectitud de parte del padre, al contrario enfatiza como el padre dirige su hogar, del como a instruido a sus hijos. 1 Timoteo 3:4-5
+
+#### "disolucion" quiere decir una vida de desenfreno o libertino (inmoralidad de todo tipo). Efesios 5:18; 1 Pedro 4:4
+
+#### "rebeldia" quiere decir no estar bajo sujecion, en este caso a sus padres, tambien conocido como un desobediente.
 
 ### Tito 1:7a "*Porque el obispo debe ser irreprensible como administrador de Dios,...*"
 
