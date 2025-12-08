@@ -200,33 +200,43 @@ Title: Tito
 
 #### "rebeldia" quiere decir no estar bajo sujecion, en este caso a sus padres, tambien conocido como un desobediente.
 
+#### Aqui vemos un contraste con respecto a la familia, como el creyente gobierna en su casa o se conduce en la misma, este tipo caracteristicas estsan alineadas con la verdad y con una vida piadosa por parte de que desa el obispado.
+
 ### Tito 1:7a "*Porque el obispo debe ser irreprensible como administrador de Dios,...*" Estos requisitos tienen una razon, el obispo debe ser irreprensible.
 
-#### "Irreprencible" significa que no puede ser acusado de nada, no tiene nada en su contra, alguien no debe ser llamado a rendir cuentas, esto no solo va en direccion con la iglesia sibo tambien para con los de afuera.
+#### "Irreprencible" significa que no puede ser acusado de nada, no tiene nada en su contra, alguien no debe ser llamado a rendir cuentas, esto no solo va en direccion con la iglesia sino tambien para con los de afuera.
 
+#### El anociano es un administrador de Dios, entre la iglesia es irreprencible, es un ejemplo de fe y de la gracia de Dios entre los creyentes. El anciano es puesto para administrar lo que le pertenece a Dios, su iglesia, siendo que el mismo forma parte de ella.
 
+#### A continuacion veremos algunas caracteristicas que no deben formar parte de alguien que desa el obispado, especialmente ya que sera un administrador de Dios.
 
-### Tito 1:7b "*no obstinado,...*"
+### Tito 1:7b "*no obstinado,...*" Esto esta relacionado con la arrogancia, el no debe ser un hombre que se agrada a si mismo y complase sus propios deseos, es un contraste con un administrador(mayordomo) ya que este agrada a su Señor y no asi mismo.
 
-### Tito 1:7c "*no iracundo,...*"
+### Tito 1:7c "*no iracundo,...*"  El no debe ser alguen iracundo, esto es alguen que se deja controlar por el enojo o la colera de manera que se vuelve irracinal o es cegado por el enojo.
 
-### Tito 1:7d "*no dado a la bebida,...*"
+### Tito 1:7d "*no dado a la bebida,...*" El no debe ser un borracho, alguien que es controlado por el alcohol, literalmente se traduce como "cerca del vino"
 
-### Tito 1:7e "*no pendenciero,...*"
+### Tito 1:7e "*no pendenciero,...*" Literalmente dicho un colerico "listo para dar un golpe", El no debe ser un pendenciero, alguen reaccionario a los golpes ante cualquier situacion (un violento).
 
-### Tito 1:7f "*no amante de ganancias deshonestas....*"
+### Tito 1:7f "*no amante de ganancias deshonestas....*" El no debe ser amar las ganancias o recompensas deshonestas, esto tambien se refiere a alguen codicioso de todo tipo de ganacias (dinero o recompensas) lo particular de esto es que estas ganancias no provienen de la verdad o algo apropiado. 1 Timoteo 3:8
 
-### Tito 1:8a "*Antes bien, debe ser hospitalario,...*"
+#### El contraste con todo lo que un anciano no debe ser, es ser un administrador (mayordomo), todas estas caracteristicas estan enfocadas como alguien se deja llevar por sus deseos y es cegado por los mismos, esto no carecteriza a un mayordomo.
 
-### Tito 1:8b "*amante de lo bueno,...*"
+#### Todas estas caracteristicas en la vida de un creyente son contrarias a la verdad, una vida piadosa se contrasta aqui ya que la verdad alinea con la piedad.
 
-### Tito 1:8c "*prudente,...*"
+### Tito 1:8a "*Antes bien, debe ser hospitalario,...*" Un segundo contraste a como no debe ser, esta como debes ser un su andar, un andar o vida que alinea con la verdad segun piedad.
 
-### Tito 1:8d "*justo,...*"
+#### El es hospitalario, literalmente dicho "alguien que ama a los extraños" o "amigo de los extrangeros". 1 Timoteo 3:2; 1 Pedro 4:9
 
-### Tito 1:8e "*santo,...*"
+### Tito 1:8b "*amante de lo bueno,...*" Debe ser alguin que ame lo bueno, esto esta referido al bien en todas sus expresiones, ama el bien conforme a la verdad. Mateo 19:16, 20:15; Lucas 8:8
 
-### Tito 1:8f "*dueño de sí mismo....*"
+### Tito 1:8c "*prudente,...*" Debe ser de mente sana, alguien prudente es alguien que goza de una mente sana o alguien que esta en sus cabales capaz de pensar conforme a la verdad, en contraste a lo que no debe ser un iracundo, un codicioso,un pendenciero, un borracho y un orgullo los cuales estan cegados por sus deseos. 1 Timoteo 3:2; Tito 2:2, 5
+
+### Tito 1:8d "*justo,...*" Debe ser justo en su andar, estas son caracteristicas que se persiben extexternamente, es alguin que exibe justicia en su andar, tambien puede verse con hacer lo que es correcto. Hechos 4:19; Efesios 6:1; Colosenses 4:1; 2 Pedro 1:13
+
+### Tito 1:8e "*santo,...*" Debe ser andar en santidad, literalmente dicho "fiel en santidad". Hechos 13:34; 1 Timoteo 2:8; Hebreos 7:26
+
+### Tito 1:8f "*dueño de sí mismo....*" Gálatas 5:23; 2 Pedro 1:6
 
 ### Tito 1:9a "*Debe retener la palabra fiel que es conforme a la enseñanza,...*"
 
