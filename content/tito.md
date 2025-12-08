@@ -236,11 +236,19 @@ Title: Tito
 
 ### Tito 1:8e "*santo,...*" Debe ser andar en santidad, literalmente dicho "fiel en santidad". Hechos 13:34; 1 Timoteo 2:8; Hebreos 7:26
 
-### Tito 1:8f "*dueño de sí mismo....*" Gálatas 5:23; 2 Pedro 1:6
+### Tito 1:8f "*dueño de sí mismo....*" Deber tener dominio propio, es interesante que no lo manda a dominar sus deseos, mas bien lo enfatiza como una caracteristica de el alguien que es dueño de si mismo. Gálatas 5:23; 2 Pedro 1:6
 
-### Tito 1:9a "*Debe retener la palabra fiel que es conforme a la enseñanza,...*"
+### Tito 1:9a "*Debe retener la palabra fiel que es conforme a la enseñanza,...*"Una traducion mas literal " Se este adhiriendo firmemente a la palabra que es digna de confianza que alinea con la enseñanza".
 
-### Tito 1:9b "*para que sea capaz también de exhortar con sana doctrina...*"
+#### Es interesante como se escribe, "se predico la palabra (fiel) segun la enseñanza", fuera de la enseñanza (la Fe, de la verdad) la palabra dicha no es digna de confianza, asimismo solo la enseñanza (la verdad) produce una palabra fiel.
+
+#### "retener" es un verbo (presente, participio, medio), el deber estar aferrado fimemente, el particiopio nos indica que es una caracteristica suya un aferrado/retenedor.
+
+### Tito 1:9b "*para que sea capaz también de exhortar con sana doctrina...*" Veremos que etsa carcteristica de ser retenedor tiene un proposito en el rol de anciano.
+
+#### "Sea" es un verbo en modo subjuntivo indicando posibilidad en el verbo, puede que sea o puede que no sea. Ser capaz esta sujeto a retener, eso indica "para" retener para ser.
+
+#### "Capaz" tambien traducido como "poderoso", que sea retenedor para ser poderoso y estar exhortando/consolando/animando con enseñanza saludable o que sana. Hechos 7:22, !4:8, 18:24; Romanos 11:23; Hebreos 11:19; Santiago 3:2
 
 ### Tito 1:9c "*y refutar a los que contradicen....*"
 
