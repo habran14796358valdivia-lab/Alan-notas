@@ -250,13 +250,29 @@ Title: Tito
 
 #### "Capaz" tambien traducido como "poderoso", que sea retenedor para ser poderoso y estar exhortando/consolando/animando con enseñanza saludable o que sana. Hechos 7:22, !4:8, 18:24; Romanos 11:23; Hebreos 11:19; Santiago 3:2
 
-### Tito 1:9c "*y refutar a los que contradicen....*"
+### Tito 1:9c "*y refutar a los que contradicen....*" Para que se poderoso en refutar a los que contradicen.
 
-### Tito 1:10a "*Porque hay muchos rebeldes,...*"
+#### "Refutar" es ELENKJO quiere decir poner al descubierto, al ser retenedor de la palabra fiel conforme a la enseñanza, sera poderoso para podener al descubierto(exhibir) con base en la verdad. Tito 1:13, 2:15; 1 Timoteo 5:20 
 
-### Tito 1:10b "*habladores vanos...*"
+#### Sera capaz de exhibir a todo el que habla en contra de la verdad. 
 
-### Tito 1:10c "*y engañadores,...*"
+#### En el verso 8 y 9 vemos cararcteristicas que alinean con la verdad y la piedad, alguien que anda piadasosamente.
+
+### Tito 1:10a "*Porque hay muchos rebeldes,...*"  Por que razon es importante que el que desea el obispado sea un retenedor de la palabra fiel, bueno ahora vemos que hay muchos rebeldes.
+
+#### El verbo "hay" (presente, indicativo, activo) nos muestar que es un hecho/realidad, hay muchos rebeldes, se esta apuntando directamente a un grupo, aunque no se nos dice si estos forman parate de la iglesia o no, pero si se nos dice que son rebeldes.
+
+#### "rebeldes" literalmente dicho no puesto bajo sujecion, es un grupo de personas que no estan bajo la enseñanza ( la verdad), como sabemos esto, al revisasr el contexto vemos que el anciano debe se run retenedor de la palabra fiel conforme a la enseñanza, para refutar a los que contradicen, esto podia estar identificandona estos rebeldes.
+
+#### Los rebeldes habrian negado la fe, por lo cual naunfragaron de ella, estos abiertamente no estan deacuerdo con la enseñanza en la verdad biblica pues no se sujetan a ella.
+
+### Tito 1:10b "*habladores vanos...*" Esto es un adjetivo al igual que rebeldes, esta describiendop a este grupo de personas, son reberdes, hablan palabras vacias.
+
+#### "habladores vanos" se puede traducir como un charlatan o un hablador inutil ya que su habla no lleva a ningun lugar. 2 Pedro 1:21
+
+### Tito 1:10c "*y engañadores,...*" Tambien son engañadores, esto ya no solo es una caracteristica de ellos, sino que se refiere a ellos como una persona, son "Los Engañadores" asi se los identifica.
+
+#### "engañadores" viene de FRENAPATES literalmente dicho "Los que descarrian/seducens la mente"
 
 ### Tito 1:10d "*especialmente los de la circuncisión,...*"
 
