@@ -296,8 +296,11 @@ Title: Tito
 
 #### Asi mismo ellos enseñan por ganancia es decir por lucrar. "Deshonestas" es un adjetivo de ganancia, tambien se traduce como vergonzoso, indecoroso. Ellos enseñan por un lucho vergonzoso. Filipenses 1:21; 1 Corintios 11:6, 14:35; Efesios 5:12
 
+### Tito 1:11d "*cosas que no deben....*" Su ganancia es vergonzosa  por que enseñann lo que no deben.
 
-### Tito 1:11d "*cosas que no deben....*"
+#### Entendemos que el obrero es digni de su salario, sin embargo al enseñanr por lucro y aun mas, enseñan cosas que no deben, esa ganacia es vergonzosa.
+
+#### Cuando dice "cosas que no deben" no significa que hay algo oculto que no puede enseñanrse, en un sentido de "esta enseñanza no es para ustedes". Hablando de la "Enseñanza" ¿que son las cosas que no deben?, pues lo que es contrario a la misma, estos hombres son rebeldes y engañadores, su enseñanza no se alinea a verdad y mucho menos a una vida de piedad. Su misma enseñanza es contraria a la verdad de la escritura.
 
 ### Tito 1:12a "*Uno de ellos, su propio profeta,...*"
 
