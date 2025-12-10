@@ -272,13 +272,21 @@ Title: Tito
 
 ### Tito 1:10c "*y engañadores,...*" Tambien son engañadores, esto ya no solo es una caracteristica de ellos, sino que se refiere a ellos como una persona, son "Los Engañadores" asi se los identifica.
 
-#### "engañadores" viene de FRENAPATES literalmente dicho "Los que descarrian/seducens la mente"
+#### "engañadores" viene de FRENAPATES literalmente dicho "Los que descarrian/seducens la mente".
 
-### Tito 1:10d "*especialmente los de la circuncisión,...*"
+### Tito 1:10d "*especialmente los de la circuncisión,...*" Pablo señalara a un grupo especial de engañadores, rebeldes y habladores vanos.
 
-### Tito 1:11a "*a quienes es preciso tapar la boca,...*"
+#### Pablo señalaria a los judios como uno de estos grupos que se dedican a engañar a los creyentes, aunque no son los unicos ya que tambien hay engañadores de parte de los gentiles. Hechos 13:50, 14:1-2, 19, 17:5, 13
 
-### Tito 1:11b "*porque están trastornando familias enteras,...*"
+### Tito 1:11a "*a quienes es preciso tapar la boca,...*" Esta parte no solamente habla de los judios, sino esta tomando a todos los que tengan estas caracteristicas, a todo aquel que este en esto, un engañador, un rebelde, un hablador vano, sea judio o gentil.
+
+#### "Es preciso" tambien se traduce como "es necesario", esta en (presente, indicativo, avtivo) mostrando la necesesidad como un hecho presente a hacer.
+
+#### A estos hombres es necesario ahora taparles la boca, tambien dicho hacerlos callar.
+
+#### El verbo es (presente, infinitivo, activo) el tiempo presente muestra el momento del del verbo como continuo ahora, el activo nos mustra que no demos esperar a que esto mengue por si solo y el modo infinitivo decribe a la accion como tal no enfatisando a alguin en especifico o un tiempo en el deba hacerce simplemente la accion de taparles la boca, por tanto ahora activamente silenciarlos.
+
+### Tito 1:11b "*porque están trastornando familias enteras,...*" Vemos por que esta inportante taparles la boca.
 
 ### Tito 1:11c "*enseñando por ganancias deshonestas,...*"
 
