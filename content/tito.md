@@ -286,9 +286,16 @@ Title: Tito
 
 #### El verbo es (presente, infinitivo, activo) el tiempo presente muestra el momento del del verbo como continuo ahora, el activo nos mustra que no demos esperar a que esto mengue por si solo y el modo infinitivo decribe a la accion como tal no enfatisando a alguin en especifico o un tiempo en el deba hacerce simplemente la accion de taparles la boca, por tanto ahora activamente silenciarlos.
 
-### Tito 1:11b "*porque están trastornando familias enteras,...*" Vemos por que esta inportante taparles la boca.
+### Tito 1:11b "*porque están trastornando familias enteras,...*" Vemos porque esta inportante taparles la boca.
 
-### Tito 1:11c "*enseñando por ganancias deshonestas,...*"
+#### Estos hombres estan transtornando literalmente dicho "voltear, destuir o arruinar" una connotacion negativa. Juan 2:15; 2 Timoteo 2:18
+
+#### A "familias enteras" tambien traducido como casas o moradas, estos hombres estan destruyendo casas, ahora es interesante que no es una frase literal, sino que se refiera a las personas que se reunen en un lugar, estas estan siendo destruidas. Pero ¿De que manera?
+
+### Tito 1:11c "*enseñando por ganancias deshonestas,...*" Estos hombres estan enseñando, es pormedio de su enseñanza que estan destruyendo casas enteras.
+
+#### Asi mismo ellos enseñan por ganancia es decir por lucrar. "Deshonestas" es un adjetivo de ganancia, tambien se traduce como vergonzoso, indecoroso. Ellos enseñan por un lucho vergonzoso. Filipenses 1:21; 1 Corintios 11:6, 14:35; Efesios 5:12
+
 
 ### Tito 1:11d "*cosas que no deben....*"
 
