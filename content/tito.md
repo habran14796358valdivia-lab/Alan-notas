@@ -302,15 +302,19 @@ Title: Tito
 
 #### Cuando dice "cosas que no deben" no significa que hay algo oculto que no puede enseñanrse, en un sentido de "esta enseñanza no es para ustedes". Hablando de la "Enseñanza" ¿que son las cosas que no deben?, pues lo que es contrario a la misma, estos hombres son rebeldes y engañadores, su enseñanza no se alinea a verdad y mucho menos a una vida de piedad. Su misma enseñanza es contraria a la verdad de la escritura.
 
-### Tito 1:12a "*Uno de ellos, su propio profeta,...*"
+### Tito 1:12a "*Uno de ellos, su propio profeta,...*" En este verso "uno de ellos" esta conectado gramaticalmente al grupo plural de los rebeldes y engañadores, asi como se extiende a los cretenses.
 
-### Tito 1:12b "*dijo: «Los cretenses son siempre mentirosos,...*"
+#### " Alguien que procede de ellos, su propio profeta de ellos", Aqui profeta tambien se traduce como poeta, ae nos mostrara una reañidad de la cultura cretence.
 
-### Tito 1:12c "*malas bestias,...*"
+### Tito 1:12b "*dijo: «Los cretenses son siempre mentirosos,...*" Esto es dicho por primera vez por Epimanes en el siglo XII a.C. a raiz de que los cretences aseveraban que la tumba de zeus(jupiter) se encontraba en la isla.
 
-### Tito 1:12d "*glotones ociosos»....*"
+#### Los cretences tenian la fama de ser siempre mentirosos, "siempre" da a entender continuidad/constantemente. Mentiroso es un sustantivo esto esta descripiendo a una persona, cretence y mentiroso eran intercambiabres cuando te referias a ellos. Hechos 9:13; Romanos 3:8; 2 Timoteo 4:14; 1 Pedro 3:12
 
-### Tito 1:13a "*Este testimonio es verdadero....*"
+### Tito 1:12c "*malas bestias,...*"  "malas" es un adjetivo de bestias que es el sustantivo. A los cretences se los identificaba como bestias, o por lo menos se referian a ellos asi, Hechos 11:6
+
+### Tito 1:12d "*glotones ociosos»....*" 
+
+### Tito 1:13a "*Este testimonio es verdadero....*" 
 
 ### Tito 1:13b "*Por eso, repréndelos severamente...*"
 
