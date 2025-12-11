@@ -310,11 +310,11 @@ Title: Tito
 
 #### Los cretences tenian la fama de ser siempre mentirosos, "siempre" da a entender continuidad/constantemente. Mentiroso es un sustantivo esto esta descripiendo a una persona, cretence y mentiroso eran intercambiabres cuando te referias a ellos. Hechos 9:13; Romanos 3:8; 2 Timoteo 4:14; 1 Pedro 3:12
 
-### Tito 1:12c "*malas bestias,...*"  "malas" es un adjetivo de bestias que es el sustantivo. A los cretences se los identificaba como bestias, o por lo menos se referian a ellos asi, Hechos 11:6
+### Tito 1:12c "*malas bestias,...*"  "malas" es un adjetivo de bestias que es el sustantivo. A los cretences se los identificaba como bestias, o por lo menos se referian a ellos asi, a demas de bestias eran maliciosas. Marcos 1:13; Hechos 11:6, 28:4-5
 
-### Tito 1:12d "*glotones ociosos»....*" 
+### Tito 1:12d "*glotones ociosos»....*" Eran conocidos por ser glotones o del comer, sin embargo esto tenia una connotacion negativa al ser complementado con ociosos, esto es alguien sin que hacer o desempleado.
 
-### Tito 1:13a "*Este testimonio es verdadero....*" 
+### Tito 1:13a "*Este testimonio es verdadero....*" A traves de la carta pobemos ver que esto no solo era un dicho de Epimanes, esto era una descripcion real de los cretences, se nos dice que es un testimonio confiable.
 
 ### Tito 1:13b "*Por eso, repréndelos severamente...*"
 
