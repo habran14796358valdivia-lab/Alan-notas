@@ -314,9 +314,9 @@ Title: Tito
 
 ### Tito 1:12d "*glotones ociosos»....*" Eran conocidos por ser glotones o del comer, sin embargo esto tenia una connotacion negativa al ser complementado con ociosos, esto es alguien sin que hacer o desempleado.
 
-### Tito 1:13a "*Este testimonio es verdadero....*" A traves de la carta pobemos ver que esto no solo era un dicho de Epimanes, esto era una descripcion real de los cretences, se nos dice que es un testimonio confiable.
+### Tito 1:13a "*Este testimonio es verdadero....*" A traves de la carta podemos ver que esto no solo era un dicho de Epimanes, esto era una descripcion real de los cretences, se nos dice que es un testimonio confiable.
 
-### Tito 1:13b "*Por eso, repréndelos severamente...*"
+### Tito 1:13b "*Por eso, repréndelos severamente...*"  El "por eso " en esta parte del texto es una conclusion que engloba desde el verso 10 al 13. Habia un peligro eminente al asecho A causa de la relidad de la cultura cretence, Tito debia reprenderlos Juan 8:46; 1 Corintios 14:24; Efesios 5:11; 1 Timoteo 5:20; Tito 1:9, 13, 2:15; Judas 22 2 Corintios 13:10
 
 ### Tito 1:13c "*para que sean sanos en la fe,...*"
 
