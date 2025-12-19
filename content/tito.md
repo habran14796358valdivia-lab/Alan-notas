@@ -370,13 +370,21 @@ Title: Tito
 
 ### Tito 1:16a "*Profesan conocer a Dios,...*" EL corrompido e incredulo profesa conocer a Dios.
 
-#### "profesar" quiere decir confesar o declarar
+#### "profesar" quiere decir confesar o declarar persibir a Dios. El sabe quien es Dios y que quiere. Conocer (perfecto, infinitivo, activo), ellos dicen haber percibido a Dios y aun persibirlo o conocerlo. Esta es su verdad
 
-### Tito 1:16b "*pero con sus hechos lo niegan,...*"
+### Tito 1:16b "*pero con sus hechos lo niegan,...*" un pequeño contraste a su confesion estos que dicen persibir a Dios niegan a Dios con sus aciones, su andar contradice sus palabras. esta es su piedad.
 
-### Tito 1:16c "*siendo abominables y desobedientes...*"
+#### Aqui podemos resaltar algo importante "El conocimiento de la verdad es segun piedad" ambos coinciden, hay la verdad que resulta en piedad, y esta misma piedad realza esta verdad y hay entre comillas " verdad pero que resulta en falsa piedad o en inpiedad". La unico que puede resultar en piedad real es la verdad biblica tomada por la fe.
 
-### Tito 1:16d "*e inútiles para cualquier obra buena....*"
+#### Veamos a continuacion en que resulta los que dicen conocer a Dios y sus hechos lo niegan o rechazan.
+
+### Tito 1:16c "*siendo abominables y desobedientes...*" Son abominables y desobedientes estos son caracteristicas de ellos.
+
+#### "abominable" es BDELUKTOS quiere decir ser repugnante, detestable o de hedor insoportable, se usaba para calificar a la idoratria como repugnante, 
+
+#### "desobediente" es un rebelde o contumaz, esta caracteristica tine que ver con haber rechazado la verdad.
+
+### Tito 1:16d "*e inútiles para cualquier obra buena....*" Son inutiles o reprobados o descalificados para cualquier buena obra.
 
 # Tito 2:1-15 Un contraste, lo que esta deacuerdo con la sana doctrina
 
