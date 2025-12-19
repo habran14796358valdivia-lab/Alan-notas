@@ -338,6 +338,10 @@ Title: Tito
 
 ### Tito 1:14b "*y a mandamientos de hombres que se apartan de la verdad....*" Un tercer proposito en esta reprencion, para que no prestemos atencion a mandamiento que provienen de los hombres.
 
+#### Estos hombres se han apartado de la verdad y aun asi dictan mandamientos sobre sus seguidores, evidentemente lo que recomiendan jamas estara alineado con la verdad, al ser sanos en la fe no seremos engañados facilmente.
+
+#### La iglesia de Dios debe estar siendo nutrida en y a traves de la verdad, hasta este momento hemos visto como la verdad a sido enfatizada, empezando con la presentacion de Pablo, su apostolado, su servicio son conforme a la verdad segun piedad, la designacion de ancianos en la iglesia en cumplimiento de los requisitos (una conductaconforme a la verdad segun piedad), la conducta que no esta alineada a la verdad segun piedad y la reprencion a los rebeldes en base a la verdad.
+
 ## Ser corrompidos nos vuelve inutiles.
 
 ### Tito 1:15a "*Todas las cosas son puras para los puros,...*"
