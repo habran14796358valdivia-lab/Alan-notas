@@ -384,7 +384,7 @@ Title: Tito
 
 #### "desobediente" es un rebelde o contumaz, esta caracteristica tine que ver con haber rechazado la verdad.
 
-### Tito 1:16d "*e inútiles para cualquier obra buena....*" Son inutiles o reprobados o descalificados para cualquier buena obra.
+### Tito 1:16d "*e inútiles para cualquier obra buena....*" Son inutiles o reprobados o descalificados para cualquier buena obra. 2 Timoteo 3:8
 
 # Tito 2:1-15 Un contraste, lo que esta deacuerdo con la sana doctrina
 
