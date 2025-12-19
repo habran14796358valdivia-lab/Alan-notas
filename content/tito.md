@@ -348,13 +348,29 @@ Title: Tito
 
 ## Ser corrompidos nos vuelve inutiles.
 
-### Tito 1:15a "*Todas las cosas son puras para los puros,...*"
+### Tito 1:15a "*Todas las cosas son puras para los puros,...*" Estos versos van a girar en torno a "los puros" o "los limpio" esto es un adjetivo, quiere decir que es una caracteristica.
 
-### Tito 1:15b "*pero para los corrompidos e incrédulos nada es puro,...*"
+#### Para "los limpios" todas las cosas son limpias, en algunas ocacion esta palabra se utiliza para describir la condicion de una persona como ser sin culpa, inocente o libre, asi como de la pureza de alguien o algo como los alimentos  Juan 13:10-11, 15:3; Hechos 18:6, 20:26; Romanos 14:20; 1 Timoteo 3:9; Hebreos 10:23; Santiago 1:27
 
-### Tito 1:15c "*sino que tanto su mente como su conciencia están corrompidas....*"
+#### Esto es una realidad de todo aquel que ha sido limpiados en la sangre de Cristo por medio de la palabra, para ellos (creyentes) todas las cosas son limpias. Hechos 10:15; Romanos 14:14
 
-### Tito 1:16a "*Profesan conocer a Dios,...*"
+#### En el contexto para los puros (los que permanecen firmes en la verdad, o persudidos por ella) conforme a la verdad no hay ninguna cosa impura en si. Aqui puros esta en relacion a la verdad.
+
+### Tito 1:15b "*pero para los corrompidos e incrédulos nada es puro,...*" Aqui se marca un pequeño contraste, en el texto griego aun se continua hablando de "los puros" pero con un enfasis a ser contaminados o corrompidos.
+
+#### Todo creyente posicionalmente es limpio, el enfasis aqui es "el limpio contaminado" y esta contaminacion o corrupcion es en cuanto a la palabra de verdad. 
+
+#### Un creyente que ha sido corrompido en cuanto a la verdad biblica nada le es puro, todo le resulta en contaminacion hacia si mismo y es una afrenta a su fe.
+
+#### "incredulo" Primeramnente puede referirse al incredulo (no salvo) en si mismo el no es puro y no tiene ninguna cosa pura.
+
+#### En segundo lugar puede referirse a un cryente (salvo) pero carente de confianza. ¿Es posible que un cryente habiendo sido salvado al creer en el evangelio viva en incredulidad?, la respuesta es si, esto puede deberse ignorar la verdad biblica habiendola conocido. A causa de su negligencia nada le resulta puro. Otro caso es el creyente debil , el que esta creciendo en el conocimiento de la verdad biblica y en la fe, a el por la falta de fe algunas cosa le pueden resultar impuras. Juan 20:27; Romanos 14:1-5, 14, 22-25 (revisar)
+
+### Tito 1:15c "*sino que tanto su mente como su conciencia están corrompidas....*" Para estos dos el corrompido e incredulo nada es puro porque su mente y conciencia estan contaminadas, esto tiene que ver con la ausencia de la verdad en ellos.
+
+### Tito 1:16a "*Profesan conocer a Dios,...*" EL corrompido e incredulo profesa conocer a Dios.
+
+#### "profesar" quiere decir confesar o declarar
 
 ### Tito 1:16b "*pero con sus hechos lo niegan,...*"
 
