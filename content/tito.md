@@ -336,7 +336,11 @@ Title: Tito
 
 #### Al ser sanos en la fe no estaremos yendo tras fabulas o mitos judios o de cualquier clase, cosas que al ser fantaciosas nos desvian de la verdad.
 
+#### "prestar atencion" (presente, participio, activo) se refiere a buscar activamente o navegar hacia. 1 Timoteo 1:4, 3:8 4:1, 13; 2 Pedro 1:19
+
 ### Tito 1:14b "*y a mandamientos de hombres que se apartan de la verdad....*" Un tercer proposito en esta reprencion, para que no prestemos atencion a mandamiento que provienen de los hombres.
+
+#### Literalmente dicho: Hombres apartados de la verdad, estos han sido apartados de la verdad, mostrando que la verdad no mora en ellos o sus enseñanzas.
 
 #### Estos hombres se han apartado de la verdad y aun asi dictan mandamientos sobre sus seguidores, evidentemente lo que recomiendan jamas estara alineado con la verdad, al ser sanos en la fe no seremos engañados facilmente.
 
