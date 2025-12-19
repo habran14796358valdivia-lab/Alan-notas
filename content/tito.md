@@ -332,9 +332,11 @@ Title: Tito
 
 #### Ser sanos esta ligado a "En la fe". La fe aqui no es la confianza personal de cada uno sino se reliere al conjunto de la enzeñanza mostrada en la escritura, esto es lo que conforma la verdad Biblica.
 
-### Tito 1:14a "*y no presten atención a mitos judaicos...*"
+### Tito 1:14a "*y no presten atención a mitos judaicos...*" Un segundo proposito en esta reprencion, para que no presten atencion a fabulas judias.
 
-### Tito 1:14b "*y a mandamientos de hombres que se apartan de la verdad....*"
+#### Al ser sanos en la fe no estaremos yendo tras fabulas o mitos judios o de cualquier clase, cosas que al ser fantaciosas nos desvian de la verdad.
+
+### Tito 1:14b "*y a mandamientos de hombres que se apartan de la verdad....*" Un tercer proposito en esta reprencion, para que no prestemos atencion a mandamiento que provienen de los hombres.
 
 ## Ser corrompidos nos vuelve inutiles.
 
