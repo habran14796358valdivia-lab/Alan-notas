@@ -324,7 +324,13 @@ Title: Tito
 
 #### "reprendelos severamente" Esta confrontacion con la verdad debia ser de manera abupta, vemos que no tenia caso a tolerancia, esto no indica el trato con la persona sino con respencto a la verdad del evangelio, no hay caso en otorgar tolerancia cuando la verdad esta siendo cambiada, no es algo permisible. 2 Corintios 13:10
 
-### Tito 1:13c "*para que sean sanos en la fe,...*" Esta reprencion 
+### Tito 1:13c "*para que sean sanos en la fe,...*" Esta reprencion no tiene el proposito de destruir a la persona, mas bien de sanarlo.
+
+#### Muchos hoy en dia no solemos tomar con la mejor actitud una reprencion, pensamos que es un ataque personal, pero debemos reconciderar que tiene un proposito "ser sanos en la fe".
+
+#### "Sano en la fe" Ser sano es un verbo ( presente, subjuntivo, activo) indicando la posiblilidad de ser sano, esto en condicion de como recibimos la reprencion. A traves de ser confrontado con la verdad podemos cambiar de mente o no.
+
+#### Ser sanos esta ligado a "En la fe". La fe aqui no es la confianza personal de cada uno sino se reliere al conjunto de la enzeñanza mostrada en la escritura, esto es lo que conforma la verdad Biblica.
 
 ### Tito 1:14a "*y no presten atención a mitos judaicos...*"
 
