@@ -266,7 +266,7 @@ Title: Tito
 
 #### Los rebeldes habrian negado la fe, por lo cual naunfragaron de ella, estos abiertamente no estan deacuerdo con la enseñanza en la verdad biblica pues no se sujetan a ella.
 
-### Tito 1:10b "*habladores vanos...*" Esto es un adjetivo al igual que rebeldes, esta describiendop a este grupo de personas, son reberdes, hablan palabras vacias.
+### Tito 1:10b "*habladores vanos...*" Esto es un adjetivo al igual que rebeldes, esta describiendo a este grupo de personas, son reberdes, hablan palabras vacias.
 
 #### "habladores vanos" se puede traducir como un charlatan o un hablador inutil ya que su habla no lleva a ningun lugar. 2 Pedro 1:21
 
@@ -298,13 +298,13 @@ Title: Tito
 
 ### Tito 1:11d "*cosas que no deben....*" Su ganancia es vergonzosa  por que enseñann lo que no deben.
 
-#### Entendemos que el obrero es digni de su salario, sin embargo al enseñanr por lucro y aun mas, enseñan cosas que no deben, esa ganacia es vergonzosa.
+#### Entendemos que el obrero es digno de su salario, sin embargo al enseñanr por lucro y aun mas, enseñan cosas que no deben, esa ganacia es vergonzosa.
 
 #### Cuando dice "cosas que no deben" no significa que hay algo oculto que no puede enseñanrse, en un sentido de "esta enseñanza no es para ustedes". Hablando de la "Enseñanza" ¿que son las cosas que no deben?, pues lo que es contrario a la misma, estos hombres son rebeldes y engañadores, su enseñanza no se alinea a verdad y mucho menos a una vida de piedad. Su misma enseñanza es contraria a la verdad de la escritura.
 
-### Tito 1:12a "*Uno de ellos, su propio profeta,...*" En este verso "uno de ellos" esta conectado gramaticalmente al grupo plural de los rebeldes y engañadores, asi como se extiende a los cretenses.
+### Tito 1:12a "*Uno de ellos, su propio profeta,...*" En este verso "uno de ellos" esta conectado gramaticalmente al grupo plural de los rebeldes y engañadores.
 
-#### " Alguien que procede de ellos, su propio profeta de ellos", Aqui profeta tambien se traduce como poeta, ae nos mostrara una reañidad de la cultura cretence.
+#### " Alguien que procede de ellos, su propio profeta de ellos". "Uno de ellos" esta frase relaciona al uno en el grupo de rebelde, hablador vano y engañador, este "uno" es un poeta propio de los cretences, vemos que a diferencia de los demas identifica su origen, es de los cretences.
 
 ### Tito 1:12b "*dijo: «Los cretenses son siempre mentirosos,...*" Esto es dicho por primera vez por Epimanes en el siglo XII a.C. a raiz de que los cretences aseveraban que la tumba de zeus(jupiter) se encontraba en la isla.
 
@@ -314,11 +314,17 @@ Title: Tito
 
 ### Tito 1:12d "*glotones ociosos»....*" Eran conocidos por ser glotones o del comer, sin embargo esto tenia una connotacion negativa al ser complementado con ociosos, esto es alguien sin que hacer o desempleado.
 
-### Tito 1:13a "*Este testimonio es verdadero....*" A traves de la carta podemos ver que esto no solo era un dicho de Epimanes, esto era una descripcion real de los cretences, se nos dice que es un testimonio confiable.
+### Tito 1:13a "*Este testimonio es verdadero....*" A traves de la carta podemos ver que esto no solo era un dicho de Epimanes, esto era una descripcion real de la cultura cretence, se nos dice que es un testimonio confiable.
 
-### Tito 1:13b "*Por eso, repréndelos severamente...*"  El "por eso " en esta parte del texto es una conclusion que engloba desde el verso 10 al 13. Habia un peligro eminente al asecho A causa de la relidad de la cultura cretence, Tito debia reprenderlos Juan 8:46; 1 Corintios 14:24; Efesios 5:11; 1 Timoteo 5:20; Tito 1:9, 13, 2:15; Judas 22 2 Corintios 13:10
+#### Notamos la similitud del dicho con la conducta de los rebeldes, siembre mentirosos (Enseñan cosas que no deben), malas bestias (Son rebeldes) y glotones osiosos (Enseñan por ganancias deshonestas).
 
-### Tito 1:13c "*para que sean sanos en la fe,...*"
+### Tito 1:13b "*Por eso, repréndelos severamente...*"  El "por eso " en esta parte del texto es una conclusion que engloba desde el verso 10 al 13. Habia un peligro latente al asecho, habian rebeldes enseñando cosas que no deben, Tito debia reprenderlos severamente. Tito 1:9, 13, 2:15 
+
+#### "Reprenderlos" es ELENKJO, quiere decir: Poner al descubierto, Tito debia exponer (sacar a la luz) a estos rebeldes, es interesante la manera, solo podria ser a traves de la verdad. Juan 8:46; 1 Corintios 14:24; Efesios 5:11; 1 Timoteo 5:20; Judas 22
+
+#### "reprendelos severamente" Esta confrontacion con la verdad debia ser de manera abupta, vemos que no tenia caso a tolerancia, esto no indica el trato con la persona sino con respencto a la verdad del evangelio, no hay caso en otorgar tolerancia cuando la verdad esta siendo cambiada, no es algo permisible. 2 Corintios 13:10
+
+### Tito 1:13c "*para que sean sanos en la fe,...*" Esta reprencion 
 
 ### Tito 1:14a "*y no presten atención a mitos judaicos...*"
 
