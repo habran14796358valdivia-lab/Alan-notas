@@ -17,15 +17,15 @@ Title: Navegando el Texto
 
 ### Esto no es algo loco o de otro mundo, la escritura tiene un mensaje contundente y único, es necesario para todo creyente aprender a navegar a través de la escritura.
 
-### A través de este estudio y la practica del mismo podremos ir desarrollando un foco mas claro acerca de lo que dice la escritura. En la escrituras tenemos un ejemplo poderoso. <<*Juan 5:39 Ustedes examinan las Escrituras porque piensan tener en ellas la vida eterna. ¡Y son ellas las que dan testimonio de Mí!*>>
+### A través de este estudio y la practica del mismo podremos ir desarrollando un foco mas claro acerca de lo que dice la escritura. En la escrituras tenemos un ejemplo poderoso. <<*Juan 5:39 Ustedes examinan las Escrituras porque piensan tener en ellas la vida eterna. ¡Y son ellas las que dan testimonio de Mí!*>>.
 
-#### Los fariseos eran estudiosos de las escrituras, a pesar de eso se estaban perdiendo de lo que en realidad la escritura estaba diciendo. Una pregunta, ¿ Y si lo que creo o se de la escritura no es lo que realmente dice?
+#### Los fariseos eran estudiosos de las escrituras, a pesar de eso se estaban perdiendo de lo que en realidad la escritura estaba diciendo. Una pregunta, ¿ Y si lo que creo o se de la escritura no es lo que realmente dice?.
 
-#### Este estudio no tiene como fin desarrollar eruditos biblicos, teologos irrefutables, desarrollar nuevas doctrinas, no se busca imponer una verdad , contraria y simplemente que seamos buenos observadores del texto. Una pregunta ¿Que dice realmente la escritura?
+#### Este estudio no tiene como fin desarrollar eruditos biblicos, teologos irrefutables, desarrollar nuevas doctrinas, no se busca imponer una verdad , contraria y simplemente que seamos buenos observadores del texto. Una pregunta ¿Que dice realmente la escritura?.
 
 #### *Hechos 17:11 Estos eran más nobles que los de Tesalónica, pues recibieron la palabra con toda solicitud, escudriñando diariamente las Escrituras, para ver si estas cosas eran así. *
 
-##### Los animamos a como buenos bereanos a escudriñar la escritura para ver si las cosas son así
+##### Los animamos a como buenos bereanos a escudriñar la escritura para ver si las cosas son así.
 
 #### *2 Timoteo 2:15 Procura con diligencia presentarte a Dios aprobado, como obrero que no tiene de qué avergonzarse, que maneja con precisión la palabra de verdad*
 
@@ -39,11 +39,19 @@ Title: Navegando el Texto
 
 ### Exegesis
 
-#### La exegesis es un procedimiento analitico que extrae informacion del texto, esta parte de los datos del texto para formular  ideas o conclusiones. La exegesis se centra exclusivamente en el texto como fuente de extracion para formar una conclusion.
+#### La exegesis es un procedimiento analitico que extrae informacion del texto, está parte de los datos del texto para formular  ideas o conclusiones. La exegesis se centra exclusivamente en el texto como fuente de extracion para formar una conclusion.
+
+#### Para la exegesis el texto es indispensable y suficiente. Es importante aclarar que en la exegesis no nos acercamos al texto con una idea o una teologia ya formada, la exegesis no es para apoyar ideas preconcebidas.
+
+#### Cuando hacemos exegesis hay limitaciones claras, no es posible decir algo mas a lo que el texto dice, esto es muy certero para evitar tropiezos en manipular la escritura o acomodarla a nuestra teologia.
+
+#### La exegesis esta acomodada para respetar la gramatica y la estructura del lenguage en el  texto, en otras palabras se debe respetrar la estructura del texto, el contexto y la gramtica del mismo.
 
 ### Eisegesis
 
-#### 
+#### La eisegesis es un procedimiento analitico que introduce informacion al texto, esta parte de una idea conjeturada externa al texto y las proyecta sobre el texto. La eisegesis utiliza el texto como soporte de la idea externa.
+
+#### Es importate tener estos conceptos claros
 
 Cual es el objetivo de la observación
 La observación la base para una correcta interpretación 
