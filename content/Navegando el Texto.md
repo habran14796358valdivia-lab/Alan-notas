@@ -31,11 +31,19 @@ Title: Navegando el Texto
 
 ##### Y para aprender a manejar con precisión la palabra de verdad.
 
-## ¿Que es exegesis y eisegesis?
+## ¿Que es exegesis y eiségesis?
+
+#### Entender exegesis y eiségesis nos ayudara a comprender la pregunta del millón ¿Por que nos hemos desviado de lo que en realidad dice la escritura?
+
+#### Estos dos conceptos son utilizados como procedimientos de analisis del texto, asi mismos indican la direcion del analisis y su relacion con el texto.
 
 ### Exegesis
 
+#### La exegesis es un procedimiento analitico que extrae informacion del texto, esta parte de los datos del texto para formular  ideas o conclusiones. La exegesis se centra exclusivamente en el texto como fuente de extracion para formar una conclusion.
+
 ### Eisegesis
+
+#### 
 
 Cual es el objetivo de la observación
 La observación la base para una correcta interpretación 
