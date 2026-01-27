@@ -35,31 +35,37 @@ Title: Navegando el Texto
 
 #### Entender exegesis y eiségesis nos ayudara a comprender la pregunta del millón ¿Por que nos hemos desviado de lo que en realidad dice la escritura?
 
-#### Estos dos conceptos son utilizados como procedimientos de analisis del texto, asi mismos indican la direcion del analisis y su relacion con el texto.
+#### Estos dos conceptos son utilizados como procedimientos de análisis del texto, así mismos indican la dirección del análisis y su relación con el texto.
 
 ### Exegesis
 
-#### La exegesis es un procedimiento analitico que extrae informacion del texto, está parte de los datos del texto para formular  ideas o conclusiones. La exegesis se centra exclusivamente en el texto como fuente de extracion para formar una conclusion.
+#### La exegesis es un procedimiento analítico que extrae información del texto, está parte de los datos del texto para formular  ideas o conclusiones. La exegesis se centra exclusivamente en el texto como fuente de extracción para formar una conclusión.
 
-#### Para la exegesis el texto es indispensable y suficiente. Es importante aclarar que en la exegesis no nos acercamos al texto con una idea o una teologia ya formada, la exegesis no es para apoyar ideas preconcebidas.
+#### Para la exegesis el texto es indispensable y suficiente. Es importante aclarar que en la exegesis no nos acercamos al texto con una idea o una teología ya formada, la exegesis no es para apoyar ideas preconcebidas.
 
-#### Cuando hacemos exegesis hay limitaciones claras, no es posible decir algo mas a lo que el texto dice, esto es muy certero para evitar tropiezos en manipular la escritura o acomodarla a nuestra teologia.
+#### Cuando hacemos exegesis hay limitaciones claras, no es posible decir algo mas a lo que el texto dice, esto es muy certero para evitar tropiezos en manipular la escritura o acomodarla a nuestra teología.
 
-#### La exegesis esta acomodada para respetar la gramatica y la estructura del lenguage en el  texto, en otras palabras se debe respetrar la estructura del texto, el contexto y la gramtica del mismo.
+#### La exegesis esta acomodada para respetar la gramática y la estructura del lenguaje en el  texto, en otras palabras se debe respetar la estructura del texto, el contexto y la gramática del mismo.
 
-### Eisegesis
+### Eiségesis
 
-#### La eisegesis es un procedimiento analitico que introduce informacion al texto, esta parte de una idea conjeturada externa al texto y las proyecta sobre el texto. La eisegesis utiliza el texto como soporte de la idea externa.
+#### La eiségesis es un procedimiento analítico que introduce información al texto, esta parte de una idea conjeturada externa al texto y las proyecta sobre el texto. La eiségesis utiliza el texto como soporte de la idea externa.
 
-#### Es importate tener estos conceptos claros, contrario a la exegesis la eisegesis parte desde una una idea ya formulada y utiliza el texto como herramienta para complementar la idea o sustentarla.
+#### Es importante tener estos conceptos claros, contrario a la exegesis la eiségesis parte desde una una idea ya formulada y utiliza el texto como herramienta para complementar la idea o sustentarla.
 
-#### La esisegesis no marca un limite con el texto este procedimiento utiliza el texto como una herramienta mas, con ella se puede exagerar o sacar de contexto el contenido del texto.
+#### La eiségesis no marca un limite con el texto este procedimiento utiliza el texto como una herramienta mas, con ella se puede exagerar o sacar de contexto el contenido del texto.
 
-## Metodos de estudio
+## Métodos de estudio
+
+#### Hablando en cuanto como estudiar el texto hay varios métodos empleables en esta ocasión veremos dos métodos principales y sus principios analiticos.
 
 ### Estudio Inductivo
 
+#### Este se caracteriza de la construccion de conclusiones a partir de los datos observables del texto
+
 ### Estudio Deductivo
+
+#### Este se caracteriza por la aplicas
 
 Cual es el objetivo de la observación
 La observación la base para una correcta interpretación 
@@ -73,10 +79,10 @@ Las divisiones naturales del texto en donde el escritor inicia y termina una por
 El sujeto emisor 
 El sujeto receptor
 
-## Hermeneutica
+## Hermenéutica
 
 
 
 
 
-## Homiletica
+## Homilética
