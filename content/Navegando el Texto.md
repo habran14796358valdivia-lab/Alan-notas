@@ -57,11 +57,11 @@ Title: Navegando el Texto
 
 ## Métodos de estudio
 
-#### Hablando en cuanto como estudiar el texto hay varios métodos empleables en esta ocasión veremos dos métodos principales y sus principios analiticos.
+#### Hablando en cuanto como estudiar el texto hay varios métodos empleables en esta ocasión veremos dos métodos principales y sus principios analíticos.
 
 ### Estudio Inductivo
 
-#### Este se caracteriza de la construccion de conclusiones a partir de los datos observables del texto, este metodo parte de la observaciones especificas del texto con lo cual formula las ideas generales.
+#### Este se caracteriza de la construcción de conclusiones a partir de los datos observables del texto, este método parte de la observaciones especificas del texto con lo cual formula las ideas generales.
 
 #### EL estudio inductivo tiene un flujo ascendente dentro de la linea coherente de estudio  parte de los datos observables del texto y construye bloque a bloque una vista general del tema.
 ##### Requiere consistencia interna entre observaciones.
