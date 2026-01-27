@@ -51,7 +51,15 @@ Title: Navegando el Texto
 
 #### La eisegesis es un procedimiento analitico que introduce informacion al texto, esta parte de una idea conjeturada externa al texto y las proyecta sobre el texto. La eisegesis utiliza el texto como soporte de la idea externa.
 
-#### Es importate tener estos conceptos claros
+#### Es importate tener estos conceptos claros, contrario a la exegesis la eisegesis parte desde una una idea ya formulada y utiliza el texto como herramienta para complementar la idea o sustentarla.
+
+#### La esisegesis no marca un limite con el texto este procedimiento utiliza el texto como una herramienta mas, con ella se puede exagerar o sacar de contexto el contenido del texto.
+
+## Metodos de estudio
+
+### Estudio Inductivo
+
+### Estudio Deductivo
 
 Cual es el objetivo de la observación
 La observación la base para una correcta interpretación 
@@ -69,8 +77,6 @@ El sujeto receptor
 
 
 
-## Metodos de estudio
-### Estudio Inductivo
-### Estudio Deductivo
+
 
 ## Homiletica
