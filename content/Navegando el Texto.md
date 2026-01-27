@@ -61,11 +61,21 @@ Title: Navegando el Texto
 
 ### Estudio Inductivo
 
-#### Este se caracteriza de la construccion de conclusiones a partir de los datos observables del texto
+#### Este se caracteriza de la construccion de conclusiones a partir de los datos observables del texto, este metodo parte de la observaciones especificas del texto con lo cual formula las ideas generales.
+
+#### EL estudio inductivo tiene un flujo ascendente dentro de la linea coherente de estudio  parte de los datos observables del texto y construye bloque a bloque una vista general del tema.
+##### Requiere consistencia interna entre observaciones.
+##### Las conclusiones pueden modificarse si los datos cambian.
+##### El proceso es abierto al ajuste.
 
 ### Estudio Deductivo
 
-#### Este se caracteriza por la aplicas
+#### Este se caracteriza por la aplicacion de una idea general a casos particulares del texto, este  metodo requiere ya tener una idea generada con la cual evalua los datos del texto.
+
+#### El estudio deductivo tiene un flujo descendente dentro de la linea coherente de estudio parte de una idea general descendiendo al texto y analiza los datos a la luz de la idea inicial.
+##### Requiere consistencia lógica con el principio inicial.
+##### Las conclusiones se revisan si el principio cambia.
+##### El proceso es cerrado por el marco inicial.
 
 Cual es el objetivo de la observación
 La observación la base para una correcta interpretación 
