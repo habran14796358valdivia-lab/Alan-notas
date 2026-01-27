@@ -70,15 +70,42 @@ Title: Navegando el Texto
 
 ### Etapas del estudio inductivo
 
-#### Observación.
+#### Observación ¿QUE DICE EL TEXTO?
+
+##### Es el registo sistematico de datos explisitos del texto, ¿Cual es el objetivo de la observación?. La observacion es lo que nos ayudara a determinar que habla el texto.
+
+##### En ningún debemos omitir o menospreciar la observación del texto bíblico, ya que se convertirá en la bases de todo lo que queramos desarrollar, aunque nos parezca tedioso una buena observación del texto simplificará el trabajo posterior.
+
+##### La observación del texto compone un 85 por ciento de todo el trabajo. Durante este proceso de observación es muy bueno hacernos preguntas que nos ayudarán durante este estudio.
+
+##### Preguntas.
+###### ¿Quien escribe?
+###### ¿Quien o quienes son los receptores?
+###### ¿En lugar se desarrolla el texto?
+###### ¿En que circunsatancias se escribe?
+###### ¿
+###### ¿
+###### ¿
+###### ¿
+###### ¿
+###### ¿
+###### ¿
+###### ¿
+
+Mediante la observación deberemos ser capaces de identificar el panorama general que trata toda la carta o libro
+Las divisiones naturales del texto en donde el escritor inicia y termina una porción adjunta en el texto
+El sujeto emisor 
+El sujeto receptor
+
+##### La observación la base para una correcta interpretación 
 
 #### Interpretación.
 
-#### Conclución o Aplicación.
+#### Conclusión o Aplicación.
 
 ### Estudio Deductivo
 
-#### Este se caracteriza por la aplicacion de una idea general a casos particulares del texto, este  metodo requiere ya tener una idea generada con la cual evalua los datos del texto.
+#### Este se caracteriza por la aplicación de una idea general a casos particulares del texto, este  método requiere ya tener una idea generada con la cual evalúa los datos del texto.
 
 #### El estudio deductivo tiene un flujo descendente dentro de la linea coherente de estudio parte de una idea general descendiendo al texto y analiza los datos a la luz de la idea inicial.
 ##### Requiere consistencia lógica con el principio inicial.
@@ -107,17 +134,7 @@ Title: Navegando el Texto
 
 
 
-Cual es el objetivo de la observación
-La observación la base para una correcta interpretación 
-En ningún debemos omitir o menospreciar la observación del texto bíblico, ya que se convertirá en la bases de todo lo que queramos desarrollar, aunque nos parezca tedioso un buena observación del texto simplificará el trabajo posterior 
-La observación del texto compone un 85 por ciento de todo el trabajo
-Durante este proceso de observación es muy bueno hacernos preguntas que nos ayudarán durante este estudio.
-Preguntas.
 
-Mediante la observación deberemos ser capaces de identificar el panorama general que trata toda la carta o libro
-Las divisiones naturales del texto en donde el escritor inicia y termina una porción adjunta en el texto
-El sujeto emisor 
-El sujeto receptor
 
 ## Hermenéutica
 
