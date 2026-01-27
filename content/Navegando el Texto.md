@@ -76,6 +76,21 @@ Title: Navegando el Texto
 
 ##### En ningún debemos omitir o menospreciar la observación del texto bíblico, ya que se convertirá en la bases de todo lo que queramos desarrollar, aunque nos parezca tedioso una buena observación del texto simplificará el trabajo posterior.
 
+##### La observacion consta de una regla fundamental "la lectura" a medida que se lee repetidamente el texto iremos teniendo aun mas afinidad para observar el texto biblico.
+
+##### Algunas pautas o herramientas para la observacion es la lectura del texto biblico en distintas versiones (RVR09, RVR60, RVR20, NBLA, BTX4, NET, JSE, DHHD).
+
+###### De igual manera es de ayuda realizar la lectura del texto en limpio (sin la numeracion de versiculos, sin la numeracion de capitulos, sin titulos)
+
+###### Tambien debemos observar los manunscritos originales del texto biblico, estos podran traer claridad en cuanto el signifigado de las palabras y por que fueron traducidas de la manera en que las encontramos.
+
+##### Durante la fase de observacion tambien podremos determinar el genero literiaro del texto. Exsiten 5 generos literiarios conocidos:
+###### Historico. 
+###### Narrativo.
+###### Poetico.
+###### Didactico.
+###### Profetico
+
 ##### La observación del texto compone un 85 por ciento de todo el trabajo. Durante este proceso de observación es muy bueno hacernos preguntas que nos ayudarán durante este estudio.
 
 ##### Preguntas.
@@ -83,11 +98,11 @@ Title: Navegando el Texto
 ###### ¿Quien o quienes son los receptores?
 ###### ¿En lugar se desarrolla el texto?
 ###### ¿En que circunsatancias se escribe?
-###### ¿
-###### ¿
-###### ¿
-###### ¿
-###### ¿
+###### ¿Cual es el mensaje global alrededor del texto?
+###### ¿Como se divide el texto?
+###### ¿De que genero(s) literario(s) consta el texto?
+###### ¿De habla el texto en secciones especificas?
+###### ¿ 
 ###### ¿
 ###### ¿
 ###### ¿
