@@ -6,18 +6,18 @@ Title: Navegando el Texto
 
 ## Introducción
 
-### Este material tiene el propósito de equiparnos de herramientas técnicas con las cuales aprenderemos a navegar a través de la escritura.
+#### Este material tiene el propósito de equiparnos de herramientas técnicas con las cuales aprenderemos a navegar a través de la escritura.
 
-### Antes de comenzar debemos hacernos unas cuantas preguntas:
-#### ¿Cual es la importancia de estudiar la escritura?
-#### ¿Por que debemos estudiar la escritura?
-#### ¿Como estudiar la escritura?
+#### Antes de comenzar debemos hacernos unas cuantas preguntas:
+##### ¿Cual es la importancia de estudiar la escritura?
+##### ¿Por que debemos estudiar la escritura?
+##### ¿Como estudiar la escritura?
 
-### En un tiempo en que la opinión y subjetividad predominan sobre el texto bíblico, en donde la verdad del texto a sido sepultada entre la mentira y el engaño, necesitamos redescubrir el arte del estudio del texto bíblico.
+#### En un tiempo en que la opinión y subjetividad predominan sobre el texto bíblico, en donde la verdad del texto a sido sepultada entre la mentira y el engaño, necesitamos redescubrir el arte del estudio del texto bíblico.
 
-### Esto no es algo loco o de otro mundo, la escritura tiene un mensaje contundente y único, es necesario para todo creyente aprender a navegar a través de la escritura.
+#### Esto no es algo loco o de otro mundo, la escritura tiene un mensaje contundente y único, es necesario para todo creyente aprender a navegar a través de la escritura.
 
-### A través de este estudio y la practica del mismo podremos ir desarrollando un foco mas claro acerca de lo que dice la escritura. En la escrituras tenemos un ejemplo poderoso. <<*Juan 5:39 Ustedes examinan las Escrituras porque piensan tener en ellas la vida eterna. ¡Y son ellas las que dan testimonio de Mí!*>>.
+#### A través de este estudio y la practica del mismo podremos ir desarrollando un foco mas claro acerca de lo que dice la escritura. En la escrituras tenemos un ejemplo poderoso. <<*Juan 5:39 Ustedes examinan las Escrituras porque piensan tener en ellas la vida eterna. ¡Y son ellas las que dan testimonio de Mí!*>>.
 
 #### Los fariseos eran estudiosos de las escrituras, a pesar de eso se estaban perdiendo de lo que en realidad la escritura estaba diciendo. Una pregunta, ¿ Y si lo que creo o se de la escritura no es lo que realmente dice?.
 
@@ -68,6 +68,14 @@ Title: Navegando el Texto
 ##### Las conclusiones pueden modificarse si los datos cambian.
 ##### El proceso es abierto al ajuste.
 
+### Etapas del estudio inductivo
+
+#### Observación.
+
+#### Interpretación.
+
+#### Conclución o Aplicación.
+
 ### Estudio Deductivo
 
 #### Este se caracteriza por la aplicacion de una idea general a casos particulares del texto, este  metodo requiere ya tener una idea generada con la cual evalua los datos del texto.
@@ -76,6 +84,28 @@ Title: Navegando el Texto
 ##### Requiere consistencia lógica con el principio inicial.
 ##### Las conclusiones se revisan si el principio cambia.
 ##### El proceso es cerrado por el marco inicial.
+
+### Etapas del estudio deductivo.
+
+#### Formulación del principio general.
+
+#### Selección del texto.
+
+#### Observación dirigida.
+
+#### Aplicación del principio al texto.
+
+#### Conclusión deductiva
+
+
+### Resultado producido
+| Aspecto          | Inductivo           | Deductivo            | 
+| ---------------- | ------------------- | -------------------- | 
+|Tipo de resultado | Generalización      | Aplicación           |
+|Dependencia       | Datos               | Principio            |
+|Alcance           | Limitado al material| Definido por el marco|
+
+
 
 Cual es el objetivo de la observación
 La observación la base para una correcta interpretación 
