@@ -70,61 +70,86 @@ Title: Navegando el Texto
 
 ### Etapas del estudio inductivo
 
-#### Observación ¿QUE DICE EL TEXTO?
+### Observación ¿QUE DICE EL TEXTO?
 
-##### Es el registo sistematico de datos explisitos del texto, ¿Cual es el objetivo de la observación?. La observacion es lo que nos ayudara a determinar que habla el texto.
+#### Es el registo sistematico de datos explisitos del texto, ¿Cual es el objetivo de la observación?. La observacion es lo que nos ayudara a determinar que habla el texto.
 
-##### En ningún debemos omitir o menospreciar la observación del texto bíblico, ya que se convertirá en la bases de todo lo que queramos desarrollar, aunque nos parezca tedioso una buena observación del texto simplificará el trabajo posterior.
+#### En ningún debemos omitir o menospreciar la observación del texto bíblico, ya que se convertirá en la bases de todo lo que queramos desarrollar, aunque nos parezca tedioso una buena observación del texto simplificará el trabajo posterior.
 
-##### La observacion consta de una regla fundamental "la lectura" a medida que se lee repetidamente el texto iremos teniendo aun mas afinidad para observar el texto biblico.
+#### La observación consta de una regla fundamental "la lectura" a medida que se lee repetidamente el texto iremos teniendo aun mas afinidad para observar el texto bíblico.
 
-##### Algunas pautas o herramientas para la observacion es la lectura del texto biblico en distintas versiones (RVR09, RVR60, RVR20, NBLA, BTX4, NET, JSE, DHHD).
+#### Algunas pautas o herramientas para la observación es la lectura del texto bíblico en distintas versiones (RVR09, RVR60, RVR20, NBLA, BTX4, NET, JSE, DHHD).
 
-###### De igual manera es de ayuda realizar la lectura del texto en limpio (sin la numeracion de versiculos, sin la numeracion de capitulos, sin titulos)
+#### De igual manera es de ayuda realizar la lectura del texto en limpio (sin la numeración de versículos, sin la numeración de capítulos, sin títulos)
 
-###### Tambien debemos observar los manunscritos originales del texto biblico, estos podran traer claridad en cuanto el signifigado de las palabras y por que fueron traducidas de la manera en que las encontramos.
+#### También debemos observar los manuscritos originales del texto bíblico, estos podrán traer claridad en cuanto el significado de las palabras y por que fueron traducidas de la manera en que las encontramos.
 
-##### Durante la fase de observacion tambien podremos determinar el genero literiaro del texto. Exsiten 5 generos literiarios conocidos:
+#### Durante la fase de observación también podremos determinar el genero literario del texto. Exciten 5 géneros literarios conocidos:
 
-###### Narrativo. 
+##### Narrativo. 
+###### El genero narrativo contiene los hechos históricos y una continuidad histórica.
 
-####### El genero narrativo contiene los hechos historicos, tiene una continuidad historica.
+##### Poético.
+###### El genero poético contiene no necesariamente tiene una continuidad, es utilizado para expresar ideas, sentimiento, sabiduría, comúnmente utiliza figuras o simbología para expresarse.
 
-###### Poetico.
+##### Didáctico. 
+###### Este genero se caracteriza por contener instrucciones, mandamientos, suele ser mas directo y claro con la audiencia para enfatizar lo dicho.
 
-####### El genero poetico contiene no necesariamnete tiene una continuidad, es utilazado para expresar ideas, sentimiento, sabiduria, comunmente utiliza figuras o simbologia para expresarse.
+##### Profético.
+###### Se enfoca en en un emisor anunciando eventos aun futuros al momento del anuncio de la profecía, en este mismo hecho mucha parte de la escritura tiene profecía, mucha de ella ya cumplida y otra parte aun por cumplirse.
 
-###### Didactico. 
+#### La observación del texto compone un 85 por ciento de todo el trabajo. Durante este proceso de observación es muy bueno hacernos preguntas que nos ayudarán durante este estudio.
 
-####### Este genero se carecteriza por contener instrucciones, mandamientos, suele ser mas directo y claro con la audiencia para enfatizar lo dicho.
-
-###### Profetico.
-
-####### Se enfoca en en un emisor anunciando eventos aun futuros al momento del anuncio de la profecia, en este mismo hecho mucga parte de la escritura tiene profecia, mucha de ella ya cumplida y otra parte aun por cumplirse.
-
-##### La observación del texto compone un 85 por ciento de todo el trabajo. Durante este proceso de observación es muy bueno hacernos preguntas que nos ayudarán durante este estudio.
-
-##### Preguntas.
-###### ¿Quien escribe?
-###### ¿Quien o quienes son los receptores?
-###### ¿En lugar se desarrolla el texto?
-###### ¿En que circunsatancias se escribe?
-###### ¿Cual es el mensaje global alrededor del texto?
-###### ¿Como se divide el texto?
-###### ¿De que genero(s) literario(s) consta el texto?
-###### ¿De habla el texto en secciones especificas?
-###### ¿ 
-###### ¿
-###### ¿
-###### ¿
+#### Preguntas.
+##### ¿Quien escribe?
+##### ¿Quien o quienes son los receptores?
+##### ¿En lugar se desarrolla el texto?
+##### ¿En que circunstancias se escribe?
+##### ¿Cual es el mensaje global alrededor del texto?
+##### ¿Como se divide el texto?
+##### ¿De que genero(s) literario(s) consta el texto?
+##### ¿De que habla el texto en secciones especificas?
+##### ¿ 
+##### ¿
+##### ¿
+##### ¿
 
 #### Mediante la observación deberemos ser capaces de identificar el panorama general que trata toda la carta o libro.
 ##### Las divisiones naturales del texto en donde el escritor inicia y termina una porción adjunta en el texto.
 ##### El sujeto emisor y el sujeto receptor
 
-##### La observación la base para una correcta interpretación 
+#### La observación es la base de una correcta interpretacion, entre mas tiempo pasemos en la lectura del texto la observacion sera mas especifica y por ende la interpreetacion no presentara ninguna dificultal.
 
-#### Interpretación.
+#### Al saber, ¿Que dice el texto? sera mas sencillo determinar ¿Que significa el texto?
+
+### Interpretación. ¿Que significa el texto?
+
+#### En la interpretación respondemos la pregunta ¿Que significa el texto? esta etapa es muy importante ya que representa la conclusión de nuestra observación y solo constituye un 10 por ciento del trabajo.
+
+#### Algunos consejos.
+##### Si tu observacion es floja facilmente te equivocaras en la interpretacion.
+##### Si aun tienes vacios en tu observacion es preferible volver a iniciar, no olvidemos que la intepracion son conclusiones logicas evidentes por texto
+##### Evita que ideas relacionadas al texto interfieran en la interpretación
+
+#### La interpretación es una parte muy delicada en un estudio del texto bíblico, en esta etapa estamos presentando el significado del texto, no estamos intentando descubrir cosas ocultas del texto.
+
+#### La interpretación tiene un limite marcado no podemos hacerle decir mas de lo que la observación a delimitado, además es importante tener en cuenta que nuestra interpretación no puede contradecir las verdades escritas del texto bíblico.
+
+#### ¿Que significa lo anterior? Pues la escritura interpreta la escritura, si nuestra interpretación esta contradiciendo explicítame una verdad escrita o descartando una, tal vez deberíamos volver a revisarlo.
+
+#### Un peligro eminente en la interpretación es distorsionar el texto bíblico para que encaje con nuestras ideas del texto o rebuscar significados mas allá de lo que el texto permite.
+
+### Métodos de interpretación.
+
+#### Interpretación literal.
+##### La interpretación literal se basa en un enfoque literal del texto, ¿Que quiere decir esto? pues que el texto es lo que dice ser.
+##### Suena confuso pero simplemente no podemos sacar al texto de su contexto, no podemos imaginas mas alla de lo que dice ser. Este enfoque acepta las expresiones naturales del texto como ser que el autos este hablando de hechos históricos narrativos, no podemos decir que son simbolismos a menos que explícitamente el texto lo diga.
+##### Así también cuanto el texto se expresa abiertamente en simbolismos o figuras, las tomamos como son, figuras o símbolos. Este es un enfoque literal, nos apegamos explícitamente a la contrucion del texto en cuanto a gramatica y contexto.
+
+#### Interpretación alegórica.
+##### La interpretación alegórica proviene de un enfoque alegórico, ¿Que significa? pues que el texto puede ser mucho mas de lo que dice ser.
+##### Este enfoque busca y rebusca un significa mas allá de lo que el texto dice, este enfoque tiene la libertar de distorsionar el texto en bases a la idea formulada.
+##### Evidentemente este enfoque sobrepasa la permisión del texto agregando figuras o símbolos en todo el texto esto es muy peligro especialmente en profecía ya que nunca nada es algo y puede ser todo. La alegoría jamás llega a la verdad mas bien divaga en posibilidades.
 
 #### Conclusión o Aplicación.
 
@@ -150,16 +175,12 @@ Title: Navegando el Texto
 #### Conclusión deductiva
 
 
-### Resultado producido
+### Resultado producido 
 | Aspecto          | Inductivo           | Deductivo            | 
 | ---------------- | ------------------- | -------------------- | 
 |Tipo de resultado | Generalización      | Aplicación           |
 |Dependencia       | Datos               | Principio            |
 |Alcance           | Limitado al material| Definido por el marco|
-
-
-
-
 
 ## Hermenéutica
 
