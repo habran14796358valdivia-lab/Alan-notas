@@ -85,11 +85,22 @@ Title: Navegando el Texto
 ###### Tambien debemos observar los manunscritos originales del texto biblico, estos podran traer claridad en cuanto el signifigado de las palabras y por que fueron traducidas de la manera en que las encontramos.
 
 ##### Durante la fase de observacion tambien podremos determinar el genero literiaro del texto. Exsiten 5 generos literiarios conocidos:
-###### Historico. 
-###### Narrativo.
+
+###### Narrativo. 
+
+####### El genero narrativo contiene los hechos historicos, tiene una continuidad historica.
+
 ###### Poetico.
-###### Didactico.
-###### Profetico
+
+####### El genero poetico contiene no necesariamnete tiene una continuidad, es utilazado para expresar ideas, sentimiento, sabiduria, comunmente utiliza figuras o simbologia para expresarse.
+
+###### Didactico. 
+
+####### Este genero se carecteriza por contener instrucciones, mandamientos, suele ser mas directo y claro con la audiencia para enfatizar lo dicho.
+
+###### Profetico.
+
+####### Se enfoca en en un emisor anunciando eventos aun futuros al momento del anuncio de la profecia, en este mismo hecho mucga parte de la escritura tiene profecia, mucha de ella ya cumplida y otra parte aun por cumplirse.
 
 ##### La observación del texto compone un 85 por ciento de todo el trabajo. Durante este proceso de observación es muy bueno hacernos preguntas que nos ayudarán durante este estudio.
 
@@ -107,10 +118,9 @@ Title: Navegando el Texto
 ###### ¿
 ###### ¿
 
-Mediante la observación deberemos ser capaces de identificar el panorama general que trata toda la carta o libro
-Las divisiones naturales del texto en donde el escritor inicia y termina una porción adjunta en el texto
-El sujeto emisor 
-El sujeto receptor
+#### Mediante la observación deberemos ser capaces de identificar el panorama general que trata toda la carta o libro.
+##### Las divisiones naturales del texto en donde el escritor inicia y termina una porción adjunta en el texto.
+##### El sujeto emisor y el sujeto receptor
 
 ##### La observación la base para una correcta interpretación 
 
