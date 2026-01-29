@@ -189,3 +189,16 @@ Title: Navegando el Texto
 
 
 ## Homilética
+
+
+
+
+
+
+
+## Ejercicios de observación.
+
+### Juan 3: 16-18 *Porque de tal manera amó Dios al mundo , que dio a Su Hijo unigénito , para que todo aquel que cree en Él, no se pierda, sino que tenga vida eterna .  Porque Dios no envióa Su Hijo al mundo para juzgar al mundo, sino para que el mundo sea salvo por Él. El que cree en Él no es condenado; pero el que no cree, ya ha sido condenado, porque no ha creído en el nombre del unigénito Hijo de Dios.*
+
+
+### Apocalipsis 3: 14-20 *Escribe al ángel de la iglesia en Laodicea :“El Amén , el Testigo fiel y verdadero , el Principio de la creación de Dios , dice esto: Yo conozco tus obras, que ni eres frío ni caliente. ¡Ojalá fueras frío o caliente!. Así, puesto que eres tibio, y no frío ni caliente, te vomitaré de Mi boca. Porque dices: “Soy rico, me he enriquecido y de nada tengo necesidad”. No sabes que eres un miserable y digno de lástima, y pobre, ciego y desnudo. Te aconsejo que de Mí compresoro refinado por fuegopara que te hagas rico, y vestiduras blancaspara que te vistas y no se manifieste la vergüenza de tu desnudez, y colirio para ungir tus ojos y que puedas ver.’Yo reprendo y disciplino a todos los que amo . Sé, pues, celoso y arrepiéntete . Yo estoy a la puertay llamo; si alguien oye Mi voz y abre la puerta, entraré a él, y cenaré con él y él conmigo.
