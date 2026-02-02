@@ -109,10 +109,16 @@ Title: Navegando el Texto
 ##### ¿Como se divide el texto?
 ##### ¿De que genero(s) literario(s) consta el texto?
 ##### ¿De que habla el texto en secciones especificas?
-##### ¿ 
-##### ¿
-##### ¿
-##### ¿
+##### ¿ Quién habla y a quién?
+##### ¿Qué sucede?
+##### ¿Cuándo y dónde?
+##### ¿Qué palabras se repiten?
+##### ¿Qué conectores aparecen? (pero, porque, para que, si…)
+##### ¿Qué mandatos hay?
+##### ¿Qué acciones y resultados se ven?
+##### Subrayar repeticiones
+##### Marcar sujeto / verbo / complemento
+##### Identificar estructura (condición → resultado)
 
 #### Mediante la observación deberemos ser capaces de identificar el panorama general que trata toda la carta o libro.
 ##### Las divisiones naturales del texto en donde el escritor inicia y termina una porción adjunta en el texto.
@@ -151,7 +157,27 @@ Title: Navegando el Texto
 ##### Este enfoque busca y rebusca un significa mas allá de lo que el texto dice, este enfoque tiene la libertar de distorsionar el texto en bases a la idea formulada.
 ##### Evidentemente este enfoque sobrepasa la permisión del texto agregando figuras o símbolos en todo el texto esto es muy peligro especialmente en profecía ya que nunca nada es algo y puede ser todo. La alegoría jamás llega a la verdad mas bien divaga en posibilidades.
 
-#### Conclusión o Aplicación.
+### Preaguntas de ayuda
+
+#### ¿Cuál es la idea principal?
+#### ¿Qué significa esta palabra aquí?
+#### ¿Qué relación hay entre las frases?
+#### ¿Cuál es el argumento del autor?
+#### ¿Qué problema responde el pasaje?
+#### Regla: La interpretación correcta depende de una observación correcta.
+
+### Conclusión o Aplicación. ¿Como aplico el texto ?
+
+#### La aplicacion del texto es de significado para nosotros a nivel personal y colectivo al hacer una correcta observacion ¿Que dice? y una correcta interpretacion ¿Que significa? por ende se obtendra una correcta aplicacion del texto.
+
+#### ADVERTENCIA 
+
+#### Qué NO es aplicación.
+##### ❌ No es “lo que yo siento”
+##### ❌ No es inventar un mensaje nuevo
+##### ❌ No es usar el versículo como frase motivacional fuera de contexto
+##### ❌ No es escoger solo lo que me gusta
+##### ❌ No es generalidades sin acción (“debo ser mejor”)
 
 ### Estudio Deductivo
 
