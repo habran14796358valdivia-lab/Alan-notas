@@ -21,7 +21,7 @@ Title: Navegando el Texto
 
 #### Los fariseos eran estudiosos de las escrituras, a pesar de eso se estaban perdiendo de lo que en realidad la escritura estaba diciendo. Una pregunta, ¿ Y si lo que creo o se de la escritura no es lo que realmente dice?.
 
-#### Este estudio no tiene como fin desarrollar eruditos biblicos, teologos irrefutables, desarrollar nuevas doctrinas, no se busca imponer una verdad , contraria y simplemente que seamos buenos observadores del texto. Una pregunta ¿Que dice realmente la escritura?.
+#### Este estudio no tiene como fin desarrollar eruditos biblicos, teologos irrefutables, desarrollar nuevas doctrinas, no se busca imponer una verdad, contraria y simplemente que seamos buenos observadores del texto. Una pregunta ¿Que dice realmente la escritura?.
 
 #### *Hechos 17:11 Estos eran más nobles que los de Tesalónica, pues recibieron la palabra con toda solicitud, escudriñando diariamente las Escrituras, para ver si estas cosas eran así. *
 
@@ -297,7 +297,7 @@ Title: Navegando el Texto
 
 ### Ayuda en la observacion.
 
-#### Lea con detenimiento el texto, una, dos , tres, etc, veces.
+#### Lea con detenimiento el texto, una, dos, tres, etc, veces.
 
 #### Lea el texto en otras versiones .
 
@@ -341,3 +341,24 @@ Title: Navegando el Texto
 ### Jeremías 17:5 *Así dice el Señor:«Maldito el hombre que en el hombre confía, Y hace de la carne su fortaleza, Y del Señor se aparta su corazón.*
 
 ### Jeremías 17:9 *»Más engañoso que todo es el corazón, Y sin remedio; ¿Quién lo comprenderá?*
+
+### Ezequiel 18:20 *El alma que peque, esa morirá. El hijo no cargará con la iniquidad del padre, ni el padre cargará con la iniquidad del hijo. La justicia del justo será sobre él y la maldad del impío será sobre él.*
+
+### Isaias 1:18 *»Vengan ahora, y razonemos», Dice el Señor, «Aunque sus pecados sean como la grana, Como la nieve serán emblanquecidos. Aunque sean rojos como el carmesí, Como blanca lana quedarán.*
+
+### 1 Samuel 15:22 *Y Samuel dijo: «¿Se complace el Señor tanto En holocaustos y sacrificios Como en la obediencia a la voz del Señor? Entiende, el obedecer es mejor que un sacrificio, Y el prestar atención, que la grasa de los carneros.*
+
+### Galatas 4:30 *Pero, ¿qué dice la Escritura? «Echa fuera a la sierva y a su hijo, Pues el hijo de la sierva no será heredero con el hijo de la libre».*
+
+
+### Ahora ustedes deberan desarrollar un manual de estudio propio utilizando todo lo aprendido, el texto base sera 2 Juan. 
+
+### 2 Juan - NBLA
+
+#### El anciano a la señora escogida y a sus hijos, a quienes amo en verdad, y no solo yo, sino también todos los que conocen la verdad, 2 a causa de la verdad que permanece en nosotros y que estará con nosotros para siempre: 3 La gracia, la misericordia, y la paz estarán con nosotros, de Dios el Padre y de Jesucristo, Hijo del Padre, en verdad y amor. 4 Mucho me alegré al encontrar algunos de tus hijos andando en la verdad, tal como hemos recibido mandamiento del Padre. 5 Ahora te ruego, señora, no como escribiéndote un nuevo mandamiento, sino el que hemos tenido desde el principio, que nos amemos unos a otros. 6 Y este es el amor[a]: que andemos conforme a Sus mandamientos. Este es el mandamiento tal como lo han oído desde el principio, para que ustedes anden en él. 7 Pues muchos engañadores han salido al mundo que no confiesan que Jesucristo ha venido[b] en carne. Ese es el engañador y el anticristo. 8 Tengan ustedes cuidado para que no pierdan lo que hemos[c] logrado, sino que reciban abundante recompensa. 9 Todo el que se desvía y no permanece en la enseñanza[d] de Cristo, no tiene a Dios. El que permanece en la enseñanza tiene tanto al Padre como al Hijo. 10 Si alguien viene a ustedes y no trae esta enseñanza[e], no lo reciban en casa, ni lo saluden, 11 pues el que lo saluda participa en sus malas obras. 12 Aunque tengo muchas cosas que escribirles, no quiero hacerlo con papel y tinta, sino que espero ir a verlos y hablar con ustedes cara a cara[f], para que su[g] gozo sea completo. 13 Te saludan los hijos de tu hermana escogida.
+
+### 2 Juan - RVR 1960
+
+####  El anciano a la señora escogida y a sus hijos, a quienes amo en verdad, y no solo yo, sino también todos los que conocen la verdad, 2 a causa de la verdad que permanece en nosotros y que estará con nosotros para siempre: 3 La gracia, la misericordia, y la paz estarán con nosotros, de Dios el Padre y de Jesucristo, Hijo del Padre, en verdad y amor. 4 Mucho me alegré al encontrar algunos de tus hijos andando en la verdad, tal como hemos recibido mandamiento del Padre. 5 Ahora te ruego, señora, no como escribiéndote un nuevo mandamiento, sino el que hemos tenido desde el principio, que nos amemos unos a otros. 6 Y este es el amor[a]: que andemos conforme a Sus mandamientos. Este es el mandamiento tal como lo han oído desde el principio, para que ustedes anden en él. 7 Pues muchos engañadores han salido al mundo que no confiesan que Jesucristo ha venido[b] en carne. Ese es el engañador y el anticristo. 8 Tengan ustedes cuidado para que no pierdan lo que hemos[c] logrado, sino que reciban abundante recompensa. 9 Todo el que se desvía y no permanece en la enseñanza[d] de Cristo, no tiene a Dios. El que permanece en la enseñanza tiene tanto al Padre como al Hijo. 10 Si alguien viene a ustedes y no trae esta enseñanza[e], no lo reciban en casa, ni lo saluden, 11 pues el que lo saluda participa en sus malas obras. 12 Aunque tengo muchas cosas que escribirles, no quiero hacerlo con papel y tinta, sino que espero ir a verlos y hablar con ustedes cara a cara[f], para que su[g] gozo sea completo. 13 Te saludan los hijos de tu hermana escogida.
+
+### 2 Juan -
