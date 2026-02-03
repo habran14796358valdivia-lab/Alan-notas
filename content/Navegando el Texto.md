@@ -264,6 +264,19 @@ Title: Navegando el Texto
 ##### ¿Quien esta hablando?
 ##### ¿A quien se dirige?
 ##### ¿En que lugar ocurre?
+##### ¿Que genero literario es?
+##### ¿En que tiempo esta ubicado?
+
+##### Observación 1
+##### Observación 2
+##### Observación 3
+##### Observación 4
+##### Observación 5
+##### Observación 6
+##### Observación 7
+##### Observación 8
+##### Observación 9
+##### Observación 10
 
 ### Jeremías 29:10-14 *Pues así dice el Señor: “Cuando se le hayan cumplido a Babilonia setenta años, Yo los visitaré y cumpliré Mi buena palabra de hacerlos volver a este lugar. Porque Yo sé los planes que tengo[d] para ustedes”, declara el Señor, “planes de bienestar y no de calamidad, para darles un futuro y una esperanza. Ustedes me invocarán y vendrán a rogarme, y Yo los escucharé. Me buscarán y me encontrarán, cuando me busquen de todo corazón. Me dejaré hallar de ustedes”, declara el Señor, “y restauraré su bienestar[e] y los reuniré de todas las naciones y de todos los lugares adonde los expulsé”, declara el Señor, “y los traeré de nuevo al lugar desde donde los envié al destierro”.* NBLA
 
@@ -278,6 +291,19 @@ Title: Navegando el Texto
 ##### ¿Quien esta hablando?
 ##### ¿A quien se dirige?
 ##### ¿En que lugar ocurre?
+##### ¿Que genero literario es?
+##### ¿En que tiempo esta ubicado?
+
+##### Observación 1
+##### Observación 2
+##### Observación 3
+##### Observación 4
+##### Observación 5
+##### Observación 6
+##### Observación 7
+##### Observación 8
+##### Observación 9
+##### Observación 10
 
 ### Josué 1: 5-9 * Nadie te podrá hacer frente en todos los días de tu vida. Así como estuve con Moisés, estaré contigo. No te dejaré ni te abandonaré. »Sé fuerte y valiente, porque tú darás a este pueblo posesión de la tierra que juré a sus padres que les daría.  Solamente sé fuerte y muy valiente. Cuídate[d] de cumplir toda la ley que Moisés Mi siervo te mandó. No te desvíes de ella ni a la derecha ni a la izquierda, para que tengas éxito[e] dondequiera que vayas. »Este libro de la ley no se apartará de tu boca, sino que meditarás en él día y noche, para que cuides[f] de hacer todo lo que en él está escrito. Porque entonces harás prosperar tu camino y tendrás éxito. ¿No te lo he ordenado Yo? ¡Sé fuerte y valiente! No temas ni te acobardes, porque el Señor tu Dios estará contigo dondequiera que vayas». NBLA
 
@@ -292,6 +318,19 @@ Title: Navegando el Texto
 ##### ¿Quien esta hablando?
 ##### ¿A quien se dirige?
 ##### ¿En que lugar ocurre?
+##### ¿Que genero literario es?
+##### ¿En que tiempo esta ubicado?
+
+##### Observación 1
+##### Observación 2
+##### Observación 3
+##### Observación 4
+##### Observación 5
+##### Observación 6
+##### Observación 7
+##### Observación 8
+##### Observación 9
+##### Observación 10
 
 ### Salmos 1:1-6 *¡Cuán bienaventurado es el hombre que no anda en el consejo de los impíos,Ni se detiene en el camino de los pecadores, Ni se sienta en la silla de los escarnecedores, Sino que en la ley del Señor está su deleite, Y en Su ley medita de día y de noche! Será como árbol plantado junto a corrientes de agua, Que da su fruto a su tiempo Y su hoja no se marchita; En todo lo que hace, prospera. No así los impíos, Que son como paja que se lleva el viento. Por tanto, no se sostendrán los impíos en el juicio, Ni los pecadores en la congregación de los justos. Porque el Señor conoce el camino de los justos, Pero el camino de los impíos perecerá.* NBLA
 
@@ -306,6 +345,19 @@ Title: Navegando el Texto
 ##### ¿Quien esta hablando?
 ##### ¿A quien se dirige?
 ##### ¿En que lugar ocurre?
+##### ¿Que genero literario es?
+##### ¿En que tiempo esta ubicado?
+
+##### Observación 1
+##### Observación 2
+##### Observación 3
+##### Observación 4
+##### Observación 5
+##### Observación 6
+##### Observación 7
+##### Observación 8
+##### Observación 9
+##### Observación 10
 
 ### Salmos 23: 1-6 *El Señor es mi pastor, Nada me faltará. En lugares de verdes pastos me hace descansar; Junto a aguas de reposo me conduce. Él restaura[a] mi alma; Me guía por senderos de justicia Por amor de Su nombre. Aunque pase por el valle de sombra de muerte, No temeré mal alguno, porque Tú estás conmigo; Tu vara y Tu cayado me infunden aliento. Tú preparas mesa delante de mí en presencia de mis enemigos; Has ungido mi cabeza con aceite; Mi copa está rebosando. Ciertamente el bien y la misericordia me seguirán todos los días de mi vida, Y en la casa del Señor moraré por largos días.* NBLA
 
@@ -320,6 +372,19 @@ Title: Navegando el Texto
 ##### ¿Quien esta hablando?
 ##### ¿A quien se dirige?
 ##### ¿En que lugar ocurre?
+##### ¿Que genero literario es?
+##### ¿En que tiempo esta ubicado?
+
+##### Observación 1
+##### Observación 2
+##### Observación 3
+##### Observación 4
+##### Observación 5
+##### Observación 6
+##### Observación 7
+##### Observación 8
+##### Observación 9
+##### Observación 10
 
 ### Juan 10:1-10 *En verdad les digo, que el que no entra por la puerta en el redil de las ovejas, sino que sube por otra parte, ese es ladrón y salteador . Pero el que entra por la puerta, es el pastorde las ovejas. A este le abre el portero, y las ovejas oyen su voz; llama a sus ovejas por nombre y las conduce afuera. Cuando saca todas las suyas, va delante de ellas, y las ovejas lo siguen porque conocen su voz. Pero a un desconocido no seguirán, sino que huirán de él, porque no conocen la vozde los extraños».  Jesús les habló por medio de esta comparación, pero ellos no entendieron qué era lo que les decía. Entonces Jesús les dijo de nuevo: «En verdad les digo: Yo soy la puerta de las ovejas. Todos los que vinieron antes de Mí son ladrones y salteadores, pero las ovejas no les hicieron caso. Yo soy la puerta; si alguno entra por Mí, será salvo; y entrará y saldrá y hallará pasto. El ladrón solo viene para robar, matar y destruir. Yo he venido para que tengan vida, y para que la tengan en abundancia. NBLA
 
@@ -334,31 +399,156 @@ Title: Navegando el Texto
 ##### ¿Quien esta hablando?
 ##### ¿A quien se dirige?
 ##### ¿En que lugar ocurre?
+##### ¿Que genero literario es?
+##### ¿En que tiempo esta ubicado?
 
+##### Observación 1
+##### Observación 2
+##### Observación 3
+##### Observación 4
+##### Observación 5
+##### Observación 6
+##### Observación 7
+##### Observación 8
+##### Observación 9
+##### Observación 10
 
 ## Ejercicios de Interpretación
 
 ### Jeremías 17:5 *Así dice el Señor:«Maldito el hombre que en el hombre confía, Y hace de la carne su fortaleza, Y del Señor se aparta su corazón.*
 
+### Ayuda en la interpretación.
+
+#### Primero, realizar la observación correspondiente del pasaje.
+#### Segundo, observar el contexto del pasaje, ¿que sucede antes?, ¿que sucede despues?
+
+##### Observación 1
+##### Observación 2
+##### Observación 3
+##### Observación 4
+##### Observación 5
+##### Observación 6
+##### Observación 7
+##### Observación 8
+##### Observación 9
+##### Observación 10
+
+
 ### Jeremías 17:9 *»Más engañoso que todo es el corazón, Y sin remedio; ¿Quién lo comprenderá?*
+
+### Ayuda en la interpretación.
+
+#### Primero, realizar la observación correspondiente del pasaje.
+#### Segundo, observar el contexto del pasaje, ¿que sucede antes?, ¿que sucede despues?
+
+##### Observación 1
+##### Observación 2
+##### Observación 3
+##### Observación 4
+##### Observación 5
+##### Observación 6
+##### Observación 7
+##### Observación 8
+##### Observación 9
+##### Observación 10
+
+##### ¿Que significa el texto?
 
 ### Ezequiel 18:20 *El alma que peque, esa morirá. El hijo no cargará con la iniquidad del padre, ni el padre cargará con la iniquidad del hijo. La justicia del justo será sobre él y la maldad del impío será sobre él.*
 
+### Ayuda en la interpretación.
+
+#### Primero, realizar la observación correspondiente del pasaje.
+#### Segundo, observar el contexto del pasaje, ¿que sucede antes?, ¿que sucede despues?
+
+##### Observación 1
+##### Observación 2
+##### Observación 3
+##### Observación 4
+##### Observación 5
+##### Observación 6
+##### Observación 7
+##### Observación 8
+##### Observación 9
+##### Observación 10
+
+##### ¿Que significa el texto?
+
 ### Isaias 1:18 *»Vengan ahora, y razonemos», Dice el Señor, «Aunque sus pecados sean como la grana, Como la nieve serán emblanquecidos. Aunque sean rojos como el carmesí, Como blanca lana quedarán.*
+
+### Ayuda en la interpretación.
+
+#### Primero, realizar la observación correspondiente del pasaje.
+#### Segundo, observar el contexto del pasaje, ¿que sucede antes?, ¿que sucede despues?
+
+##### Observación 1
+##### Observación 2
+##### Observación 3
+##### Observación 4
+##### Observación 5
+##### Observación 6
+##### Observación 7
+##### Observación 8
+##### Observación 9
+##### Observación 10
+
+##### ¿Que significa el texto?
 
 ### 1 Samuel 15:22 *Y Samuel dijo: «¿Se complace el Señor tanto En holocaustos y sacrificios Como en la obediencia a la voz del Señor? Entiende, el obedecer es mejor que un sacrificio, Y el prestar atención, que la grasa de los carneros.*
 
+### Ayuda en la interpretación.
+
+#### Primero, realizar la observación correspondiente del pasaje.
+#### Segundo, observar el contexto del pasaje, ¿que sucede antes?, ¿que sucede despues?
+
+##### Observación 1
+##### Observación 2
+##### Observación 3
+##### Observación 4
+##### Observación 5
+##### Observación 6
+##### Observación 7
+##### Observación 8
+##### Observación 9
+##### Observación 10
+
+##### ¿Que significa el texto?
+
 ### Galatas 4:30 *Pero, ¿qué dice la Escritura? «Echa fuera a la sierva y a su hijo, Pues el hijo de la sierva no será heredero con el hijo de la libre».*
 
+### Ayuda en la interpretación.
+
+#### Primero, realizar la observación correspondiente del pasaje.
+#### Segundo, observar el contexto del pasaje, ¿que sucede antes?, ¿que sucede despues?
+
+##### Observación 1
+##### Observación 2
+##### Observación 3
+##### Observación 4
+##### Observación 5
+##### Observación 6
+##### Observación 7
+##### Observación 8
+##### Observación 9
+##### Observación 10
+
+##### ¿Que significa el texto?
 
 ### Ahora ustedes deberan desarrollar un manual de estudio propio utilizando todo lo aprendido, el texto base sera 2 Juan. 
+#### Pedir el formato al los profesores.
 
 ### 2 Juan - NBLA
 
-#### El anciano a la señora escogida y a sus hijos, a quienes amo en verdad, y no solo yo, sino también todos los que conocen la verdad, 2 a causa de la verdad que permanece en nosotros y que estará con nosotros para siempre: 3 La gracia, la misericordia, y la paz estarán con nosotros, de Dios el Padre y de Jesucristo, Hijo del Padre, en verdad y amor. 4 Mucho me alegré al encontrar algunos de tus hijos andando en la verdad, tal como hemos recibido mandamiento del Padre. 5 Ahora te ruego, señora, no como escribiéndote un nuevo mandamiento, sino el que hemos tenido desde el principio, que nos amemos unos a otros. 6 Y este es el amor[a]: que andemos conforme a Sus mandamientos. Este es el mandamiento tal como lo han oído desde el principio, para que ustedes anden en él. 7 Pues muchos engañadores han salido al mundo que no confiesan que Jesucristo ha venido[b] en carne. Ese es el engañador y el anticristo. 8 Tengan ustedes cuidado para que no pierdan lo que hemos[c] logrado, sino que reciban abundante recompensa. 9 Todo el que se desvía y no permanece en la enseñanza[d] de Cristo, no tiene a Dios. El que permanece en la enseñanza tiene tanto al Padre como al Hijo. 10 Si alguien viene a ustedes y no trae esta enseñanza[e], no lo reciban en casa, ni lo saluden, 11 pues el que lo saluda participa en sus malas obras. 12 Aunque tengo muchas cosas que escribirles, no quiero hacerlo con papel y tinta, sino que espero ir a verlos y hablar con ustedes cara a cara[f], para que su[g] gozo sea completo. 13 Te saludan los hijos de tu hermana escogida.
+#### El anciano a la señora escogida y a sus hijos, a quienes amo en verdad, y no solo yo, sino también todos los que conocen la verdad, 2 a causa de la verdad que permanece en nosotros y que estará con nosotros para siempre: 3 La gracia, la misericordia, y la paz estarán con nosotros, de Dios el Padre y de Jesucristo, Hijo del Padre, en verdad y amor. 4 Mucho me alegré al encontrar algunos de tus hijos andando en la verdad, tal como hemos recibido mandamiento del Padre. 5 Ahora te ruego, señora, no como escribiéndote un nuevo mandamiento, sino el que hemos tenido desde el principio, que nos amemos unos a otros. 6 Y este es el amor: que andemos conforme a Sus mandamientos. Este es el mandamiento tal como lo han oído desde el principio, para que ustedes anden en él. 7 Pues muchos engañadores han salido al mundo que no confiesan que Jesucristo ha venido en carne. Ese es el engañador y el anticristo. 8 Tengan ustedes cuidado para que no pierdan lo que hemos logrado, sino que reciban abundante recompensa. 9 Todo el que se desvía y no permanece en la enseñanza de Cristo, no tiene a Dios. El que permanece en la enseñanza tiene tanto al Padre como al Hijo. 10 Si alguien viene a ustedes y no trae esta enseñanza, no lo reciban en casa, ni lo saluden, 11 pues el que lo saluda participa en sus malas obras. 12 Aunque tengo muchas cosas que escribirles, no quiero hacerlo con papel y tinta, sino que espero ir a verlos y hablar con ustedes cara a cara, para que su gozo sea completo. 13 Te saludan los hijos de tu hermana escogida.
 
 ### 2 Juan - RVR 1960
 
-####  El anciano a la señora escogida y a sus hijos, a quienes amo en verdad, y no solo yo, sino también todos los que conocen la verdad, 2 a causa de la verdad que permanece en nosotros y que estará con nosotros para siempre: 3 La gracia, la misericordia, y la paz estarán con nosotros, de Dios el Padre y de Jesucristo, Hijo del Padre, en verdad y amor. 4 Mucho me alegré al encontrar algunos de tus hijos andando en la verdad, tal como hemos recibido mandamiento del Padre. 5 Ahora te ruego, señora, no como escribiéndote un nuevo mandamiento, sino el que hemos tenido desde el principio, que nos amemos unos a otros. 6 Y este es el amor[a]: que andemos conforme a Sus mandamientos. Este es el mandamiento tal como lo han oído desde el principio, para que ustedes anden en él. 7 Pues muchos engañadores han salido al mundo que no confiesan que Jesucristo ha venido[b] en carne. Ese es el engañador y el anticristo. 8 Tengan ustedes cuidado para que no pierdan lo que hemos[c] logrado, sino que reciban abundante recompensa. 9 Todo el que se desvía y no permanece en la enseñanza[d] de Cristo, no tiene a Dios. El que permanece en la enseñanza tiene tanto al Padre como al Hijo. 10 Si alguien viene a ustedes y no trae esta enseñanza[e], no lo reciban en casa, ni lo saluden, 11 pues el que lo saluda participa en sus malas obras. 12 Aunque tengo muchas cosas que escribirles, no quiero hacerlo con papel y tinta, sino que espero ir a verlos y hablar con ustedes cara a cara[f], para que su[g] gozo sea completo. 13 Te saludan los hijos de tu hermana escogida.
+####  El anciano a la señora escogida y a sus hijos, a quienes amo en verdad, y no solo yo, sino también todos los que conocen la verdad, 2 a causa de la verdad que permanece en nosotros y que estará con nosotros para siempre: 3 La gracia, la misericordia, y la paz estarán con nosotros, de Dios el Padre y de Jesucristo, Hijo del Padre, en verdad y amor. 4 Mucho me alegré al encontrar algunos de tus hijos andando en la verdad, tal como hemos recibido mandamiento del Padre. 5 Ahora te ruego, señora, no como escribiéndote un nuevo mandamiento, sino el que hemos tenido desde el principio, que nos amemos unos a otros. 6 Y este es el amor: que andemos conforme a Sus mandamientos. Este es el mandamiento tal como lo han oído desde el principio, para que ustedes anden en él. 7 Pues muchos engañadores han salido al mundo que no confiesan que Jesucristo ha venido en carne. Ese es el engañador y el anticristo. 8 Tengan ustedes cuidado para que no pierdan lo que hemos logrado, sino que reciban abundante recompensa. 9 Todo el que se desvía y no permanece en la enseñanza de Cristo, no tiene a Dios. El que permanece en la enseñanza tiene tanto al Padre como al Hijo. 10 Si alguien viene a ustedes y no trae esta enseñanza, no lo reciban en casa, ni lo saluden, 11 pues el que lo saluda participa en sus malas obras. 12 Aunque tengo muchas cosas que escribirles, no quiero hacerlo con papel y tinta, sino que espero ir a verlos y hablar con ustedes cara a cara, para que su gozo sea completo. Te saludan los hijos de tu hermana escogida.
 
-### 2 Juan -
+### 2 Juan - BTX4
+
+#### "El anciano a la señora electa y a sus hijos, a quienes yo amo en verdad, y no solo yo, sino también todos los que han conocido la Verdad, a causa de la Verdad que permanece en nosotros, y con nosotros estará para siempre: Gracia, misericordia, y paz, estarán con nosotros, de DIOS Padre y de JESUCRISTO, el Hijo del Padre, en verdad y amor. En gran manera me regocijé porque he hallado de entre tus hijos a algunos que caminan en la Verdad, según el mandamiento que recibimos del Padre. Y ahora te ruego, oh señora, no como escribiéndote un mandamiento nuevo, sino el que teníamos desde un principio: que nos amemos unos a otros. Y este es el amor: que sigamos caminando según sus mandamientos; y este es el mandamiento: que caminéis en él, como oísteis desde un principio. Porque muchos engañadores han salido por el mundo, que no confiesan a JESUCRISTO como venido en carne. ¡Este es el engañador y el anticristo! Mirad por vosotros mismos, para que no echéis a perder las cosas que hemos forjado; sino que recibáis el galardón completo. Todo el que se propasa, y no permanece en la doctrina de CRISTO, no tiene a DIOS. El que permanece en la doctrina, este tiene al Padre y al Hijo. Si alguno llega y no lleva esta doctrina, no lo recibáis en casa ni le digáis: Bienvenido; porque el que le dice: Bienvenido, participa en sus malas obras. Aunque tengo muchas cosas que escribiros, no quise hacerlo por medio de papel y tinta, sino que espero ir a vosotros y hablar cara a cara, para que nuestro gozo sea completo. Los hijos de tu hermana, la electa, te saludan."
+
+### 2 Juan - RVR 1909
+
+#### "EL anciano á la señora elegida y á sus hijos, a los cuales yo amo en verdad y no yo solo, sino también todos los que han conocido la verdad, Por la verdad que está en nosotros, y será perpetuamente con nosotros: Sea con vosotros gracia, misericordia, y paz de Dios Padre, y del Señor Jesucristo, Hijo del Padre, en verdad y en amor. Mucho me he gozado, porque he hallado de tus hijos, que andan en verdad, como nosotros hemos recibido el mandamiento del Padre. Y ahora te ruego, señora, no como escribiéndote un nuevo mandamiento, sino aquel que nosotros hemos tenido desde el principio, que nos amemos unos á otros. Y este es amor, que andemos según sus mandamientos. Este es el mandamiento: Que andéis en él, como vosotros habéis oído desde el principio. Porque muchos engañadores son entrados en el mundo, los cuales no confiesan que Jesucristo ha venido en carne. Este tal el engañador es, y el anticristo. Mirad por vosotros mismos, porque no perdamos las cosas que hemos obrado, sino que recibamos galardón cumplido. Cualquiera que se rebela, y no persevera en la doctrina de Cristo, no tiene á Dios: el que persevera en la doctrina de Cristo, el tal tiene al Padre y al Hijo. Si alguno viene á vosotros, y no trae esta doctrina, no lo recibáis en casa, ni le digáis: ¡bienvenido! Porque el que le dice bienvenido, comunica con sus malas obras. Aunque tengo muchas cosas que escribiros, no he querido comunicarlas por medio de papel y tinta; mas espero ir á vosotros, y hablar boca á boca, para que nuestro gozo sea cumplido. Los hijos de tu hermana elegida te saludan. Amén."
