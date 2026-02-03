@@ -170,7 +170,7 @@ Title: Navegando el Texto
 
 #### La aplicacion del texto es de significado para nosotros a nivel personal y colectivo al hacer una correcta observacion ¿Que dice? y una correcta interpretacion ¿Que significa? por ende se obtendra una correcta aplicacion del texto.
 
-#### ADVERTENCIA 
+#### ADVERTENCIA: No intente sacar una aplicacion de cada parrafo, verso o  palabra del texto, esto debido a que no todos lo versosn tienen una aplicacion, la aplicacion no debe forzarse, ella surge naturalmente del texto y se vuelve clara despues de la observacion e interpretacion.
 
 #### Qué NO es aplicación.
 ##### ❌ No es “lo que yo siento”
@@ -189,15 +189,10 @@ Title: Navegando el Texto
 ##### El proceso es cerrado por el marco inicial.
 
 ### Etapas del estudio deductivo.
-
 #### Formulación del principio general.
-
 #### Selección del texto.
-
 #### Observación dirigida.
-
 #### Aplicación del principio al texto.
-
 #### Conclusión deductiva
 
 
@@ -210,17 +205,32 @@ Title: Navegando el Texto
 
 ## Hermenéutica
 
+### La hermeneutica es una disciplina que estudia como interpretar corrrctamnete un texto. La hermeneutica se basa en un conjunto de principios, criterios y reglas para el estudio del texto biblico
 
+### ¿Para qué sirve la hermenéutica?
+#### Evitar interpretaciones arbitrarias (“yo creo que significa…”)
+#### Interpretar según el texto y su contexto
+#### Distinguir entre lo que el texto dice y lo que alguien supone
+#### Mantener coherencia en el análisis
 
+### Errores comunes (anti-hermenéutica)
+#### Sacar un versículo de contexto
+#### Ignorar conectores (“pero”, “porque”, “si”)
+#### Convertir poesía en literalismo rígido
+#### Hacer que el texto diga algo que no afirma
+#### Usar palabras modernas con sentidos antiguos sin justificarlo
 
+### Principios, Criterios y Reglas
 
-## Homilética
+#### En el contenido de este texto hemos observado los diferentes metodos de estudio, criterios de interpretacion, enfoques al texto y analisis del mismo, a continuacion enlistaremos los criterios a usar en el estudio del texto con la base de ser fieles al texto sin alterarlo:
+#### Exegesis,
+#### Metodo Inductivo.
+##### Observacion
+##### Interpretacion 
+##### Aplicacion
+#### Enfoque Literal
 
-
-
-
-
-
+#### Sin mas que abarcar les desamos bien durante su estudio del texto, orendo y pidiendo a al Padre que puedan tener una mente abierta a lo que dice el texto y cerrarce a su propio entendimiento del texto.
 
 ## Ejercicios de observación.
 
