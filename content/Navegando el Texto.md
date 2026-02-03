@@ -234,18 +234,110 @@ Title: Navegando el Texto
 
 ## Ejercicios de observación.
 
-### Juan 3: 16-18 *Porque de tal manera amó Dios al mundo , que dio a Su Hijo unigénito , para que todo aquel que cree en Él, no se pierda, sino que tenga vida eterna .  Porque Dios no envióa Su Hijo al mundo para juzgar al mundo, sino para que el mundo sea salvo por Él. El que cree en Él no es condenado; pero el que no cree, ya ha sido condenado, porque no ha creído en el nombre del unigénito Hijo de Dios.*
+### Juan 3: 16-18 *Porque de tal manera amó Dios al mundo , que dio a Su Hijo unigénito , para que todo aquel que cree en Él, no se pierda, sino que tenga vida eterna .  Porque Dios no envióa Su Hijo al mundo para juzgar al mundo, sino para que el mundo sea salvo por Él. El que cree en Él no es condenado; pero el que no cree, ya ha sido condenado, porque no ha creído en el nombre del unigénito Hijo de Dios.* NBLA
+
+### Ayuda en la observacion.
+
+#### Lea con detenimiento el texto, una, dos , tres, etc, veces.
+
+#### Lea el texto en otras versiones .
+
+#### Debemos recordar que no queremos introducir al texto sino extrael de el , Ahora comienza el verdadero trabajo, debera observar el texto con detenimiento y hacer preguntas.
+##### ¿Quien escribe?
+##### ¿Quien esta hablando?
+##### ¿A quien se dirije?
+##### ¿En que lugar ocurre?
 
 
-### Apocalipsis 3: 14-20 *Escribe al ángel de la iglesia en Laodicea :“El Amén , el Testigo fiel y verdadero , el Principio de la creación de Dios , dice esto: Yo conozco tus obras, que ni eres frío ni caliente. ¡Ojalá fueras frío o caliente!. Así, puesto que eres tibio, y no frío ni caliente, te vomitaré de Mi boca. Porque dices: “Soy rico, me he enriquecido y de nada tengo necesidad”. No sabes que eres un miserable y digno de lástima, y pobre, ciego y desnudo. Te aconsejo que de Mí compresoro refinado por fuegopara que te hagas rico, y vestiduras blancaspara que te vistas y no se manifieste la vergüenza de tu desnudez, y colirio para ungir tus ojos y que puedas ver.’Yo reprendo y disciplino a todos los que amo . Sé, pues, celoso y arrepiéntete . Yo estoy a la puertay llamo; si alguien oye Mi voz y abre la puerta, entraré a él, y cenaré con él y él conmigo.
-
-### Jeremias 29:10-14 *Pues así dice el Señor: “Cuando se le hayan cumplido a Babilonia setenta años, Yo los visitaré y cumpliré Mi buena palabra de hacerlos volver a este lugar. Porque Yo sé los planes que tengo[d] para ustedes”, declara el Señor, “planes de bienestar y no de calamidad, para darles un futuro y una esperanza. Ustedes me invocarán y vendrán a rogarme, y Yo los escucharé. Me buscarán y me encontrarán, cuando me busquen de todo corazón. Me dejaré hallar de ustedes”, declara el Señor, “y restauraré su bienestar[e] y los reuniré de todas las naciones y de todos los lugares adonde los expulsé”, declara el Señor, “y los traeré de nuevo al lugar desde donde los envié al destierro”.*
 
 
-### Josue 1: 5-9 * Nadie te podrá hacer frente en todos los días de tu vida. Así como estuve con Moisés, estaré contigo. No te dejaré ni te abandonaré. »Sé fuerte y valiente, porque tú darás a este pueblo posesión de la tierra que juré a sus padres que les daría.  Solamente sé fuerte y muy valiente. Cuídate[d] de cumplir toda la ley que Moisés Mi siervo te mandó. No te desvíes de ella ni a la derecha ni a la izquierda, para que tengas éxito[e] dondequiera que vayas. »Este libro de la ley no se apartará de tu boca, sino que meditarás en él día y noche, para que cuides[f] de hacer todo lo que en él está escrito. Porque entonces harás prosperar tu camino y tendrás éxito. ¿No te lo he ordenado Yo? ¡Sé fuerte y valiente! No temas ni te acobardes, porque el Señor tu Dios estará contigo dondequiera que vayas».
+### Apocalipsis 3: 14-20 *Escribe al ángel de la iglesia en Laodicea :“El Amén , el Testigo fiel y verdadero , el Principio de la creación de Dios , dice esto: Yo conozco tus obras, que ni eres frío ni caliente. ¡Ojalá fueras frío o caliente!. Así, puesto que eres tibio, y no frío ni caliente, te vomitaré de Mi boca. Porque dices: “Soy rico, me he enriquecido y de nada tengo necesidad”. No sabes que eres un miserable y digno de lástima, y pobre, ciego y desnudo. Te aconsejo que de Mí compresoro refinado por fuegopara que te hagas rico, y vestiduras blancaspara que te vistas y no se manifieste la vergüenza de tu desnudez, y colirio para ungir tus ojos y que puedas ver.’Yo reprendo y disciplino a todos los que amo . Sé, pues, celoso y arrepiéntete . Yo estoy a la puertay llamo; si alguien oye Mi voz y abre la puerta, entraré a él, y cenaré con él y él conmigo. NBLA
 
-### Salmos 1:1-6 *¡Cuán bienaventurado es el hombre que no anda en el consejo de los impíos,Ni se detiene en el camino de los pecadores, Ni se sienta en la silla de los escarnecedores, Sino que en la ley del Señor está su deleite, Y en Su ley medita de día y de noche! Será como árbol plantado junto a corrientes de agua, Que da su fruto a su tiempo Y su hoja no se marchita; En todo lo que hace, prospera. No así los impíos, Que son como paja que se lleva el viento. Por tanto, no se sostendrán los impíos en el juicio, Ni los pecadores en la congregación de los justos. Porque el Señor conoce el camino de los justos, Pero el camino de los impíos perecerá.*
+### Ayuda en la observacion.
 
-### Salmos 23: 1-6 *El Señor es mi pastor, Nada me faltará. En lugares de verdes pastos me hace descansar; Junto a aguas de reposo me conduce. Él restaura[a] mi alma; Me guía por senderos de justicia Por amor de Su nombre. Aunque pase por el valle de sombra de muerte, No temeré mal alguno, porque Tú estás conmigo; Tu vara y Tu cayado me infunden aliento. Tú preparas mesa delante de mí en presencia de mis enemigos; Has ungido mi cabeza con aceite; Mi copa está rebosando. Ciertamente el bien y la misericordia me seguirán todos los días de mi vida, Y en la casa del Señor moraré por largos días.*
+#### Lea con detenimiento el texto, una, dos , tres, etc, veces.
 
-### Juan 10:1-10 *En verdad les digo, que el que no entra por la puerta en el redil de las ovejas, sino que sube por otra parte, ese es ladrón y salteador . Pero el que entra por la puerta, es el pastorde las ovejas. A este le abre el portero, y las ovejas oyen su voz; llama a sus ovejas por nombre y las conduce afuera. Cuando saca todas las suyas, va delante de ellas, y las ovejas lo siguen porque conocen su voz. Pero a un desconocido no seguirán, sino que huirán de él, porque no conocen la vozde los extraños».  Jesús les habló por medio de esta comparación, pero ellos no entendieron qué era lo que les decía. Entonces Jesús les dijo de nuevo: «En verdad les digo: Yo soy la puerta de las ovejas. Todos los que vinieron antes de Mí son ladrones y salteadores, pero las ovejas no les hicieron caso. Yo soy la puerta; si alguno entra por Mí, será salvo; y entrará y saldrá y hallará pasto. El ladrón solo viene para robar, matar y destruir. Yo he venido para que tengan vida, y para que la tengan en abundancia.
+#### Lea el texto en otras versiones .
+
+#### Debemos recordar que no queremos introducir al texto sino extrael de el , Ahora comienza el verdadero trabajo, debera observar el texto con detenimiento y hacer preguntas.
+##### ¿Quien escribe?
+##### ¿Quien esta hablando?
+##### ¿A quien se dirije?
+##### ¿En que lugar ocurre?
+
+### Jeremias 29:10-14 *Pues así dice el Señor: “Cuando se le hayan cumplido a Babilonia setenta años, Yo los visitaré y cumpliré Mi buena palabra de hacerlos volver a este lugar. Porque Yo sé los planes que tengo[d] para ustedes”, declara el Señor, “planes de bienestar y no de calamidad, para darles un futuro y una esperanza. Ustedes me invocarán y vendrán a rogarme, y Yo los escucharé. Me buscarán y me encontrarán, cuando me busquen de todo corazón. Me dejaré hallar de ustedes”, declara el Señor, “y restauraré su bienestar[e] y los reuniré de todas las naciones y de todos los lugares adonde los expulsé”, declara el Señor, “y los traeré de nuevo al lugar desde donde los envié al destierro”.* NBLA
+
+### Ayuda en la observacion.
+
+#### Lea con detenimiento el texto, una, dos , tres, etc, veces.
+
+#### Lea el texto en otras versiones .
+
+#### Debemos recordar que no queremos introducir al texto sino extrael de el , Ahora comienza el verdadero trabajo, debera observar el texto con detenimiento y hacer preguntas.
+##### ¿Quien escribe?
+##### ¿Quien esta hablando?
+##### ¿A quien se dirije?
+##### ¿En que lugar ocurre?
+
+### Josue 1: 5-9 * Nadie te podrá hacer frente en todos los días de tu vida. Así como estuve con Moisés, estaré contigo. No te dejaré ni te abandonaré. »Sé fuerte y valiente, porque tú darás a este pueblo posesión de la tierra que juré a sus padres que les daría.  Solamente sé fuerte y muy valiente. Cuídate[d] de cumplir toda la ley que Moisés Mi siervo te mandó. No te desvíes de ella ni a la derecha ni a la izquierda, para que tengas éxito[e] dondequiera que vayas. »Este libro de la ley no se apartará de tu boca, sino que meditarás en él día y noche, para que cuides[f] de hacer todo lo que en él está escrito. Porque entonces harás prosperar tu camino y tendrás éxito. ¿No te lo he ordenado Yo? ¡Sé fuerte y valiente! No temas ni te acobardes, porque el Señor tu Dios estará contigo dondequiera que vayas». NBLA
+
+### Ayuda en la observacion.
+
+#### Lea con detenimiento el texto, una, dos , tres, etc, veces.
+
+#### Lea el texto en otras versiones .
+
+#### Debemos recordar que no queremos introducir al texto sino extrael de el , Ahora comienza el verdadero trabajo, debera observar el texto con detenimiento y hacer preguntas.
+##### ¿Quien escribe?
+##### ¿Quien esta hablando?
+##### ¿A quien se dirije?
+##### ¿En que lugar ocurre?
+
+### Salmos 1:1-6 *¡Cuán bienaventurado es el hombre que no anda en el consejo de los impíos,Ni se detiene en el camino de los pecadores, Ni se sienta en la silla de los escarnecedores, Sino que en la ley del Señor está su deleite, Y en Su ley medita de día y de noche! Será como árbol plantado junto a corrientes de agua, Que da su fruto a su tiempo Y su hoja no se marchita; En todo lo que hace, prospera. No así los impíos, Que son como paja que se lleva el viento. Por tanto, no se sostendrán los impíos en el juicio, Ni los pecadores en la congregación de los justos. Porque el Señor conoce el camino de los justos, Pero el camino de los impíos perecerá.* NBLA
+
+### Ayuda en la observacion.
+
+#### Lea con detenimiento el texto, una, dos , tres, etc, veces.
+
+#### Lea el texto en otras versiones .
+
+#### Debemos recordar que no queremos introducir al texto sino extrael de el , Ahora comienza el verdadero trabajo, debera observar el texto con detenimiento y hacer preguntas.
+##### ¿Quien escribe?
+##### ¿Quien esta hablando?
+##### ¿A quien se dirije?
+##### ¿En que lugar ocurre?
+
+### Salmos 23: 1-6 *El Señor es mi pastor, Nada me faltará. En lugares de verdes pastos me hace descansar; Junto a aguas de reposo me conduce. Él restaura[a] mi alma; Me guía por senderos de justicia Por amor de Su nombre. Aunque pase por el valle de sombra de muerte, No temeré mal alguno, porque Tú estás conmigo; Tu vara y Tu cayado me infunden aliento. Tú preparas mesa delante de mí en presencia de mis enemigos; Has ungido mi cabeza con aceite; Mi copa está rebosando. Ciertamente el bien y la misericordia me seguirán todos los días de mi vida, Y en la casa del Señor moraré por largos días.* NBLA
+
+### Ayuda en la observacion.
+
+#### Lea con detenimiento el texto, una, dos , tres, etc, veces.
+
+#### Lea el texto en otras versiones .
+
+#### Debemos recordar que no queremos introducir al texto sino extrael de el , Ahora comienza el verdadero trabajo, debera observar el texto con detenimiento y hacer preguntas.
+##### ¿Quien escribe?
+##### ¿Quien esta hablando?
+##### ¿A quien se dirije?
+##### ¿En que lugar ocurre?
+
+### Juan 10:1-10 *En verdad les digo, que el que no entra por la puerta en el redil de las ovejas, sino que sube por otra parte, ese es ladrón y salteador . Pero el que entra por la puerta, es el pastorde las ovejas. A este le abre el portero, y las ovejas oyen su voz; llama a sus ovejas por nombre y las conduce afuera. Cuando saca todas las suyas, va delante de ellas, y las ovejas lo siguen porque conocen su voz. Pero a un desconocido no seguirán, sino que huirán de él, porque no conocen la vozde los extraños».  Jesús les habló por medio de esta comparación, pero ellos no entendieron qué era lo que les decía. Entonces Jesús les dijo de nuevo: «En verdad les digo: Yo soy la puerta de las ovejas. Todos los que vinieron antes de Mí son ladrones y salteadores, pero las ovejas no les hicieron caso. Yo soy la puerta; si alguno entra por Mí, será salvo; y entrará y saldrá y hallará pasto. El ladrón solo viene para robar, matar y destruir. Yo he venido para que tengan vida, y para que la tengan en abundancia. NBLA
+
+### Ayuda en la observacion.
+
+#### Lea con detenimiento el texto, una, dos , tres, etc, veces.
+
+#### Lea el texto en otras versiones .
+
+#### Debemos recordar que no queremos introducir al texto sino extrael de el , Ahora comienza el verdadero trabajo, debera observar el texto con detenimiento y hacer preguntas.
+##### ¿Quien escribe?
+##### ¿Quien esta hablando?
+##### ¿A quien se dirije?
+##### ¿En que lugar ocurre?
+
+
+## Ejercicios de Interpretacion
+
+### Jeremias 17:5 *Así dice el Señor:«Maldito el hombre que en el hombre confía, Y hace de la carne su fortaleza, Y del Señor se aparta su corazón.*
+
+### Jeremias 17:9 *»Más engañoso que todo es el corazón, Y sin remedio; ¿Quién lo comprenderá?*
