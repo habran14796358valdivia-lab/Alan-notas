@@ -118,6 +118,8 @@ Title: Tito
 
 #### Esto es algo que veremos implicito a lo largo de todad la carta, el conocimiento de la verdad que es segun la piedad y a raiz de esto que es lo deficiente. 
 
+#### El constante de la carta es la piedad, mas es especificamente la vida piadosa en conducta externa alineada de la verdad.
+
 ### Tito 1:2a "*con la esperanza de vida eterna,...*" La verdad contiene la esperanza de la vida eterna.
 
 #### Para ser mas exactos la verdad no solo esta alineadad con la piedad, sino la verdad tiene como base la esperanza de vida eterna.
@@ -172,9 +174,11 @@ Title: Tito
 
 #### Es interesante notar que la carta nos muestra una forma de designar a un anciano, veremos que no se debe designar un anciano a la ligera, es mas veremos una lista de requisitos sumamente indispensables. Ademas que alinean con la verdad que es segun piedad.
 
+#### Los diferentes requisitos son expresiones de una conducta piadosa.
+
 #### "Ancianos" es un adjetivo en plural masculino, esto lo denota como una caracteristica o rol de un grupo de hombres creyentes.
 
-### Tito 1:6a "*Lo designarás, si el anciano es irreprensible,...*" La designación de un anciano contiene una condicionante de 1ra clase "si", esto indica que algo es una realida o un hecho.
+### Tito 1:6a "*Lo designarás, si el anciano es irreprensible,...*" La designación de un anciano contiene una condicionante de 1ra clase "si", esto indica que algo es una realidad o un hecho.
 
 #### Para este caso alguien es designado como anciano solo si esta siendo en tiempo presente (irreprensible, marido de una sola mujer, que tenga hijos crtentes......no obstinado, no iracundo.......debe ser hospitalario, amante de lo bueno, etc).
 
