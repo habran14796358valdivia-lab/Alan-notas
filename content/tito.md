@@ -28,7 +28,7 @@ Title: Tito
 
 ### Los cretenses eran conocidos por ser mentiroso compulsivos, mentian sin necesidad de hacerlo, "cretenizar" era usado para las mentiras.
 
-### LOs cretences eran conciderados desordenados, son como bestias salvajes.... dice Epimanes.
+### Los cretences eran conciderados desordenados, son como bestias salvajes.... dice Epimanes.
 
 ## Contexto historico 
 
@@ -36,7 +36,7 @@ Title: Tito
 
 ### Esto seria mientras Pablo se encuentra rumbo a Roma en calidad de prisionero. Hechos 27:1, 7-8
 
-### En Hechos 27:9, Lucas decribe que paso mucho tiempo, en el contexto vemos que Pablo y los tripulantes habian permanecido en creta por un tiempo. Hechos 27:7-12
+### En Hechos 27:9 Lucas decribe que paso mucho tiempo, en el contexto vemos que Pablo y los tripulantes habian permanecido en creta por un tiempo. Hechos 27:7-12
 
 #### Aunque no se nos dice el tiempo, Pablo pudo haber estado aununciando y enseñando el evangelio, como lo haria posteriormente en la isla de malta. Hechos 28:7-10
 
@@ -46,7 +46,7 @@ Title: Tito
 
 #### Pablo habria escrito la carta a los Efesios, Filipenses, Colosenses y Filemon durante este encarcelamiento, todas fechadas entre el 61-62 d.C. o inicios del 63 d.C
 
-#### En estas cartas Pablo menciona su encarcelamiento o  espera a ser liberado. Efesios 6:19-20; Filipenses 1:12-14, 19-20; Colosenses 4:3-4, 10, 18; FIlemon 1:1, 22, 23
+#### En estas cartas Pablo menciona su encarcelamiento o espera a ser liberado. Efesios 6:19-20; Filipenses 1:12-14, 19-20; Colosenses 4:3-4, 10, 18; FIlemon 1:1, 22, 23
 
 ### Tras su liberacion Pablo habria emprendido otro viaje a macedocia, asia menor(efeso, donde dejo a Timoteo), creta(donde dejo a Tito). 1 Timoteo 1:3, 3:14-15; Tito 1:5, 12
 
@@ -64,23 +64,21 @@ Title: Tito
 
 ## Receptor de la carta.
 
-### La carta a Tito comunmente es llamada una carta pastoral al igual que 1 y 2 Timoteo, por bastante tiempo se a enfocado que esta carta esta dirigida a los pastores, ancianos o lideres de las iglesias locales.
+### La carta a Tito comunmente es llamada una carta pastoral al igual que 1 y 2 Timoteo, por bastante tiempo se a enfocado que la carta esta dirigida a los pastores, ancianos o lideres de las iglesias locales.
 
-### Sin embargo, podremos ver a lo largo de la carta que no solo habla a los ancianos, sino tambien habla a los hombres mayores, mujeres mayores,a las mujeres jovenes,a los varones jovenes y los siervos. Tito 1:4, 5, 13, 2:2, 3, 6, 9, 3:1, 14
+### Sin embargo, podremos ver a lo largo de la carta que no solo habla a los ancianos, sino tambien habla a los hombres mayores, mujeres mayores, a las mujeres jovenes, a los varones jovenes y los siervos. Tito 1:4, 5, 13, 2:2, 3, 6, 9, 3:1, 14
 
 ### Esta carta abarca a una audiencia grande, es decir, no solamente a Tito o los ancianos, sino a toda la iglesia local.
 
-### Aun que Tito es el encargado de enseñar a la iglesia, la enzeñanza de la carta es para todos y no solo para algunos.
+### Aunque Tito es el encargado de enseñar a la iglesia, la enzeñanza de la carta es para todos y no solo para algunos.
 
 ## Antes de comenzar
 
-#### Aunque la verdad segun piedad es solo mensionada una vez en la carta esto sera un tema implicito en la carta, hay un orden que esta alineado a la verdad o mejor dico esto procede de la verdad, hay una conducta alineada a la verdad, y la verdad esta alineada auna conducta de piedad.
+### Aunque la verdad segun piedad es solo mensionada una vez en la carta esto sera un tema implicito en la carta, hay un orden que esta alineado a la verdad o mejor dicho esto procede de la verdad, hay una conducta alineada a la verdad, y la verdad esta alineada a una conducta de piedad.
 
-#### Los cretenses tenian una influencia y raiz cultural fuerte, lo cual es presentado como un problema, la cultura se mezclaba con la verdad, es bueno preguntarnos, ¿La cultura es mala?, ¿Cuanto debe influir la cultura en los creyentes y en la iglesia?, ¿Hay aspectos buenos de la cultura?, ¿Debemos quedarnos con nuestra cultura, o dejarnos ser transformados por la verdad?, ¿ La cultura define nuestra identidad o nuestra identidad define nuestra cultura?
+### Dejemos que la escritura nos enseñe en la verdad y la gracia en la piedad, ¿Como debemos conducirnos como iglesia y como individuos?.
 
-#### Dejemos que la escritura nos enseñe en la verdad y la gracia en la piedad, ¿Como debemos conducirnos como iglesia y  como individuos?.
-
-#### Las iglesia en creta parecen ser iglesias en la cuales faltaba instrucion (enseñar), Pablo dejo a Tito para que se hiciera cargo de completar la enseñanza, en la carta vemos especial enfasis en lo que esta deacuerdo con el conocimiento de la verdad y como está alinea con una vida de piedad, esto es tanto como individuos y como iglesia
+### Las iglesia en creta parecen ser iglesias en la cuales faltaba instrucion (enseñar), Pablo dejo a Tito para que se hiciera cargo de completar la enseñanza, en la carta vemos especial enfasis en lo que esta deacuerdo con el conocimiento de la verdad y como está alinea con una vida de piedad, esto es tanto como individuos y como iglesia
 
 # Tito 1:1-16 Orden en la verdad que es segun la piedad.
 
@@ -108,11 +106,13 @@ Title: Tito
 
 ### Tito 1:1d "*y al pleno conocimiento de la verdad que es según la piedad,...*" El servicio y apostolado de Pablo estaba alineado al pleno conocimiento de la verdad, la verdad que es según piedad.
 
-#### La palabra pleno no se encuentra en el griego, " y al conocimiento de la verdad"
+#### La palabra pleno no se encuentra en el griego, "y al conocimiento de la verdad"
 
 #### ¿Que es el conocimiento de la verdad?, Conocimiento es EPIGNOSIS esto se refiere a un conocimiento acertado o preciso de algo, en este caso es de la verdad. La carta a tito no nos dice que es la verdad, asume ser ya conocida por los creyentes, sin embargo tenemos una pauta importante, la verdad se alinea a la piedad.
 
-#### La piedad esta realsando la verdad, la verdad aline con la piedad, esto no es cualquier verdad entre comillas, dice un conocimiento acertado de la verdad, el texto la muestra como unica. Juan 1:14, 17, 3:21, 4:23-24, 8:32, 40, 45-46, 14:6, 17, 16:13, 17:17, 19; Romanos 1:25; 1 Corintios 13:6; 2 Corintios 4:2, 6:7, 13:7-8; Gálatas 2:5, 14, 5:7; Efesios 1:13, 4:20-22
+#### De igual manera Pablo mismo esta alineado con la fe, la verdad y como sabemos esto, pues la piedad es una conducta externa expresada que evidencia o realza la verdad, esto no es solamente todo el conjunto de la enzeñanza que temnemos sino en el fundamneto, EL Evangelio.
+
+#### La piedad esta realzando la verdad, la verdad alinea con la piedad, esto no es cualquier verdad entre comillas, dice un conocimiento acertado de la verdad, el texto la muestra como unica. Juan 1:14, 17, 3:21, 4:23-24, 8:32, 40, 45-46, 14:6, 17, 16:13, 17:17, 19; Romanos 1:25; 1 Corintios 13:6; 2 Corintios 4:2, 6:7, 13:7-8; Gálatas 2:5, 14, 5:7; Efesios 1:13, 4:20-22
 
 #### EL servicio, apostolado y Pablo mismo estaba alineado no solo con la fe sino con el conocimiento de la verdad que es segun piedad.
 
@@ -601,8 +601,6 @@ Title: Tito
 ### Tito 3:15b "*Saluda a los que nos aman en la fe....*"
 
 ### Tito 3:15c "*La gracia sea con todos ustedes....*"
-
-
 
 
 referencias.
