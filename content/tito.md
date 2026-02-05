@@ -352,7 +352,7 @@ Title: Tito
 
 ## Ser corrompidos nos vuelve inutiles.
 
-### Tito 1:15a "*Todas las cosas son puras para los puros,...*" Estos versos van a girar en torno a "los puros" o "los limpio" esto es un adjetivo, quiere decir que es una caracteristica.
+### Tito 1:15a "*Todas las cosas son puras para los puros,...*" Estos versos van a girar en torno a "los puros" o "los limpios" esto es un adjetivo, quiere decir que es una caracteristica.
 
 #### Para "los limpios" todas las cosas son limpias, en algunas ocacion esta palabra se utiliza para describir la condicion de una persona como ser sin culpa, inocente o libre, asi como de la pureza de alguien o algo como los alimentos  Juan 13:10-11, 15:3; Hechos 18:6, 20:26; Romanos 14:20; 1 Timoteo 3:9; Hebreos 10:23; Santiago 1:27
 
@@ -368,7 +368,7 @@ Title: Tito
 
 #### "incredulo" Primeramnente puede referirse al incredulo (no salvo) en si mismo el no es puro y no tiene ninguna cosa pura.
 
-#### En segundo lugar puede referirse a un cryente (salvo) pero carente de confianza. ¿Es posible que un cryente habiendo sido salvado al creer en el evangelio viva en incredulidad?, la respuesta es si, esto puede deberse ignorar la verdad biblica habiendola conocido. A causa de su negligencia nada le resulta puro. Otro caso es el creyente debil , el que esta creciendo en el conocimiento de la verdad biblica y en la fe, a el por la falta de fe algunas cosa le pueden resultar impuras. Juan 20:27; Romanos 14:1-5, 14, 22-25 (revisar)
+#### En segundo lugar puede referirse a un cryente (salvo) pero carente de confianza. ¿Es posible que un cryente habiendo sido salvado al creer en el evangelio viva en incredulidad?, la respuesta es si, esto puede deberse ignorar la verdad biblica habiendola conocido. A causa de su negligencia nada le resulta puro. Otro caso es el creyente debil , el que esta creciendo en el conocimiento de la verdad biblica y en la fe, a el por la falta de conocimiento (la fe) algunas cosa le pueden resultar impuras. Juan 20:27; Romanos 14:1-5, 14, 22-25 (revisar)
 
 ### Tito 1:15c "*sino que tanto su mente como su conciencia están corrompidas....*" Para estos dos el corrompido e incredulo nada es puro porque su mente y conciencia estan contaminadas, esto tiene que ver con la ausencia de la verdad en ellos.
 
@@ -376,9 +376,9 @@ Title: Tito
 
 #### "profesar" quiere decir confesar o declarar persibir a Dios. El sabe quien es Dios y que quiere. Conocer (perfecto, infinitivo, activo), ellos dicen haber percibido a Dios y aun persibirlo o conocerlo. Esta es su verdad
 
-### Tito 1:16b "*pero con sus hechos lo niegan,...*" un pequeño contraste a su confesion estos que dicen persibir a Dios niegan a Dios con sus aciones, su andar contradice sus palabras. esta es su piedad.
+### Tito 1:16b "*pero con sus hechos lo niegan,...*" un pequeño contraste a su confesion, estos que dicen persibir a Dios niegan a Dios con sus aciones, su andar contradice sus palabras. esta es su piedad.
 
-#### Aqui podemos resaltar algo importante "El conocimiento de la verdad es segun piedad" ambos coinciden, hay la verdad que resulta en piedad, y esta misma piedad realza esta verdad y hay entre comillas " verdad pero que resulta en falsa piedad o en inpiedad". La unico que puede resultar en piedad real es la verdad biblica tomada por la fe.
+#### Aqui podemos resaltar algo importante "El conocimiento de la verdad es segun piedad" ambos coinciden, hay la verdad que resulta en piedad, y esta misma piedad realza esta verdad y hay entre comillas " verdad pero que resulta en falsa piedad o en inpiedad". Lo unico que puede resultar en piedad real es la verdad biblica tomada por la fe.
 
 #### Veamos a continuacion en que resulta los que dicen conocer a Dios y sus hechos lo niegan o rechazan.
 
