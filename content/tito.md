@@ -394,9 +394,9 @@ Title: Tito
 
 ## Una conducta alineada a una enseñanza sana.
 
-### Tito 2:1a "*Pero en cuanto a ti,...*"
+### Tito 2:1a "*Pero en cuanto a ti,...*" Esto es una instrucción directa de Pablo a Tito, el conector "pero" esta marncando un contraste en relación a los anteriores versiculos. 
 
-### Tito 2:1b "*enseña lo que está de acuerdo con la sana doctrina:...*"
+### Tito 2:1b "*enseña lo que está de acuerdo con la sana doctrina:...*" La diferencia radica en la enseñanza(lo que hablan), Pablo relaciona la conducta externa de piedad como de acuerdo con la sana doctrina, o una enseñanza saludable (que trae salud), esto con la verdad segun piedad.
 
 ### Tito 2:2a "*Los ancianos deben ser sobrios,...*"
 
