@@ -390,21 +390,64 @@ Title: Tito
 
 ### Tito 1:16d "*e inútiles para cualquier obra buena....*" Son inutiles o reprobados o descalificados para cualquier buena obra. 2 Timoteo 3:8
 
-# Tito 2:1-15 Un contraste, lo que esta deacuerdo con la sana doctrina
+# Tito 2:1-15 - Un contraste, lo que esta deacuerdo con la sana doctrina
 
 ## Una conducta alineada a una enseñanza sana.
 
-### Tito 2:1a "*Pero en cuanto a ti,...*" Esto es una instrucción directa de Pablo a Tito, el conector "pero" esta marncando un contraste en relación a los anteriores versiculos. 
+### Tito 2:1 
+Pero en cuanto a ti, enseña lo que está de acuerdo con la sana doctrina: 
 
-### Tito 2:1b "*enseña lo que está de acuerdo con la sana doctrina:...*" La diferencia radica en la enseñanza(lo que hablan), Pablo relaciona la conducta externa de piedad como de acuerdo con la sana doctrina, o una enseñanza saludable (que trae salud), esto con la verdad segun piedad.
+#### Pero en cuanto a ti
 
-#### Una enseñanza que sana (saludable, que sana, que imparte vida) solo puede provenir de la verdad, solo puede venir del evangelio. 1 Timoteo 
+##### Esto es una instrucción directa de Pablo a Tito, el conector "pero" esta marncando un contraste en relación a los anteriores versiculos. 
 
-#### Nota: En estos versos 2:1-10 donde se lista una conducta a diferente miembros de la iglesia, ninguno de estos acciones estan en imperativo mostrando que "usteden deben ser o hacer esto" Pablo describe caracteristicas.
+#### enseña lo que está de acuerdo con la sana doctrina
 
-#### ¿Como tratamos con la conducta? Parece ser un problema en toda iglesia y suele ser lo primero en que nos enfocamos pero el problema real no es como tratamos con la conducta esto es un resultado (producto), la experencia externa (cunducta) puede ser buena y ser mera hipocresia, asi que la conducta no debe ser nuestro punto de partido demos ir a la fuente.
+##### La diferencia radica en la enseñanza(lo que hablan), Pablo relaciona la conducta externa de piedad como de acuerdo con la sana doctrina, o una enseñanza saludable (que trae salud), esto con la verdad segun piedad.
 
-#### Es evidente que con lo que estemos alineados o en lo que estemos confiando producira algo en nosotros (un resultado) en este punto Pablo describe una conducta que esta alineada a una enseñanza saludable, de la misma manera esta conducta es la piedad resultante de la verdad esto es un contraste con los que han rechazado la verdad y se han formado una falsa piedad se han vuelto inutiles. Esta conducta que procede de la verdad veremos que es util, beneficiosa entre nosotros como creyentes.
+- Una enseñanza que sana (saludable, que sana, que imparte vida) solo puede provenir de la verdad, solo puede venir del evangelio. 1 Timoteo 
+
+- Nota: En estos versos 2:1-10 donde se lista una conducta a diferente miembros de la iglesia, ninguno de estos acciones estan en imperativo mostrando que "usteden deben ser o hacer esto" Pablo describe caracteristicas.
+
+- ¿Como tratamos con la conducta? Parece ser un problema en toda iglesia y suele ser lo primero en que nos enfocamos pero el problema real no es como tratamos con la conducta esto es un resultado (producto), la experencia externa (cunducta) puede ser buena y ser mera hipocresia, asi que la conducta no debe ser nuestro punto de partido demos ir a la fuente.
+
+- Es evidente que con lo que estemos alineados o en lo que estemos confiando producira algo en nosotros (un resultado) en este punto Pablo describe una conducta que esta alineada a una enseñanza saludable, de la misma manera esta conducta es la piedad resultante de la verdad esto es un contraste con los que han rechazado la verdad y se han formado una falsa piedad se han vuelto inutiles. Esta conducta que procede de la verdad veremos que es util, beneficiosa entre nosotros como creyentes.
+
+### Tito 2:2 
+Los ancianos deben ser sobrios, dignos, prudentes, sanos en la fe, en el amor, en la perseverancia. 
+### Tito 2:3 
+Asimismo, las ancianas deben ser reverentes en su conducta, no calumniadoras ni esclavas de mucho vino. Que enseñen lo bueno, 
+### Tito 2:4 
+para que puedan instruir a las jóvenes a que amen a sus maridos, a que amen a sus hijos, 
+### Tito 2:5 
+a que sean prudentes, puras, hacendosas en el hogar, amables, sujetas a sus maridos, para que la palabra de Dios no sea blasfemada.
+
+### Tito 2:6 
+Asimismo, exhorta a los jóvenes a que sean prudentes. 
+### Tito 2:7 
+Muéstrate en todo como ejemplo de buenas obras, con pureza de doctrina, con dignidad, 
+### Tito 2:8 
+con palabra sana e irreprochable, a fin de que el adversario se avergüence al no tener nada malo que decir de nosotros.
+
+### Tito 2:9 
+Exhorta a los siervos a que se sujeten a sus amos en todo, que sean complacientes, no contradiciendo, 
+### Tito 2:10 
+no defraudando, sino mostrando toda buena fe, para que adornen la doctrina de Dios nuestro Salvador en todo respecto.
+
+### Tito 2:11 
+Porque la gracia de Dios se ha manifestado, trayendo salvación a todos los hombres, 
+
+### Tito 2:12 
+enseñándonos, que negando la impiedad y los deseos mundanos, vivamos en este mundo sobria, justa y piadosamente, 
+
+### Tito 2:13 
+aguardando la esperanza bienaventurada y la manifestación de la gloria de nuestro gran Dios y Salvador Cristo Jesús. 
+
+### Tito 2:14 
+Él se dio por nosotros, para redimirnos de toda iniquidad y purificar para Sí un pueblo para posesión Suya, celoso de buenas obras.
+
+### Tito 2:15 
+Esto habla, exhorta y reprende con toda autoridad. Que nadie te menosprecie.
 
 ### Tito 2:2a "*Los ancianos deben ser sobrios,...*" 
 
