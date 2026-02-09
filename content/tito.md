@@ -457,7 +457,7 @@ Prudentes - SOFRON
 ##### Ser saludable en el amor es una expreción interesante ya que un amor sano solo podra provenir de la verdad.
 
 Amor - AGAPE
-: Se refiere a un amor incondicional sacrificial, sin embargo no se limita a palabras sino en este contexto es un amor incondicional expresable, visible, sano.
+: Se refiere a un amor incondicional sacrificial, sin embargo no se limita a palabras sino en este contexto es un amor incondicional expresable, visible, un amor sano.
 
 #### sanos...en la perseverancia
 
