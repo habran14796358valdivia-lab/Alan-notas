@@ -398,7 +398,15 @@ Title: Tito
 
 ### Tito 2:1b "*enseña lo que está de acuerdo con la sana doctrina:...*" La diferencia radica en la enseñanza(lo que hablan), Pablo relaciona la conducta externa de piedad como de acuerdo con la sana doctrina, o una enseñanza saludable (que trae salud), esto con la verdad segun piedad.
 
-### Tito 2:2a "*Los ancianos deben ser sobrios,...*"
+#### Una enseñanza que sana (saludable, que sana, que imparte vida) solo puede provenir de la verdad, solo puede venir del evangelio. 1 Timoteo 
+
+#### Nota: En estos versos 2:1-10 donde se lista una conducta a diferente miembros de la iglesia, ninguno de estos acciones estan en imperativo mostrando que "usteden deben ser o hacer esto" Pablo describe caracteristicas.
+
+#### ¿Como tratamos con la conducta? Parece ser un problema en toda iglesia y suele ser lo primero en que nos enfocamos pero el problema real no es como tratamos con la conducta esto es un resultado (producto), la experencia externa (cunducta) puede ser buena y ser mera hipocresia, asi que la conducta no debe ser nuestro punto de partido demos ir a la fuente.
+
+#### Es evidente que con lo que estemos alineados o en lo que estemos confiando producira algo en nosotros (un resultado) en este punto Pablo describe una conducta que esta alineada a una enseñanza saludable, de la misma manera esta conducta es la piedad resultante de la verdad esto es un contraste con los que han rechazado la verdad y se han formado una falsa piedad se han vuelto inutiles. Esta conducta que procede de la verdad veremos que es util, beneficiosa entre nosotros como creyentes.
+
+### Tito 2:2a "*Los ancianos deben ser sobrios,...*" 
 
 ### Tito 2:2b "*dignos,...*"
 
