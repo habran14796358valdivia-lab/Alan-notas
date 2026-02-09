@@ -436,9 +436,13 @@ Sobrio - NEFALEOS
 
 #### dignos 
 
-
+Dignos - SEMNOS
+: Puede traducirse como respetable, digno, honesto o honorable. El hombre mayor es respetable, eso es significativo ya que no busca hacerse respetar, mas bien es un respeto o honra como respuesta a su conducta intachable.
 
 #### prudentes
+
+Prudentes - SOFRON
+: Ser de mente sana, alguien prudente es alguien que goza de una mente sana o alguien que esta en sus cabales capaz de pensar conforme a la verdad (ser razonable).
 
 #### sanos en la fe
 
