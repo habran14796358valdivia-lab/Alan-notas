@@ -414,18 +414,65 @@ Pero en cuanto a ti, enseña lo que está de acuerdo con la sana doctrina:
 - Es evidente que con lo que estemos alineados o en lo que estemos confiando producira algo en nosotros (un resultado) en este punto Pablo describe una conducta que esta alineada a una enseñanza saludable, de la misma manera esta conducta es la piedad resultante de la verdad esto es un contraste con los que han rechazado la verdad y se han formado una falsa piedad se han vuelto inutiles. Esta conducta que procede de la verdad veremos que es util, beneficiosa entre nosotros como creyentes.
 
 ### Tito 2:2 
-Los ancianos deben ser sobrios, dignos, prudentes, sanos en la fe, en el amor, en la perseverancia. 
+Los ancianos deben ser sobrios, dignos, prudentes, sanos en la fe, en el amor, en la perseverancia.
+
+#### Los ancianos deben ser sobrios
+
+Ancianos-PRESBUTES
+: Quiere decir hombre mayor, viejo o anciano viene de la misma raiz que presbuteros.
+
+##### Aunque la palabra tiene un significado similar el contexto diferenciara de quien se trata, en este caso hablara los hombres mayores de la congregación  
+
+##### "Deben" no se encuentra en los textos originales, es interesante porque el verbo "SER" es (presente, infinitivo, activo).
+
+- Esto no indica hecho, una orden, un deseo o posibilidad.
+- Tampoco indica un tiempo de inicio o final
+- Indica una acion en proceso " Ancianos sed sobrios o Hombres mayores son sobrios" 
+
+##### Que los hombres mayores sean sobrios es una conducta que esta alineada a una enseñanza saludable, no debemos olvidad que los resultados de conducta es a causa de estar alineados con la verdad, obviamentee ste no sera el resultado si la verdad a sido cambiada o rechazada.
+
+Sobrio - NEFALEOS
+: Quiere decir alguien libre de influencia alcoholíca, sin embargo se limita a embriages por alcohol sino que resalta el hecho de estar cuerdo o conciente en todos los sentidos.
+
+#### dignos
+
+#### prudentes
+
+#### sanos en la fe
+
+#### en el amor
+
+#### en la perseverancia
+
 ### Tito 2:3 
 Asimismo, las ancianas deben ser reverentes en su conducta, no calumniadoras ni esclavas de mucho vino. Que enseñen lo bueno, 
+
+### Asimismo, las ancianas deben ser reverentes en su conducta
+
+### no calumniadoras
+
+### ni esclavas de mucho vino
+
+### Que enseñen lo bueno
+
 ### Tito 2:4 
 para que puedan instruir a las jóvenes a que amen a sus maridos, a que amen a sus hijos, 
+
+### para que puedan instruir a las jóvenes
+
+### a que amen a sus maridos
+
+### a que amen a sus hijos
+
 ### Tito 2:5 
 a que sean prudentes, puras, hacendosas en el hogar, amables, sujetas a sus maridos, para que la palabra de Dios no sea blasfemada.
 
 ### Tito 2:6 
 Asimismo, exhorta a los jóvenes a que sean prudentes. 
+
 ### Tito 2:7 
 Muéstrate en todo como ejemplo de buenas obras, con pureza de doctrina, con dignidad, 
+
 ### Tito 2:8 
 con palabra sana e irreprochable, a fin de que el adversario se avergüence al no tener nada malo que decir de nosotros.
 
@@ -449,32 +496,6 @@ aguardando la esperanza bienaventurada y la manifestación de la gloria de nuest
 ### Tito 2:15 
 Esto habla, exhorta y reprende con toda autoridad. Que nadie te menosprecie.
 
-### Tito 2:2a "*Los ancianos deben ser sobrios,...*" 
-
-### Tito 2:2b "*dignos,...*"
-
-### Tito 2:2c "*prudentes,...*"
-
-### Tito 2:2d "*sanos en la fe,...*"
-
-### Tito 2:2e "*en el amor,...*"
-
-### Tito 2:2f "*en la perseverancia....*"
-
-### Tito 2:3a "*Asimismo, las ancianas deben ser reverentes en su conducta,...*"
-
-### Tito 2:3b "*no calumniadoras...*"
-
-### Tito 2:3c "*ni esclavas de mucho vino....*"
-
-### Tito 2:3d "*Que enseñen lo bueno,...*"
-
-### Tito 2:4a "*para que puedan instruir a las jóvenes...*"
-
-### Tito 2:4b "*a que amen a sus maridos,...*"
-
-### Tito 2:4c "*a que amen a sus hijos,...*"
-
 ### Tito 2:5a "*a que sean prudentes,...*"
 
 ### Tito 2:5b "*puras,...*"
@@ -487,7 +508,9 @@ Esto habla, exhorta y reprende con toda autoridad. Que nadie te menosprecie.
 
 ### Tito 2:5f "*para que la palabra de Dios no sea blasfemada....*"
 
+
 ### Tito 2:6a "*Asimismo, exhorta a los jóvenes a que sean prudentes.*"
+
 
 ### Tito 2:7a "*Muéstrate en todo...*"
 
