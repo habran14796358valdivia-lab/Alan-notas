@@ -446,9 +446,20 @@ Prudentes - SOFRON
 
 #### sanos en la fe
 
-#### en el amor
+##### Que los hombres mayores sean sanos (saludabes) con respecto a la fe, el producto/resultado de permanecer en la verdad es sanidad en la fe, es alguien literalmente que no esta enfermo en cuanto a la enseñanza o torcido, esto alinea con una enseñanza saludable.
 
-#### en la perseverancia
+- Aqui nuevamente "la fe" no es nuentra confianza sino hace referencia a la verdad y el conjunto de enseñanzas que proceden del evengelio sobre lo cual esta nuestra confianza.
+
+- Sanos es un verbo (oresente, participio, activo) esto nos indica que este hombre se caracteriza por estar siendo saludable en cuanto a la fe.
+
+#### sanos...en el amor
+
+##### Ser saludable en el amor es una expreción interesante ya que un amor sano solo podra provenir de la verdad.
+
+Amor - AGAPE
+: Se refiere a un amor incondicional sacrificial, sin embargo no se limita a palabras sino en este contexto es un amor incondicional expresable, visible, sano.
+
+#### sanos...en la perseverancia
 
 ### Tito 2:3 
 Asimismo, las ancianas deben ser reverentes en su conducta, no calumniadoras ni esclavas de mucho vino. Que enseñen lo bueno, 
