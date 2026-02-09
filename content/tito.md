@@ -434,7 +434,9 @@ Ancianos-PRESBUTES
 Sobrio - NEFALEOS
 : Quiere decir alguien libre de influencia alcoholíca, sin embargo se limita a embriages por alcohol sino que resalta el hecho de estar cuerdo o conciente en todos los sentidos.
 
-#### dignos
+#### dignos 
+
+
 
 #### prudentes
 
