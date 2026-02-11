@@ -454,17 +454,33 @@ Prudentes - SOFRON
 
 #### sanos...en el amor
 
-##### Ser saludable en el amor es una expreción interesante ya que un amor sano solo podra provenir de la verdad.
+##### Ser saludable en el amor es una expresión interesante ya que un amor sano solo podra provenir de la verdad.
 
 Amor - AGAPE
 : Se refiere a un amor incondicional sacrificial, sin embargo no se limita a palabras sino en este contexto es un amor incondicional expresable, visible, un amor sano.
 
 #### sanos...en la perseverancia
 
+##### Que un hombre mayor sea sano en la perseverancia apunta una perseverancia correcta segun la verdad, muchas veces podemos pensar de manera erronea "estamos perseverando por Cristo" no desmiento esta frase, sin embargo no debemos confundirnos, aunque sea una buena intencion podria no provenir de la verdad, podria ser no sano
+
+##### Ser saludable aputa o proviene de un foco correcto de una enseñanza sana incluso en este aspecto de la perseverancia.
+
+Perseverancia - JUPOMONE
+: Proviene de la palabra compuesta de JUPO (bajo de) y MENO (pemanecer en un lugar o estado), esta palabra tiene como tiene en su significado el enfasis de soportar o aguantar bajo presion con contentamiento.
+
 ### Tito 2:3 
 Asimismo, las ancianas deben ser reverentes en su conducta, no calumniadoras ni esclavas de mucho vino. Que enseñen lo bueno, 
 
 ### Asimismo, las ancianas deben ser reverentes en su conducta
+
+##### Aun que las palabras "deben ser no se encuentran en el griego la palabra "asimismo" esta continuando la ia del verso anterior referente a una conducta que alinea con la sana enseñanza pero ahora enfatizado a las mujeres mayores.
+
+##### Recordemos que estos versos no contiene ningun mandato, Pablo descrice como es el alineamiento con la sana eneñamnza en la conducta o el ser.
+
+Ancianas - PRESBUTIS
+: Es el femenino de PRESBUTES significa anciana o vieja (mujer mayor), esta palabra no es sinonimo de un rol ademas que el contexto nos enfatiza la diversidad de persona a las cules de dirige.
+
+##### Asimismo la mujeres mayores, en comportamiento propio de consagrada
 
 ### no calumniadoras
 
