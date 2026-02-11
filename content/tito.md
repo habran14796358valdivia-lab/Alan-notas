@@ -480,22 +480,26 @@ Asimismo, las ancianas deben ser reverentes en su conducta, no calumniadoras ni 
 Ancianas - PRESBUTIS
 : Es el femenino de PRESBUTES significa anciana o vieja (mujer mayor), esta palabra no es sinonimo de un rol ademas que el contexto nos enfatiza la diversidad de persona a las cules de dirige.
 
-##### Asimismo la mujeres mayores, en comportamiento propio de consagrada
+##### Asimismo la mujeres mayores "en comportamiento propio de consagrada". Una mujer mayor que en su conducta refleja santidad o consagrada (apartada para) es unha realidad cuando esta alineada con una enseñanza saludable que proviene de la verdad.
 
-### no calumniadoras
+##### Un vivi santo o en satidad no puede provenir de la mentira o el engaño solo puede provenir del unico y verdadero Evangelio el cual es poder de Dios para el creyente en su diario andar.
 
-### ni esclavas de mucho vino
+#### no calumniadoras
 
-### Que enseñen lo bueno
+
+
+#### ni esclavas de mucho vino
+
+#### Que enseñen lo bueno
 
 ### Tito 2:4 
 para que puedan instruir a las jóvenes a que amen a sus maridos, a que amen a sus hijos, 
 
-### para que puedan instruir a las jóvenes
+#### para que puedan instruir a las jóvenes
 
-### a que amen a sus maridos
+#### a que amen a sus maridos
 
-### a que amen a sus hijos
+#### a que amen a sus hijos
 
 ### Tito 2:5 
 a que sean prudentes, puras, hacendosas en el hogar, amables, sujetas a sus maridos, para que la palabra de Dios no sea blasfemada.
