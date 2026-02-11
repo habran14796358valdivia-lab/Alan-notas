@@ -493,9 +493,16 @@ Calumniadora - DIABOLOS
 
 #### ni esclavas de mucho vino
 
-#####
+##### "ni haber sido esclavizadas a mucho vino" el verbo(perfecto, participio, medio/pasivo) nos da ha entender que han sido esclavizadas del mucho vino y al dia de hoy continuan como esclavizas del mucho vino.
+
+##### Esto no es una prohibicion contra el vino (bebidas alcoholicas), el enfasis se encuantra en haber sido y ser esclavizados por el mucho vino, ser esclava contrasta a una conducta de santidad.
 
 #### Que enseñen lo bueno
+
+##### Una mujer mayor que es maestra de li bueno, normalmente no tendemos a pensar la gran ayuda y trabajo que llega a realizar una hermana en nuestra familia (iglesia), el resultado de una enseñanza saludable puede verse como una mujer de conducta santa que es maestra de lo bueno.
+
+Enseñen lo bueno - KALODIDASKALOS
+: Esta palabra se compone de dos en el griego KALOS (quiere decir bueno, lo excelente, lo apropiado, se refiere a todo lo que es bello intriscicamente que proviene de lo verdadero y perdura con el tiempo como valioso) y DIDASKALOS (quiere decir instructor o maestro, alguien que enseña a otro).
 
 ### Tito 2:4 
 para que puedan instruir a las jóvenes a que amen a sus maridos, a que amen a sus hijos, 
