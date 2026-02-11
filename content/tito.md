@@ -482,13 +482,18 @@ Ancianas - PRESBUTIS
 
 ##### Asimismo la mujeres mayores "en comportamiento propio de consagrada". Una mujer mayor que en su conducta refleja santidad o consagrada (apartada para) es unha realidad cuando esta alineada con una enseñanza saludable que proviene de la verdad.
 
-##### Un vivi santo o en satidad no puede provenir de la mentira o el engaño solo puede provenir del unico y verdadero Evangelio el cual es poder de Dios para el creyente en su diario andar.
+##### Un vivir santo o en satidad no puede provenir de la mentira o el engaño solo puede provenir del unico y verdadero Evangelio el cual es poder de Dios para el creyente en su diario andar.
 
 #### no calumniadoras
 
+##### En este verso aparacen las primeras negativas no en forma de mandato mas bien en contraste a un conducirse santo. Una mujer mayor no calumniadora solo contrasta mas su conducirse santo.
 
+Calumniadora - DIABOLOS
+: Es una palabra conocida del griego significa "acusar falsamente", "hablar con malicia" tambien utilizado para traducir "Diablo".
 
 #### ni esclavas de mucho vino
+
+#####
 
 #### Que enseñen lo bueno
 
