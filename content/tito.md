@@ -509,6 +509,13 @@ para que puedan instruir a las jóvenes a que amen a sus maridos, a que amen a s
 
 #### para que puedan instruir a las jóvenes
 
+##### LAs mujeres mayores en este estado tienen un proposito maravilloso dentro de la familia (iglesia), la preposicion "para" indica proposito, ellas siendo maestras del bien podran estar haciendo de mente sobria a las mujeres mas jovenes.
+
+Instruir - SOFRONIZO
+: Significa "estar haciendo de mente sobria" o de mente sana, las mujeres mayores estran haciendo de mentes sanas a las mujeres mas jovenes a traves de su enseñanza y conducta que alnea con la verdad.
+
+##### "Instruir" es un vervo (presente, subjubtivo, activo) esto nos indica que esta intruccion llega a ser una posibilidad, se vuelve real en base al estado del verso 3, una mujer alineada con una sana enseñanza.
+
 #### a que amen a sus maridos
 
 #### a que amen a sus hijos
