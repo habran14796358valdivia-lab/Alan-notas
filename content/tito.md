@@ -604,16 +604,16 @@ Asimismo, exhorta a los jóvenes a que sean prudentes.
 
 #### Asimismo, exhorta a los jóvenes
 
-##### Pablo continuara con la misma idea, instruyendo a Tito a exhortar a los jovenes de las iglesias. Exhortar es un mandanto en presente activo dirigidoa Tito.
+##### Pablo continuara con la misma idea, instruyendo a Tito a exhortar a los jovenes de las iglesias, ya que Pablo continua con la idea la exhortacion no es solo para los jovenes tambien estaba dirigido hacia los hermanos amyores, hermanas mayores y esposas jovenes. Exhortar es un mandanto en presente activo dirigidoa Tito.
 
 Exhortar - PAAKALEO
 : Puede significar consolar, animar, alentar, rogativa, suplica, etc.. Una traduccion literal viene de PARA (al lado) y KALEO (llamar) "llamar a lado de"
 
-##### Tito debia alentar, instar, ir en ayuda de los mas jovenes, Tito no estaba comicioado a cambiar la conducta de nadie, sino para ensñar lo que esta deacuerdo con la sana enseñanza, los mas jovenes necesitan ayuda, tal vez en la comprension o la misma enseñanza.
+##### Tito debia alentar, instar, ir en ayuda de los mas jovenes y los hermanos en general, Tito no estaba comicionado a cambiar la conducta de nadie, sino para ensñar lo que esta deacuerdo con la sana enseñanza, los mas jovenes necesitan ayuda, tal vez en la comprension o la misma enseñanza.
 
 #### a que sean prudentes
 
-##### "a ser prudentes" Comunmente los jovenes nos carecterizamos por ser inprudentes en nuestro acturar, no somos juiciosos al pensar o moderados, esto es en contraste a lo que la sana enseñanzapuede hacer en nosotros.
+##### "a ser prudentes" Comunmente los jovenes nos carecterizamos por ser inprudentes en nuestro acturar, no somos juiciosos al pensar o moderados, esto es en contraste a lo que la sana enseñanza puede hacer en nosotros.
 
 Prudentes - SOFRONEO
 : Quiere decir ser comedido, templado, de sano juicio o sano de mente. hemos visto esta caracteristica en todos los casos anteriores, como creyentes al estar alineados o siendo nutridos a traves de una enseñanza saludable podriamos estar gozando de una mente saludable en nuestro pensar o actuar, evidentemente esto sera el resultado de adoptar la enseñanza.
@@ -621,11 +621,22 @@ Prudentes - SOFRONEO
 ### Tito 2:7 
 Muéstrate en todo como ejemplo de buenas obras, con pureza de doctrina, con dignidad, 
 
-#### Muéstrate en todo
+#### Muéstrate en todo como ejemplo
 
-#### como ejemplo de buenas obras
+##### En esa misma exhortación Tito estaria a lado de los hermanos de manera visible.
+
+Muestrate - PARAKJO
+: Literalmene "puesto a lado de" Tito estaria a lado de los hermanos. Esta accion es mejor apreciada cuando vemos que es una accion, los hermanos son los que habian de tener a Tito a lado suyo.
+
+##### Tiro estaria a lado de ellos como ejemplo de lo que la sana enseñanza puede hacer al estar siendo nutrido por ella, al permanecer firmes en la verdad que viene de Dios
+
+#### de buenas obras
+
+##### Tito estaria mostrandose como ejemplo de lo que son buena obras (obras que son buenas), a continuacion dara una lista de lo que significa obras que son buenas.
 
 #### con pureza de doctrina
+
+##### Mantener la pureza de la doctrina al momento de enseñar, esto contrasta con la deficiencia en creta, estaban cambiando la verdad por la mentira y el engaño. Literalmente ser ejemplo con una enseñanza incorruptible o incontaminada.
 
 #### con dignidad,
 
