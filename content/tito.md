@@ -521,9 +521,13 @@ Instruir - SOFRONIZO
 ##### Aunque no se muestra el verbo "ser" aqui esta presente en el griego en la misma forma verbal continuando un mismo pensamiento, las mujeres jovenes son enseñadas por las mayores a ser amantes de sus esposos. Esto viene a traves de de gozar de una mente sana, que increible es que una mujer joven ame a su esposo, esto solo puede povenir de una enseñanza sana.
 
 Amen a sus maridos - FILANDROS
-: 
+: Es una palabra compuesta en el griego PHILOS (significa amor pero hay una ligera diferencia este amor es mas emocional o sentimental, mas expresivo en afecto, puede se rusado en diferente contextos, entre esposos, padre e hijos, amigos) y ANER ( signifiva varon, hombre o esposo)
+
+##### Es curioso ver esta conducta en una mujer joven, no porque no amen a sus esposos sino en que en ellas nazca ser afectivas con sus esposos. Esta palabra es un sustantivo enfatizando a "ellas que son afectivas con sus esposos"
 
 #### a que amen a sus hijos
+
+#### Esta parte tiene la misma composicion que la anterioir solo remplazando ANER por TEKNOS, esto es una adjetivo, una mujer que es afectiva con sus hijos.
 
 ### Tito 2:5 
 a que sean prudentes, puras, hacendosas en el hogar, amables, sujetas a sus maridos, para que la palabra de Dios no sea blasfemada.
