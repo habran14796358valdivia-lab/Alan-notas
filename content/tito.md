@@ -509,7 +509,7 @@ para que puedan instruir a las jóvenes a que amen a sus maridos, a que amen a s
 
 #### para que puedan instruir a las jóvenes
 
-##### LAs mujeres mayores en este estado tienen un proposito maravilloso dentro de la familia (iglesia), la preposicion "para" indica proposito, ellas siendo maestras del bien podran estar haciendo de mente sobria a las mujeres mas jovenes.
+##### Las mujeres mayores en este estado tienen un proposito maravilloso dentro de la familia (iglesia), la preposicion "para" indica proposito, ellas siendo maestras del bien podran estar haciendo de mente sobria a las mujeres mas jovenes.
 
 Instruir - SOFRONIZO
 : Significa "estar haciendo de mente sobria" o de mente sana, las mujeres mayores estran haciendo de mentes sanas a las mujeres mas jovenes a traves de su enseñanza y conducta que alnea con la verdad.
@@ -533,6 +533,13 @@ Amen a sus maridos - FILANDROS
 a que sean prudentes, puras, hacendosas en el hogar, amables, sujetas a sus maridos, para que la palabra de Dios no sea blasfemada.
 
 #### a que sean prudentes
+
+##### "a ser de juicio sano o mente sana" esto es una característica, ellas son de mente sana.
+
+Prudentes - SOFRON
+: Ser de mente sana, alguien prudente es alguien que goza de una mente sana o alguien que esta en sus cabales capaz de pensar conforme a la verdad (ser razonable).
+
+##### Vemos que estás características también son mencionadas en cuanto a un hombre mayor, sin embargo no es exclusivo de el, esto proviene de estar alineado con una sana enzeñanza
 
 #### puras
 
