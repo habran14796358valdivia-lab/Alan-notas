@@ -532,17 +532,44 @@ Amen a sus maridos - FILANDROS
 ### Tito 2:5 
 a que sean prudentes, puras, hacendosas en el hogar, amables, sujetas a sus maridos, para que la palabra de Dios no sea blasfemada.
 
+#### a que sean prudentes
+
+#### puras
+
+#### hacendosas en el hogar
+
+#### amables
+
+#### sujetas a sus maridos
+
+#### para que la palabra de Dios no sea blasfemada
+
 ### Tito 2:6 
 Asimismo, exhorta a los jóvenes a que sean prudentes. 
 
 ### Tito 2:7 
 Muéstrate en todo como ejemplo de buenas obras, con pureza de doctrina, con dignidad, 
 
+#### Muéstrate en todo
+
+#### como ejemplo de buenas obras
+
+#### con pureza de doctrina
+
+#### con dignidad,
+
 ### Tito 2:8 
 con palabra sana e irreprochable, a fin de que el adversario se avergüence al no tener nada malo que decir de nosotros.
 
+#### con palabra sana e irreprochable
+
+#### a fin de que el adversario se avergüence
+
+#### al no tener nada malo que decir de nosotros
+
 ### Tito 2:9 
 Exhorta a los siervos a que se sujeten a sus amos en todo, que sean complacientes, no contradiciendo, 
+
 ### Tito 2:10 
 no defraudando, sino mostrando toda buena fe, para que adornen la doctrina de Dios nuestro Salvador en todo respecto.
 
@@ -560,36 +587,6 @@ aguardando la esperanza bienaventurada y la manifestación de la gloria de nuest
 
 ### Tito 2:15 
 Esto habla, exhorta y reprende con toda autoridad. Que nadie te menosprecie.
-
-### Tito 2:5a "*a que sean prudentes,...*"
-
-### Tito 2:5b "*puras,...*"
-
-### Tito 2:5c "*hacendosas en el hogar,...*"
-
-### Tito 2:5d "*amables,...*"
-
-### Tito 2:5e "*sujetas a sus maridos,...*"
-
-### Tito 2:5f "*para que la palabra de Dios no sea blasfemada....*"
-
-
-### Tito 2:6a "*Asimismo, exhorta a los jóvenes a que sean prudentes.*"
-
-
-### Tito 2:7a "*Muéstrate en todo...*"
-
-### Tito 2:7b "*como ejemplo de buenas obras,...*"
-
-### Tito 2:7c "*con pureza de doctrina,...*"
-
-### Tito 2:7d "*con dignidad,...*"
-
-### Tito 2:8a "*con palabra sana e irreprochable,...*"
-
-### Tito 2:8b "*a fin de que el adversario se avergüence...*"
-
-### Tito 2:8c "*al no tener nada malo que decir de nosotros....*"
 
 ### Tito 2:9a "*Exhorta a los siervos a que se sujeten a sus amos en todo,...*"
 
