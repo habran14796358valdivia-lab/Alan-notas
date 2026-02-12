@@ -593,7 +593,11 @@ Sujetas - JUPOTASSO
 
 - La impiedad no puede provenir de Dios, la hipocresía tampoco.
 
-- El poder de Dios en la vida del creyente puede producir verdadera piedad
+- Solo el poder de Dios en la vida del creyente puede producir verdadera piedad
+
+##### Es curioso, cuando profesamos algo pero nuesta conducta no refleja esa profesion, la profesion carece de verdad, valor y se convierte en blanco de escandalos y injurias.
+
+##### Este es el ejemplo de Tito 1:
 
 ### Tito 2:6 
 Asimismo, exhorta a los jóvenes a que sean prudentes. 
