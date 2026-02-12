@@ -534,7 +534,7 @@ a que sean prudentes, puras, hacendosas en el hogar, amables, sujetas a sus mari
 
 #### a que sean prudentes
 
-##### "a ser de juicio sano o mente sana" esto es una característica, ellas son de mente sana.
+##### "a ser de juicio sano o mente sana" esto es una característica, ellas son de mente sana. Una mujer joven que tiene claridad en su mente en cuanto a lo que es saludable.
 
 Prudentes - SOFRON
 : Ser de mente sana, alguien prudente es alguien que goza de una mente sana o alguien que esta en sus cabales capaz de pensar conforme a la verdad (ser razonable).
@@ -543,13 +543,57 @@ Prudentes - SOFRON
 
 #### puras
 
+Puras - JAGNOS
+: Significa castas,libre de contaminación, puede ser en un sentido ritual o ceremonial
+
+##### "a ser puras" mujeres jóvenes siendo puras en todo su ser, en su forma conducirse asi como en su mente.
+
 #### hacendosas en el hogar
+
+Hacendosas en el hogar - OIKURUS
+: Es interesante esta expresión por literalmente querra decir "guardias de la casa" o "que se queda en casa"
+
+##### No debemos malinterpretar esto, no significa que una mujer joven no pueda salir de casa, más bien está palabra tiene el significado de "ser cuidador de su casa"
+
+##### Una mujer joven que tiene cuidado por su hogar, por su esposo, sus hijos, todo lo que implica mantener un hogar.
 
 #### amables
 
+amables - AGATHOS
+: Quiere decir ser bueno, se usa para referirse al valor de algo o alguien o expresar el ser de alguien.
+
+### Una mujer joven que se distingue por su bondad pues ella en su ser es buena o amable.
+
 #### sujetas a sus maridos
 
+##### Una mujer joven sujeta a su marido, esto es algo que no suele verse comúnmente, sin embargo miren lo que una enseñanza sana adoptada por de puede lograr, un mujer sujetándose voluntariamente a su marido.
+
+Sujetas - JUPOTASSO
+: Quiere decir "estar debajo de", subordinarse, someterse o un rango debajo, está palabra a sido muy mal usada(satanizada) por movimiento mundanos alrededor del mundo.
+
+##### Está palabra no significa que no podemos expresar diferencia o no es una carta hacia el maltrato, más bien por fe me sujeto a alguien (mi esposo, Cristo o El Padre) en confianza.
+
+- Algo a observar es que está acción no es solo para las esposas a sus maridos.
+
+- Los esposos deben sujetarse a Cristo.
+
+- Cristo se sujeta al Padre.
+
+- En cuando a los hijos mientras aún viven bajo sus padres se sujetan a sus Padres.
+
+- Los jóvenes y señoritas solteras al no tener esposo o esposa de sujetan a Cristo. 
+
 #### para que la palabra de Dios no sea blasfemada
+
+##### Ahora veremos algo muy importante, todo este actuar, está conducta piadosa que proviene de una enseñanza sana de la verdad concluye en un propósito "para".
+
+##### ¿Por que la palabra de Dios sería o no blasfemada?. Bueno esta vida de piedad expresada en estos versos proviene de una enseñanza saludable fundamentada en la verdad, en el Evangelio de Dios.
+
+- La conducta alinea con la profesión 
+
+- La impiedad no puede provenir de Dios, la hipocresía tampoco.
+
+- El poder de Dios en la vida del creyente puede producir verdadera piedad
 
 ### Tito 2:6 
 Asimismo, exhorta a los jóvenes a que sean prudentes. 
