@@ -597,10 +597,26 @@ Sujetas - JUPOTASSO
 
 ##### Es curioso, cuando profesamos algo pero nuesta conducta no refleja esa profesion, la profesion carece de verdad, valor y se convierte en blanco de escandalos y injurias.
 
-##### Este es el ejemplo de Tito 1:
+##### Este es el ejemplo de Tito 1:15-16 ellos profesaban conocer a Dios sin embargo con sus hechos lo negaban, negaban su profesion con sus actos esto no solos los volvia inutiles y abominables sino que dan lugar a que el nombre de Dios sea blasfemado por sus hechos.
 
 ### Tito 2:6 
 Asimismo, exhorta a los jóvenes a que sean prudentes. 
+
+#### Asimismo, exhorta a los jóvenes
+
+##### Pablo continuara con la misma idea, instruyendo a Tito a exhortar a los jovenes de las iglesias. Exhortar es un mandanto en presente activo dirigidoa Tito.
+
+Exhortar - PAAKALEO
+: Puede significar consolar, animar, alentar, rogativa, suplica, etc.. Una traduccion literal viene de PARA (al lado) y KALEO (llamar) "llamar a lado de"
+
+##### Tito debia alentar, instar, ir en ayuda de los mas jovenes, Tito no estaba comicioado a cambiar la conducta de nadie, sino para ensñar lo que esta deacuerdo con la sana enseñanza, los mas jovenes necesitan ayuda, tal vez en la comprension o la misma enseñanza.
+
+#### a que sean prudentes
+
+##### "a ser prudentes" Comunmente los jovenes nos carecterizamos por ser inprudentes en nuestro acturar, no somos juiciosos al pensar o moderados, esto es en contraste a lo que la sana enseñanzapuede hacer en nosotros.
+
+Prudentes - SOFRONEO
+: Quiere decir ser comedido, templado, de sano juicio o sano de mente. hemos visto esta caracteristica en todos los casos anteriores, como creyentes al estar alineados o siendo nutridos a traves de una enseñanza saludable podriamos estar gozando de una mente saludable en nuestro pensar o actuar, evidentemente esto sera el resultado de adoptar la enseñanza.
 
 ### Tito 2:7 
 Muéstrate en todo como ejemplo de buenas obras, con pureza de doctrina, con dignidad, 
