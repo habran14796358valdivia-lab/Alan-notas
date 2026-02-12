@@ -518,6 +518,11 @@ Instruir - SOFRONIZO
 
 #### a que amen a sus maridos
 
+##### Aunque no se muestra el verbo "ser" aqui esta presente en el griego en la misma forma verbal continuando un mismo pensamiento, las mujeres jovenes son enseñadas por las mayores a ser amantes de sus esposos. Esto viene a traves de de gozar de una mente sana, que increible es que una mujer joven ame a su esposo, esto solo puede povenir de una enseñanza sana.
+
+Amen a sus maridos - FILANDROS
+: 
+
 #### a que amen a sus hijos
 
 ### Tito 2:5 
