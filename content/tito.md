@@ -647,9 +647,26 @@ con palabra sana e irreprochable, a fin de que el adversario se avergüence al n
 
 #### con palabra sana e irreprochable
 
+##### Sana e irreprochable son caracteristicas de "la palabra" en esta porción, en cuanto a la enseñanza... con palabra sana o saludable. Es curioso para que la palabra que Tito hable sea saludable debe estar alineado con la verdad. 
+
+##### En cuato a la enseñanza... con palabra irreprochable, todo lo que Tito fuera a enseñar, toda palabra que fuera a salir de su boca debia ser tan acertada con la verdad de manera que no haya oportunidad de que la censuren o que sea condenada, que no puedan hayar motivo de tropiezo. Esto solo seria posible si Tito alineaba con la verdad y de ella exprsara una sana enseñanza.
+
 #### a fin de que el adversario se avergüence
 
+##### Esta parte es una pequeña conclusion que se expresa en forma de proposito "a fin o para", par este momento sabemos que habia unos que habian rechazado a verdad, que estaban trastornando a familias enteras, en sintesis habia muchos que estaban en contra de la verdad.
+
+##### Estos hombres tenian su propia verdad y esta producia algo "con sus hechos lo niegan"
+
+Adversario - ENANTIOS
+: Significa "lugar opuesto", contrario, adversario, opuesto u hostil. Comunmente cuando oimos adversario automaticamente pensamos en satanas, y si el es "El adversario" el que esta en contar pero esta palabra no esta describiendo a satanas sino a todo persona que esta en contra u opuesto.
+
+##### En el contexto el adversario es todo aquel que es contrario o se opone a la verdad, al observar la verdadera piedad que produce la verdad y como esta esta deacuerdo con ella, estos que se oponen seran avergonsados "se avergonzaran" a causa de la verdad. Marcos 15:39
+
+- Se "averguence" es un verbo(aoristo, subjuntivo, pasivo) esto no muesta que es un hecho ellos se avergonzaran por causa de la verdad, sin embargo el pasivo no indica que no debemos ser nosotros los que busquen su verguenza, ellos seran avergonzados por la verdad.
+
 #### al no tener nada malo que decir de nosotros
+
+##### 
 
 ### Tito 2:9 
 Exhorta a los siervos a que se sujeten a sus amos en todo, que sean complacientes, no contradiciendo, 
