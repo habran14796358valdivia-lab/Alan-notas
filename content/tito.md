@@ -683,11 +683,25 @@ Adversario - ENANTIOS
 ### Tito 2:9 
 Exhorta a los siervos a que se sujeten a sus amos en todo, que sean complacientes, no contradiciendo, 
 
-### Exhorta a los siervos a que se sujeten a sus amos en todo
+#### Exhorta a los siervos a que se sujeten a sus amos en todo
 
-### que sean complacientes
+##### La palabra "exhorta" no se encuentra en los textos originales, sin embargo fue añadida pues el texto continua con la misma idea, la conducta o actuar de piedad alineada con la verdad (lo que esta deacuerdo con la sana doctrina), para este caso ahora hablara a los siervos. 
 
-### no contradiciendo
+##### "que se sujeten a sus amos" pareciera ser una orden activa, sin embargo el verbo es (presente, infinitivo, pasivo) esto nos muestra que no es un mandato sino un estado del ser "que los siervos sean sujetos" la voz pasiva no enfatizara que estan "siendo sujetos a sus amos" esto es por su condicion de sirvos. 
+
+- Cuando uno era siervo de algien esta sujeto a su merced, sin importar si el siervo queria sujetarse a el o no, esa era su condicion, no tenia opcion, podria estar siendo sumiso a su amo pero en su ser estar en eberldia contra su amo. 
+
+- En este verso se enfatiza a que como siervo el se deje "estar siendo sujetado" no por obligacion, sino en contentamiento, se entrege a la sujecion de su amo, a estar debajo de sus amo por causa de la confianza.
+
+- El siervo estaria siendo sujeto a su amo en todo, esta palabra muestra la sujecion del siervo.
+
+#### que sean complacientes
+
+##### "complacientes" es un adjetivo del siervo, una caracteristica suya de ser agradable en todo a su amo, tambien se puede entender como que el siervo pueda ser el que contenta a su amo en todo lo que hace, esto enfatiza mas su contucta entorno a su condicion de siervo, que el pueda estar mostrando toda pieda para con su amo.
+
+#### no contradiciendo
+
+##### Que el siervo no sea que se carecteriza por contradecir o oponerse a su amo, estontrasta con ser el que trae contentamiento a su amo, uno que se opone a el, uno que habla en su contra.
 
 ### Tito 2:10 
 no defraudando, sino mostrando toda buena fe, para que adornen la doctrina de Dios nuestro Salvador en todo respecto.
