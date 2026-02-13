@@ -706,11 +706,28 @@ Exhorta a los siervos a que se sujeten a sus amos en todo, que sean complaciente
 ### Tito 2:10 
 no defraudando, sino mostrando toda buena fe, para que adornen la doctrina de Dios nuestro Salvador en todo respecto.
 
-### no defraudando
+#### no defraudando
 
-### sino mostrando toda buena fe
+Defradando - NOSFIZOMAI
+: Significa poner aparte, sustraer, secuestra o retener, comunmente esta palabra tiene un enfasis negativo de sustraer de la propiedad de otro.
 
-### para que adornen la doctrina de Dios nuestro Salvador en todo respecto
+##### Que el siervo no sea el que le sustrae a su amo, este verbo es (presente, participio, medio) esto nos da ha entender que el siervo no sea el que se carecteriza por sustrer o robar a su amo, la voz media no indica que sustrae para si mismo.
+
+#### sino mostrando toda buena fe
+
+##### En comparacion a no ser el que deufrada a su amo, sino que es un siervo de confianza para con su amo, el es digno de toda buena fe o de toda confianza para con su amo.
+
+#### para que adornen la doctrina de Dios nuestro Salvador en todo respecto
+
+#### Una segunda pequeña conclusion enfatizada en un proposito, esta conducta de piedad por parte de los siervos a sus amos adorna, embellese la docrina de Dios, es asombroso que esto sea observable, la piedad exhibida a traves de este siervo solo realza la verdad, la enseñanza que provien de parte de nuesr Dios.
+
+- Dios nuestro Salvador, esto nos muestra de manera objetiva a quien nos referimos del origen de esta enzeñanza.
+
+- No demos pensar que a Dios no le importa la piedad o una conducta alineada co0n quien es el, es verdad que no smos salvos (justificados) por una conducta, obras, etc... Eso es una realidad, Dios no exige ninguna de estas cosas para dar vida eterna.
+
+- Ahora hablemos de la vida del creyente o de nuestro andar como creyentes, ¿Dios nos exige una conducta intachable que lo represnte bien? Bueno, aunque el adar del creyente no cambia su posicion o estado delante de Dios, Dios ha provisto de todo lo necesario para vivir una vida enpoderada por el Evangelio, ha provisto de su gracia abundantemente, a medida que vamos conociendo mas de el y su gracia somos invitados confiar en el y su provision para nuestras vidas.
+
+- La gracia de Dios puede ser tomada en provecho para el creyente o ser en vano, el cryente puede estar aprovechando de la gracia de Dios por la fe, estar siendo participe en los planes y propositos de Dios (la iglesia), estar siendo lluminaria en el mundo, ser un instrumento e las manos de Diso por medio del cual se revela y realza la verdad del Evangelio. La gracia de Dios tiene proposito en la vida del creyente.
 
 ### Tito 2:11 
 Porque la gracia de Dios se ha manifestado, trayendo salvación a todos los hombres, 
@@ -725,7 +742,7 @@ enseñándonos, que negando la impiedad y los deseos mundanos, vivamos en este m
 ### enseñándonos
 
 ### que negando la impiedad y los deseos mundanos
-
+ 
 ### vivamos en este mundo sobria, justa y piadosamente
 
 ### Tito 2:13 
