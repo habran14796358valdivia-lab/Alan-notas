@@ -634,11 +634,13 @@ Muestrate - PARAKJO
 
 ##### Tito estaria mostrandose como ejemplo de lo que son buena obras (obras que son buenas), a continuacion dara una lista de lo que significa obras que son buenas.
 
-#### con pureza de doctrina
+#### con pureza de doctrina (revisar)
 
 ##### Mantener la pureza de la doctrina al momento de enseñar, esto contrasta con la deficiencia en creta, estaban cambiando la verdad por la mentira y el engaño. Literalmente ser ejemplo con una enseñanza incorruptible o incontaminada.
 
 #### con dignidad,
+
+##### Con doctrina pura con dignidad, palabras combinadas para expresar una misma idea, la doctrina (enseñanza) incorruptible y honorable. ¿Que quiere decir que sea digna? Pues que la enseñanza sea digna del honor que merece a causa de su valor. El valor de esta proviene del autor. Dios mismo.
 
 ### Tito 2:8 
 con palabra sana e irreprochable, a fin de que el adversario se avergüence al no tener nada malo que decir de nosotros.
