@@ -666,66 +666,78 @@ Adversario - ENANTIOS
 
 #### al no tener nada malo que decir de nosotros
 
-##### 
+##### La razon de su verguenza sera que no pueden condenar la verdad, pues su resultado al ser adoptado por la fe resulto en una verdaddera piedad que realsa la verdad de Dios, solo el poder de Dios "El Evangelio" en la vida del creyente puede hacer esto posible.
+
+- Ya que la conducta alinea con la profesion, no existe ningun reproce contra la verad "La palabra de Dios no es blasfemada"
+
+- ES una linea sucesiva de resultados "la sana doctrina que es segun el glorioso Evangelio de Dios" 1 Timoteo 1:10-11. Tito al enseñar lo que esta deacuerdo con la sana doctrina esta alineando al Evangelio ya que la sana enseñanza es conforme al Evangelio.
+
+- Asi mismo "el conocimiento de la verdad que es segun piedad con la esperanza de vida eterna" Tito 1:2. Este es el conociemiento del Evangelio "la verdad" como el conjunto de un todo, una persona y su obra Jesucristo, la verdad es coforme a la piedad.
+
+- Asi como es expresa "Indiscutilemente, grande es el misterio de la piedad: Dios fue manifestado en carne, justificado en Espiritu, visto de los angeles, predicado a los gentiles, creido en el mundo, recibido arriba en gloria" 1 Timoteo 3:16. Crito es la piedad, el unico que puede producir piedad en notrotros, el es el poder de Dios para los creyentes.
+
+##### Cuando un creyente vive esta verdad por la fe, el poder de Dios actuando en el la piedad ejercida en su vida la verdad de Dios es exaltada y adornada, y nadie puede refutar la verdad y al rechazarla son avergonzados por la verdad.
+
+##### Nota: La gracia de Dios no se queda inoperante en el creyente, la gracia de Dios "El Evangelio tiene proposito en la vida del creyente" esto se observara mas adelante "hemos sido salvados para".
 
 ### Tito 2:9 
 Exhorta a los siervos a que se sujeten a sus amos en todo, que sean complacientes, no contradiciendo, 
 
+### Exhorta a los siervos a que se sujeten a sus amos en todo
+
+### que sean complacientes
+
+### no contradiciendo
+
 ### Tito 2:10 
 no defraudando, sino mostrando toda buena fe, para que adornen la doctrina de Dios nuestro Salvador en todo respecto.
+
+### no defraudando
+
+### sino mostrando toda buena fe
+
+### para que adornen la doctrina de Dios nuestro Salvador en todo respecto
 
 ### Tito 2:11 
 Porque la gracia de Dios se ha manifestado, trayendo salvación a todos los hombres, 
 
+### Porque la gracia de Dios se ha manifestado
+
+### trayendo salvación a todos los hombres
+
 ### Tito 2:12 
 enseñándonos, que negando la impiedad y los deseos mundanos, vivamos en este mundo sobria, justa y piadosamente, 
+
+### enseñándonos
+
+### que negando la impiedad y los deseos mundanos
+
+### vivamos en este mundo sobria, justa y piadosamente
 
 ### Tito 2:13 
 aguardando la esperanza bienaventurada y la manifestación de la gloria de nuestro gran Dios y Salvador Cristo Jesús. 
 
+### aguardando la esperanza bienaventurada
+
+### y la manifestación de la gloria de nuestro gran Dios y Salvador Cristo Jesús
+
 ### Tito 2:14 
 Él se dio por nosotros, para redimirnos de toda iniquidad y purificar para Sí un pueblo para posesión Suya, celoso de buenas obras.
+
+### Él se dio por nosotros
+
+### para redimirnos de toda iniquidad
+
+### y purificar para Sí un pueblo para posesión Suya
+
+### celoso de buenas obras
 
 ### Tito 2:15 
 Esto habla, exhorta y reprende con toda autoridad. Que nadie te menosprecie.
 
-### Tito 2:9a "*Exhorta a los siervos a que se sujeten a sus amos en todo,...*"
+### Esto habla, exhorta y reprende con toda autoridad
 
-### Tito 2:9b "*que sean complacientes,...*"
-
-### Tito 2:9c "*no contradiciendo,...*"
-
-### Tito 2:10a "*no defraudando,...*"
-
-### Tito 2:10b "*sino mostrando toda buena fe,...*"
-
-### Tito 2:10c "*para que adornen la doctrina de Dios nuestro Salvador en todo respecto....*"
-
-### Tito 2:11a "*Porque la gracia de Dios se ha manifestado,...*"
-
-### Tito 2:11b "*trayendo salvación a todos los hombres,...*"
-
-### Tito 2:12a "*enseñándonos,...*"
-
-### Tito 2:12b "*que negando la impiedad y los deseos mundanos,...*"
-
-### Tito 2:12c "*vivamos en este mundo sobria, justa y piadosamente,...*"
-
-### Tito 2:13a "*aguardando la esperanza bienaventurada...*"
-
-### Tito 2:13b "*y la manifestación de la gloria de nuestro gran Dios y Salvador Cristo Jesús....*"
-
-### Tito 2:14a "*Él se dio por nosotros,...*"
-
-### Tito 2:14b "*para redimirnos de toda iniquidad...*"
-
-### Tito 2:14c "*y purificar para Sí un pueblo para posesión Suya,...*"
-
-### Tito 2:14d "*celoso de buenas obras....*"
-
-### Tito 2:15a "*Esto habla, exhorta y reprende con toda autoridad....*"
-
-### Tito 2:15b "*Que nadie te menosprecie....*"
+### Que nadie te menosprecie
 
 # Tito 3:1-15 Lo Bueno y Util a los hombres.
 
