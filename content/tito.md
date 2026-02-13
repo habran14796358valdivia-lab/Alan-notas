@@ -729,39 +729,65 @@ Defradando - NOSFIZOMAI
 
 - La gracia de Dios puede ser tomada en provecho para el creyente o ser en vano, el cryente puede estar aprovechando de la gracia de Dios por la fe, estar siendo participe en los planes y propositos de Dios (la iglesia), estar siendo lluminaria en el mundo, ser un instrumento e las manos de Diso por medio del cual se revela y realza la verdad del Evangelio. La gracia de Dios tiene proposito en la vida del creyente.
 
+##### Adornen es un verbo (presente, subjuntivo, activo) esto nos muestra que el adorno de la doctrina de Dios es una posibilidad, se vuelve real en base al resultado anterior, si esa vida de piedad esta siendo real en el cryente el resultado es que la doctrina de Dios es adornada, caso contrario le doctrina de Dios no es adornada y mas bien puede ser motivo de blasfemia si se exhibe impiedad. Tito 1:15-16
+
 ### Tito 2:11 
 Porque la gracia de Dios se ha manifestado, trayendo salvación a todos los hombres, 
 
-### Porque la gracia de Dios se ha manifestado
+#### Porque la gracia de Dios se ha manifestado
 
-### trayendo salvación a todos los hombres
+##### Aqui "la gracia" de Dios sera la protagonista, esta es la conclusion final, la respuesta de Pablo. ¿Como es que esta vida piadosa que alinea con al sana enseñanza, que alinea con la verdad, que realza la verdad de Dios, quer adorna su doctrina es posible?, ¿Que dispone el creyente?, ¿Que es lo que el cryente tiene que hacer?
+
+##### Pues en realidad la respuesta es mas facil de lo que imaginamos, esta vida es unicamente posible gracias a que Diso en su gracia a provisto de todo lo necesario. Por eso el verso comienza con "La Gracia de Dios se manifesto". si Dios ubiera ocultado su gracia ¿Que seria de nosotro?
+
+- "Manifestada" es un verbo (aoristo, indicativo, pasivo) esto quiere decir que es un hecho establecido, es una realida que la gracia de Dios se manifesto, el aoristo nos indica que el la manifesto en un punto del tiempo en el pasado, la voz pasiva que nosotros no fuimis los que la manifestamos , la gracia de Dios no esta presente por nuestra causa, alguin fue el responsable de manifestarla, la gracia de Dios es para nosotros.
+
+#### trayendo salvación a todos los hombres
+
+##### Esta frase es interesante "La gracia se maifesto", al ser revelada la gracia trajo salvacion. Esto es una realidad, cuando su gracia se manifesto Dios en ella proveyo salvacion. ¿De que manera la gracia trajo salvacion te debes estar preguntando? Haremos un pequeño parentesis.
+
+- Es un completa realida que la gracia de Dios trajo salvacion a todos los hombres por medio de su revelacion, su gracia abrio la puesta a la salvacion de todos, a traves de la persona de jesucristo, Dios se manifesto en carne, Dios mismo tomo forma de hombre el Dios-Hombre.
+
+- Dios manifesto su gracia ya planificada desde la eternida en la persona de Jesucristo, para traer salvacion al hombre quie padeia de dos problemas gigatesco, su condicion de pecador justamente condenado a muerte, y su evidente falta de Justicia, en esta condicion toda la humanidad estaba sumida en la perdicion, digna de ser condenada, rumbo hacia la muerte.
+
+- Gracias a Dios por su gracia, pues el hombre no podia hacer algo para pagar por su pecado, Dios a traves de Jesucristo proveyo de salvacion en El, Jesucristo cargo sobre si el pecado del mundo pago con muerte por el pecado, Cristo merecedor de Justicia perfecta, cargo los pecados volntariamente por amor de nosotros venciendo a la muerte siendo resucidado al tercer dia, Dios otorga vida eterna por medio de Jesucristop a todo aquel que cree en Jesucristo y obra.
+
+##### Dios a manifestado su gracia en la persona de jesucristo, esta bien pero ¿Que es la gracia de Dios para los que ya creimos? ¿Un creyente aun necesita de la gracia de Dios?. Pues de hecho si, Un cryente necesita de la gracia de Dios, es mas, a medida que vamos conocien mas acerca de nuestro salvador vamos viendo no solo que hemos necesitado de su gracia para justificarnos, sino que nesecitamos de su gracia en nuestro dia a dia (para la vida) y por su gracia sera que seremos glorificados. La gracia de Dios no solo fue, es y sera necesario, es !!!SUFICIENTE!!! 
 
 ### Tito 2:12 
 enseñándonos, que negando la impiedad y los deseos mundanos, vivamos en este mundo sobria, justa y piadosamente, 
 
-### enseñándonos
+#### enseñándonos
 
-### que negando la impiedad y los deseos mundanos
+##### La gracia de Dios se manifesto "enseñandonos", la gracia de Dios nos enseña esto es un verbo (presente, participio, activo) la Gracia es una maestra, una intructora, ella es una mestra de manera activa para los creyerntes ahora en el tiempo presente.
+
+##### Es curioso que muchas persona en la vida buscan un guia en su vida un maestro que les enseñe a vivir. Pues la gracia de Dios es nuestra maestra.
+
+#### que negando la impiedad y los deseos mundanos
+
+##### Aun que no se hace presente, aqui existe un "para" en el grigo lo cual indica un proposito "la gracia nos enseña para que".
+
+##### 
  
-### vivamos en este mundo sobria, justa y piadosamente
+#### vivamos en este mundo sobria, justa y piadosamente
 
 ### Tito 2:13 
 aguardando la esperanza bienaventurada y la manifestación de la gloria de nuestro gran Dios y Salvador Cristo Jesús. 
 
-### aguardando la esperanza bienaventurada
+#### aguardando la esperanza bienaventurada
 
-### y la manifestación de la gloria de nuestro gran Dios y Salvador Cristo Jesús
+#### y la manifestación de la gloria de nuestro gran Dios y Salvador Cristo Jesús
 
 ### Tito 2:14 
 Él se dio por nosotros, para redimirnos de toda iniquidad y purificar para Sí un pueblo para posesión Suya, celoso de buenas obras.
 
-### Él se dio por nosotros
+#### Él se dio por nosotros
 
-### para redimirnos de toda iniquidad
+#### para redimirnos de toda iniquidad
 
-### y purificar para Sí un pueblo para posesión Suya
+#### y purificar para Sí un pueblo para posesión Suya
 
-### celoso de buenas obras
+#### celoso de buenas obras
 
 ### Tito 2:15 
 Esto habla, exhorta y reprende con toda autoridad. Que nadie te menosprecie.
