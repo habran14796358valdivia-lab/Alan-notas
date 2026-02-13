@@ -765,18 +765,50 @@ enseñándonos, que negando la impiedad y los deseos mundanos, vivamos en este m
 
 #### que negando la impiedad y los deseos mundanos
 
-##### Aun que no se hace presente, aqui existe un "para" en el grigo lo cual indica un proposito "la gracia nos enseña para que".
+##### Aun que no se hace presente, aqui existe un "para" en el grigo lo cual indica un proposito "la gracia nos instruye para que".
 
-##### 
+##### "negando" es un verbo (aoristo, participio, medio) esto quiere decir que negar es una accion completada.
+
+Negando - ARNEOMAI
+: Significa negar, rehusara estar deacuerdo, desconocer, repudiar, rechazar, etc... Entonces teniendo encuenta la forma del verbo podemos decir "La gracia nos intruye para que habiendo rechazado o repudiado".
+
+##### Parece un poco confusa esta oración, sin embargo lo que hace es anteponer un compenete de la oracion a otra, esto no afecta lo que dira, el resultado de la gracia enseñandonos sera haber rechazado, repudiado la impiedad y los deseos mundanos, esta acion de rechazo sera a causa de la enseñanza de la gracia.
+
+- Nos enseña que repudiando la impiedad.
+
+Impiedad - ASEBEIA
+: Quiere decir literalmente "falta de reverencia" pero tambien se puede traducir como toda malicia o perversidad en pensamiento y accion contra Dios.
+
+- Nos enseña que repudiando los deseos mundanos. Los desos mundanos son literalmnete lo que dice los deseos que existen en el mundo, la tentacion del mundo con lo que puede ofrecer.
  
 #### vivamos en este mundo sobria, justa y piadosamente
+
+##### "para que...vivamos en este mundo" Pueden observar que la gracia de Dios nos enseña7intruye con el proposito de vivir en este mundo ¿Podemos pensar que vivir en el mundo es terrible para un creyente?. Pues no negamos esa realidad, el mundo estara siempre presente alrededor de nosotro con lo que puede ofrecer, sin embargo Dios ha provisto de un maestro de una guia que nos enseña a vivir en este mundo, nos enseña lo que es viva y a vivirla en deleite segun la verdad.
+
+#### podemos obser como no enseña a vivir la gracia dentro del mundo, el mundo se caracteriza por su moralidad, desenfreno, su sedicion a sus deseos, el mundo se maneja bajo su propio sistema controlado por satanas. Observe lo que la gracia puede hacer y como instruye al creyente a vivir de manera sobria, en justicia y en piedad.
+
+- La graciua con enseña a vivir de una manera cabal, moderada o con una mente sana, en contraste con el mundo entregado a sus deseos.
+
+- La gracia de Dios nos enseña a vivir en justicia, en justicia visible, en rectitud, en contrate con la injusticia del mundo.
+
+- La gracia de dios nos enseña a vivir piadosamente, en un vivir de piedad, esa reverencia en la vida, en contraste con la impiedad del mundo.
+
+##### Podemos ordenar el versiculo de la siguiente manera "La gracia se manifesto trayendo salvacion a todos los hombres, enseñandonos para que viviamos en este mundo sobria, justa y piadosamente habieno renunciado a la impiedad y los deseos mundano"
+
+##### La enseñanza de la gracia a vivir sobria, justa y piadosamente va acompañada de haber renunciado a la impiedad y los deseos del mundo. Dos resultados en una sola accion.
 
 ### Tito 2:13 
 aguardando la esperanza bienaventurada y la manifestación de la gloria de nuestro gran Dios y Salvador Cristo Jesús. 
 
 #### aguardando la esperanza bienaventurada
 
+##### La gracia de Dios no solo nos enseña para que vivamos, sino para que vivivamos con esperanza, y esto se manifiesta en que nos enseña a vivir esperando (aguardando) con paciencia y anehelo "la esperanza bienaventurada" 
+
+##### ¿Que esperan los cryentes? Pues aguardamos la esperanza de la redencion de nuestros cuerpos, aguardamos el dia de nuestra glorificacion, el dia en que seremos transformado a la imagen de nuestro Señor jesucristo en el dia que nos encontraremos con el en el aire y los los muertos en Cristo sean levantados para reunirse con el.
+
 #### y la manifestación de la gloria de nuestro gran Dios y Salvador Cristo Jesús
+
+##### la gracia de Dios nos enseña a vivir aguardando/esperando el dia de la revelacion de Jesucristo en su segunda venida donde Cristo sera manifestado de nuevo y todo el mundo lo vera. 
 
 ### Tito 2:14 
 Él se dio por nosotros, para redimirnos de toda iniquidad y purificar para Sí un pueblo para posesión Suya, celoso de buenas obras.
@@ -796,9 +828,13 @@ Esto habla, exhorta y reprende con toda autoridad. Que nadie te menosprecie.
 
 ### Que nadie te menosprecie
 
+
+
 # Tito 3:1-15 Lo Bueno y Util a los hombres.
 
 ## Dispuestos para toda buena obra por su misericordia.
+
+
 
 ### Tito 3:1a "*Recuérdales que estén sujetos a los gobernantes, a las autoridades;...*"
 
