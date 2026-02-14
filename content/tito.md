@@ -885,26 +885,46 @@ Recuérdales que estén sujetos a los gobernantes, a las autoridades; que sean o
 
 #### Recuérdales que estén sujetos a los gobernantes, a las autoridades
 
+##### EL versiculo 1 y 2 estan llenos de verbos en modo infinitivo ¿Que quiere decir esto? Bueno, el modo infinitivo se caracteriza por no enfocarse en el sujeto o tiempo, se enfoca en los aspectos del verbo, enfatiza la accion que ocurre. Ademas resalta como esa accion se desarrolla, no es un mandato, no es un hecho o una posibilidad. Es una accion que se desarrolla.
+
+##### Para con los creyente quiere expresar que en ellos se pueda estar desarrollando estas aciones que veremos (que sean parte de ellos) "ser sujetos", "sean obedientes", "esten preparados", " no ser injurioso", "no ser contencioso". Es curios observar ahora como estas acciones que se mencionaran aliean con una vida piadosa.
+
 ##### Tito es instruido con un mandato a "recordarles" o traerles a la memoria de los creyente en creta a que "essten siendo sujetos", es interesant plantear la pregunta ¿Como deberiamos responder ante el gobierno del pais (autoridades)? Pues hoy en dia muchos creyentes tiene una postura politica lo cual no esta mal, sin embargo nuestra sujecion a las autoridade se basa en quien gobierna el pais, pero eso no decribe aqui. Este recordatorio es indifentent del gobernate, vivimos en un pais con leyes y autoridades, la realidad es que mientras vivamos en un pais estamos sujetos ellos.
 
-##### "sujetos" es un verbo (presente, infinitivo, pasivo) lo cual describe una acion en proceso o continua, nos recuerda a "estar sujetos" o estar bajo de, la voz pasiva nos indica que nosotros no somos los que nos sujentamos sino de "dejarse estar siendo sujeto" por alguin mas en este caso a los gobernante y autoridades. En otras palabras dejarse gobernar.
+##### "sujetos" es un verbo (presente, infinitivo, pasivo) lo cual describe una acion en proceso o continua, nos recuerda a "estar sujetos" o estar bajo de, la voz pasiva nos indica que nosotros no somos los que nos sujentamos sino de "dejarse estar siendo sujeto" por alguien mas en este caso a los gobernante y autoridades. En otras palabras dejarse gobernar.
 
-### que sean obedientes
+#### que sean obedientes
 
-#### 
+#### Recuerdales "que san obedientes" este verbo es (presente, infinitivo, activo), no dice "tu cyeyente debes ser obediente", al ser un infinitivo esta centrado en la accion en particular indiferente del sujeto, la accion de obediencia esta en proceso o llevando acabo de manera activa.
 
-### que estén preparados para toda buena obra
+- El contexto nos define al sujeto "creyentes" estos verbos se pueden entender como "Que en nosotros se este desaroolando esta acion de dejarse ser sujeto y obediente" en relacion con las autoridades y gobernantes.
+
+#### que estén preparados para toda buena obra
+
+##### A "ser presto" o "estar preparado", Que en nosotro esto se pueda desarrollar que estemos listos para toda buena obra. La carta no detalla tipos de buenas obras, sin embargo mas alla de querer saber ¿que clase de buenas obras" el efasis esta en que en nosotros este el estar listos para estar siendo participes de toda obra buena. 
+
+##### Es curioso indagar aun mas, las buenas obras abundan. Dios ha preparado de antemano buenas obras, en la cuales podemos estar siendo participes, esto es una verdad hemos sido creados en Cristo (nueva creacion) con el proposito de participar en buenas obras. Como creyentes (nueva creacion) estamos habilitados para participar de buenas obras, un contraste con los incredulos que sus obras/justicias son inmundicia.Como creyentes habilitados para buenas obras podemos volvernos inutiles para las buenas obras, esto lo vemos en Tito 1:15-16, donde por causa de cambiar la verdad (estar corrompido) se han vuelto rebeldes e inutiles para toda buena obra.
+
+##### Aqui vemos algo ¿Dios quiere que los creyente participen/anden en buenas obras?, Si, es por eso que las preparo, ¿Quiere Diso que estemos listos para toda buena obra? Claro que si, como hemos de andar o participar de ellas si no estamos listo. La pregunta real del millon ¿Como me preparo, que debo hacer para estar listo? Bueno el texto nunca nos dice como preaparar o estar listo, estar preparado es una acion que aliden acon una conducta de piedad, es parte de una vida piadosa, en la carta heos visto como la gracia de Dios a sido provita apara enseñarnos a vivir, ademas de como Crito se dio para redimir y purificar para si un pueblo que anehela obras buenas, asi como ser corrompido, volvio a unos inutiles para buenas obras.
 
 ### Tito 3:2 
 Que no injurien a nadie, que no sean contenciosos, sino amables, mostrando toda consideración para con todos los hombres.
 
-### Que no injurien a nadie
+#### Que no injurien a nadie
 
-### que no sean contenciosos
+Injuriar - BLASFEMEO
+: Significa hablar profanamente, e este caso con el sentido de traspasar lo santo y bueno, tambien significa, maldecir, ultrajar, habalr impiamente, maliciosamente o dede el mal, insultar.
 
-### sino amables
+##### Volvemos a los infinitivos, la accion aqui es injuriar, que en nosotros no se desarrolle esta accion de injuriar a alguien.
 
-### mostrando toda consideración para con todos los hombres
+#### que no sean contenciosos, sino amables
+
+Contencioso - AMAKJOS
+: Quiere dec ir alguien que busca provocar pelea, una persona pendenciera, esto habal de alguien que esta predispuesto a peleas.
+
+##### Cuando vamos al griego encontramos el verbo "ser" delante de estas dos caracteristicas/adjetivos "no contencioso y amable". Buen el verbo ser se encuentra en modo infinitivo esta demotando el estado del ser o una identidad "EL es", estars caracteristicas resaltan pues estas aciones de no ser peleonero y ser amable son parte de su identidad.
+
+#### mostrando toda consideración para con todos los hombres
 
 ### Tito 3:3 
 Porque nosotros también en otro tiempo éramos necios, desobedientes, extraviados, esclavos de deleites y placeres diversos, viviendo en malicia y envidia, aborrecibles y odiándonos unos a otros. 
