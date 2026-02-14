@@ -808,27 +808,73 @@ aguardando la esperanza bienaventurada y la manifestación de la gloria de nuest
 
 #### y la manifestación de la gloria de nuestro gran Dios y Salvador Cristo Jesús
 
-##### la gracia de Dios nos enseña a vivir aguardando/esperando el dia de la revelacion de Jesucristo en su segunda venida donde Cristo sera manifestado de nuevo y todo el mundo lo vera. 
+##### La gracia de Dios nos enseña a vivir aguardando/esperando el dia de la revelacion de Jesucristo en su segunda venida donde Cristo sera manifestado de nuevo y todo el mundo lo vera. 
 
 ### Tito 2:14 
 Él se dio por nosotros, para redimirnos de toda iniquidad y purificar para Sí un pueblo para posesión Suya, celoso de buenas obras.
 
 #### Él se dio por nosotros
 
+##### Este verso es la conclucion del proposito de la gracia de Dios en la vida del creyente, Jesucristo se dio (entrego) este esun verbo (aoristo, indicativo, activo) esto no habla de una hecho cumplido real, Jesucristo se entrego po nuestros pecados, tomando nuestro lugar sobre el cual cayo la muerte por el pecado.
+
+##### El texto es enfatico, retrocede a un evento consumado terminado, el Evangelio. Podemso notar la direccion de la accion de Cristo por nosotros.
+
 #### para redimirnos de toda iniquidad
+
+##### Observemos el proposito "para" Cristo se entrego en nuestro lugar (se dirige a creyentes, pablo tambien se incluye) para, redimirnos esto es un verbo (aoristo, subjuntivo, medio) esto nos indica que la acion de redencion (ser libres por rescate) es una cion completa, quiere decir que eres completamente redimido no parciamente, la causa por que Crito se entrego, sin embargo el verbo no afirma qu esto sea un hecho o una realidad, si que es una acion completa de redencion, el modo subjuntivo expresa la posiblidad de la acion, la voz media indica que el sujeto (Cristo) es el directo involucrado en la accion de redimir.
+
+##### Entonces si esto esta acion completa de redencion por parte de Cristo es una posibilidad, ¿En base a que se condiciona? Pues muy buena pregunta. Sigamos observando una poco mas. 
+
+- Primero, Pablo se esta dirigiendo a creyetes (salvos/justificados).
+
+- Segundo, el contexto anterior nos habla de como Dios a manifestado su gracia que nos enseña a vivir sobria, justa y piadosamnete "habiendo renunciado a la impieda y deseos mundanos".
+
+- Tercero, Pablo presenta a un creyente un hecho real "Cristo se entrego" para inducir un proposito.
+
+- Cuarto, la entrega de Crito funge con un fundamento para una posible redencion para el creyente (santificacion), 
+
+##### Conclusion, es una realida que Cristo ya se entrego por causa de nuetra inuquidades (justificacion) pero, no debemos olvida que el creyente tambien necesita ser salvado en el tiempo presente (santificacion). la gracia de Dios fue provista para el creyente hoy (presente),en la persona de Cristo y es en el fundamento de la entrega de Cristo por nosotros que si el creyente toma provecho de la gracia de Dios por la fe estara siendo redimido de toda iniquidad.
+
+##### En base a que si el creyente esta tomando provecho de la graciua de Dios por la fe "El evangelio" en su vida diaria (vivir por fe), el poder de Dios siendo activo en el creyente este estara siendo redimido de toda iniquidad, mientras esta condicion se cumpla, caso contarrio no.
+
+- Tomemos en cuenta que esta siendo redimido de toda iniquidad.
+
+Iniquidad - ANOMIAS
+: Significa un rechazo de toda ley misma, una rebelion en contra de la voluntad conocida de Dios, habla de una depravacion mental, en toda malicia e inmoralidad
 
 #### y purificar para Sí un pueblo para posesión Suya
 
+##### La conclusion continua "El se dio por nosotros para" purificar para si un pueblo para posecion suya, estos segundos "paras" no estan indicando proposito sino posesion o pertenencia.
+
+##### Cristo se entrego no solablete con el proposito de redimirnos sino tambien para purificarnos este verbo igualmente se encuenta en (aorito, subjuntivo, activo). Queriendo expresar lo mismo que la redencion, Crito se dio para purificar al creyente como accion completa, sijeto a una posiblilidad, la voz actiza no smuetra que cristo mismo es que hara la puerificacion. Esto esta sujeto a la misma condicion, Si el cryente toma provecho de la gracia d Dios por la fe. Gálatas 2:24
+
+##### La direccion del proposito es hacia Crito, el se dio por nosotros para que en el provecho de su gracia "su misma persona" redima y purifique un pueblo especial de su pertenencia. Impresionante por takl razon Pablo expresa en galatas que no deshecha la gracia de Dios.
+
+##### Cristo quiere santificarnos, purificarnos, transformarnos, para presentarnos al Padre como algo preciado. Colosenses 1:21-22
+
 #### celoso de buenas obras
+
+##### El remate, este pueblo redimido y purificado por Cristo es celoso, ansioso, un pueblo que anehela buenas obras, "ellos anhela las buenas obras" ser parte de ellas. 
 
 ### Tito 2:15 
 Esto habla, exhorta y reprende con toda autoridad. Que nadie te menosprecie.
 
-### Esto habla, exhorta y reprende con toda autoridad
+#### Esto habla, exhorta y reprende con toda autoridad
 
-### Que nadie te menosprecie
+##### Este podria ser el versiculo con mas mandamientos. Estas palabras expresadas en la carta son de suma importancia, los hermanos necesitaban "El Evangelio", necesitaban la verdad, miren lo que esla gracia de dios y su provision para ellos.
 
+##### Tito esta mandado a "hablar", "exhortar" y "reprender" todo lo que concierne a la verdad.
 
+RePrender - ELENKJO
+: Quiere decir "poner al decubierto", solemos tener una mala comprencion de la palbra reprender, no tiene la intencion de regaño sino de sacar a la luz todas la cosas y por medio de eso dejar convicto o en tela de juicio todo a la luz de la verdad.
+
+##### Estos tres verbos son mandatos hacia Tito. sin embargo no pensemos que todos en la iglesia estamos conictos de estas verdades, puesto que la enseñanza de tito es para todos nosotros.
+
+##### La autoridad conla que Tito haria esto, no solo vendria de "Pablo" mas aun que pablo es la autoridad de Cristo la misma que es hoy la autorida de Cristo por medio de la escritura.
+
+#### Que nadie te menosprecie
+
+##### Tito esta convicto de declarar la verdad con la autoridad de Cristo, Tito no estaba comicionado a establer su autoridad o exhigir autoridad. En cambio a confiar en la autoridad del Evangelio de Cristo. Seguramente a causa de la juventud de Tito existiria el menosprecio de miembros de la iglesia, sin embargo Tito no debia ser menos presiado por los demas a causa de las palabras que estaba encomendado a habla con ellos.
 
 # Tito 3:1-15 Lo Bueno y Util a los hombres.
 
