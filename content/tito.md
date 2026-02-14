@@ -880,119 +880,165 @@ RePrender - ELENKJO
 
 ## Dispuestos para toda buena obra por su misericordia.
 
+### Tito 3:1
+Recuérdales que estén sujetos a los gobernantes, a las autoridades; que sean obedientes, que estén preparados para toda buena obra. 
 
+### Recuérdales que estén sujetos a los gobernantes, a las autoridades
 
-### Tito 3:1a "*Recuérdales que estén sujetos a los gobernantes, a las autoridades;...*"
+### que sean obedientes
 
-### Tito 3:1b "*que sean obedientes,...*"
+### que estén preparados para toda buena obra
 
-### Tito 3:1c "*que estén preparados para toda buena obra....*"
+### Tito 3:2 
+Que no injurien a nadie, que no sean contenciosos, sino amables, mostrando toda consideración para con todos los hombres.
 
-### Tito 3:2a "*Que no injurien a nadie,...*"
+### Que no injurien a nadie
 
-### Tito 3:2b "*que no sean contenciosos,...*"
+### que no sean contenciosos
 
-### Tito 3:2c "*sino amables,...*"
+### sino amables
 
-### Tito 3:2d "*mostrando toda consideración para con todos los hombres....*"
+### mostrando toda consideración para con todos los hombres
 
-### Tito 3:3a "*Porque nosotros...*"
+### Tito 3:3 
+Porque nosotros también en otro tiempo éramos necios, desobedientes, extraviados, esclavos de deleites y placeres diversos, viviendo en malicia y envidia, aborrecibles y odiándonos unos a otros. 
 
-### Tito 3:3b "*también en otro tiempo éramos necios...*"
+### Porque nosotros
 
-### Tito 3:3c "*desobedientes,...*"
+### también en otro tiempo éramos necios
 
-### Tito 3:3d "*extraviados,...*"
+### desobedientes
 
-### Tito 3:3e "*esclavos de deleites y placeres diversos,...*"
+### extraviados
 
-### Tito 3:3f "*viviendo en malicia y envidia,...*"
+### esclavos de deleites y placeres diversos
 
-### Tito 3:3g "*aborrecibles y odiándonos unos a otros....*"
+### viviendo en malicia y envidia
 
-### Tito 3:4a "*Pero cuando se manifestó la bondad de Dios nuestro Salvador,...*"
+### aborrecibles y odiándonos unos a otros
 
-### Tito 3:4b "*y Su amor hacia la humanidad,...*"
+### Tito 3:4 
+Pero cuando se manifestó la bondad de Dios nuestro Salvador, y Su amor hacia la humanidad, 
 
-### Tito 3:5a "*Él nos salvó,...*"
+### Pero cuando se manifestó la bondad de Dios nuestro Salvador
 
-### Tito 3:5b "*no por las obras de justicia que nosotros hubiéramos hecho,...*"
+### y Su amor hacia la humanidad
 
-### Tito 3:5c "*sino conforme a Su misericordia,...*"
+### Tito 3:5 
+Él nos salvó, no por las obras de[a] justicia que nosotros hubiéramos hecho, sino conforme a Su misericordia, por medio del lavamiento de la regeneración y la renovación por el Espíritu Santo, 
 
-### Tito 3:5d "*por medio del lavamiento de la regeneración...*"
+### Él nos salvó
 
-### Tito 3:5e "*y la renovación por el Espíritu Santo,...*"
+### no por las obras de justicia que nosotros hubiéramos hecho
 
-### Tito 3:6a "*que Él derramó sobre nosotros abundantemente...*"
+### sino conforme a Su misericordia
 
-### Tito 3:6b "*por medio de Jesucristo nuestro Salvador,...*"
+### por medio del lavamiento de la regeneración
 
-### Tito 3:7a "*para que justificados por Su gracia...*"
+### y la renovación por el Espíritu Santo
 
-### Tito 3:7b "*fuéramos hechos herederos según la esperanza de la vida eterna....*"
+### Tito 3:6 
+que Él derramó sobre nosotros abundantemente por medio de Jesucristo nuestro Salvador, 
 
-### Tito 3:8a "*Palabra fiel es esta;...*"
+### que Él derramó sobre nosotros abundantemente
 
-### Tito 3:8b "*y en cuanto a estas cosas quiero que hables con firmeza,...*"
+### por medio de Jesucristo nuestro Salvador
 
-### Tito 3:8c "*para que los que han creído en Dios...*"
+### Tito 3:7 
+para que justificados por Su gracia fuéramos hechos herederos según la esperanza de la vida eterna[b].
 
-### Tito 3:8d "*procuren ocuparse en buenas obras....*"
+### para que justificados por Su gracia
 
-### Tito 3:8e "*Estas cosas son buenas y útiles para los hombres....*"
+### fuéramos hechos herederos según la esperanza de la vida eterna
+
+### Tito 3:8 
+Palabra fiel es esta; y en cuanto a estas cosas quiero que hables con firmeza, para que los que han creído en Dios procuren ocuparse en buenas obras. Estas cosas son buenas y útiles para los hombres. 
+
+### Palabra fiel es esta;
+
+### y en cuanto a estas cosas quiero que hables con firmeza
+
+### para que los que han creído en Dios
+
+### procuren ocuparse en buenas obras
+
+### Estas cosas son buenas y útiles para los hombres
 
 ## Un contraste, lo que no es bueno, ni útil.
 
-### Tito 3:9a "*Pero evita controversias necias...*"
+### Tito 3:9 
+Pero evita controversias necias, genealogías, contiendas y discusiones acerca de la ley, porque son sin provecho y sin valor. 
 
-### Tito 3:9b "*genealogías,...*"
+### Pero evita controversias necias
 
-### Tito 3:9c "*contiendas...*"
+### genealogías
 
-### Tito 3:9d "*y discusiones acerca de la ley,...*"
+### contiendas
 
-### Tito 3:9e "*porque son sin provecho y sin valor....*"
+### y discusiones acerca de la ley
 
-### Tito 3:10a "*Al hombre que cause divisiones,...*"
+### porque son sin provecho y sin valor
 
-### Tito 3:10b "*después de la primera y segunda amonestación, recházalo,...*"
+### Tito 3:10 
+Al hombre que cause divisiones, después de la primera y segunda amonestación, recházalo, 
 
-### Tito 3:11a "*sabiendo que el tal es perverso y está pecando,...*"
+### Al hombre que cause divisiones
 
-### Tito 3:11b "*habiéndose condenado a sí mismo....*"
+### después de la primera y segunda amonestación, recházalo
+
+### Tito 3:11 
+sabiendo que el tal es perverso y está pecando, habiéndose condenado a sí mismo.
+
+### sabiendo que el tal es perverso y está pecando
+
+### habiéndose condenado a sí mismo
+
 
 ## Instrucción personal, nuestros compañeros.
 
-### Tito 3:12a "*Cuando te envíe a Artemas o a Tíquico,...*"
+### Tito 3:12 
+Cuando te envíe a Artemas o a Tíquico, procura venir a verme en Nicópolis, porque he decidido pasar allí el invierno. 
 
-### Tito 3:12b "*procura venir a verme en Nicópolis,...*"
+### Cuando te envíe a Artemas o a Tíquico
 
-### Tito 3:12c "*porque he decidido pasar allí el invierno....*"
+### procura venir a verme en Nicópolis
 
-### Tito 3:13a "*Encamina con diligencia a Zenas,...*"
+### porque he decidido pasar allí el invierno
 
-### Tito 3:13b "*intérprete de la ley, y a Apolos,...*"
+### Tito 3:13 
+Encamina con diligencia a Zenas, intérprete de la ley, y a Apolos, para que nada les falte. 
 
-### Tito 3:13c "*para que nada les falte....*"
+### Encamina con diligencia a Zenas
+
+### intérprete de la ley, y a Apolos
+
+### para que nada les falte.
+
 
 ## Ultima petición, los casos de necesidad.
 
-### Tito 3:14a "*Y que los nuestros...*"
+### Tito 3:14 
+Y que los nuestros aprendan a ocuparse en buenas obras, atendiendo a las necesidades apremiantes, para que no estén sin fruto.
 
-### Tito 3:14b "*aprendan a ocuparse en buenas obras,...*"
+### Y que los nuestros
 
-### Tito 3:14c "*atendiendo a las necesidades apremiantes,...*"
+### aprendan a ocuparse en buenas obras
 
-### Tito 3:14d "*para que no estén sin fruto....*"
+### atendiendo a las necesidades apremiantes
+
+### para que no estén sin fruto
+
 
 ## Saludos Finales.
 
-### Tito 3:15a "*Todos los que están conmigo te saludan....*"
+### Tito 3:15 
+Todos los que están conmigo te saludan. Saluda a los que nos aman en la fe.
 
-### Tito 3:15b "*Saluda a los que nos aman en la fe....*"
+### Todos los que están conmigo te saludan
 
-### Tito 3:15c "*La gracia sea con todos ustedes....*"
+### Saluda a los que nos aman en la fe
+
+### La gracia sea con todos ustedes
 
 
 referencias.
