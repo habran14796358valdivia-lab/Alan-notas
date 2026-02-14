@@ -883,9 +883,15 @@ RePrender - ELENKJO
 ### Tito 3:1
 Recuérdales que estén sujetos a los gobernantes, a las autoridades; que sean obedientes, que estén preparados para toda buena obra. 
 
-### Recuérdales que estén sujetos a los gobernantes, a las autoridades
+#### Recuérdales que estén sujetos a los gobernantes, a las autoridades
+
+##### Tito es instruido con un mandato a "recordarles" o traerles a la memoria de los creyente en creta a que "essten siendo sujetos", es interesant plantear la pregunta ¿Como deberiamos responder ante el gobierno del pais (autoridades)? Pues hoy en dia muchos creyentes tiene una postura politica lo cual no esta mal, sin embargo nuestra sujecion a las autoridade se basa en quien gobierna el pais, pero eso no decribe aqui. Este recordatorio es indifentent del gobernate, vivimos en un pais con leyes y autoridades, la realidad es que mientras vivamos en un pais estamos sujetos ellos.
+
+##### "sujetos" es un verbo (presente, infinitivo, pasivo) lo cual describe una acion en proceso o continua, nos recuerda a "estar sujetos" o estar bajo de, la voz pasiva nos indica que nosotros no somos los que nos sujentamos sino de "dejarse estar siendo sujeto" por alguin mas en este caso a los gobernante y autoridades. En otras palabras dejarse gobernar.
 
 ### que sean obedientes
+
+#### 
 
 ### que estén preparados para toda buena obra
 
