@@ -943,11 +943,18 @@ Porque nosotros también en otro tiempo éramos necios, desobedientes, extraviad
 
 ##### Esto es justamente lo que estos versos hara, nostros hermanos lo mismo que los demas, igual de perversos que los hombres, Entonces ¿Que es lo diferente? ¿de donde viene una conducta asi?, ¿Cual es su base, su origen, su poder para que esto sea una posibilidad en la vidad del creyente?. Bueno deberemos de esperan un poco mas.
 
-##### Nosotros eramos, este verbo es (inperfecto, indicativo, activo) expresa uan accion pasada ya completada, significa que en el tiempo presente ya no somos fuimos en algun momento
+##### Nosotros eramos, este verbo es (inperfecto, indicativo, activo) expresa uan accion pasada ya completada, significa que en el tiempo presente ya no somos fuimos en algun momento, al igual que los hombres nosotro en una epoca fuimos necios.
+
+Necio - ANOETOS
+: quiere decir sin inteligencia, tonto o ignorante, esta era nuestra condicion, ingnorantes en cuanto a la verdad, tontos confiando en nuestra propia verdad.
 
 #### desobedientes, extraviados
 
-#### 
+Desobedientes - APEITHES
+:
+
+Extraviados - PLANAO
+:
 
 #### esclavos de deleites y placeres diversos
 
