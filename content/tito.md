@@ -939,7 +939,7 @@ Porque nosotros también en otro tiempo éramos necios, desobedientes, extraviad
 
 ##### Pablo y Tito estaran incluidos es esta descripcion "nosotros". En otro tiempo, estra frase esta marcando un contraste, antes de este presente como creyentes o mejor dicho antes de ser creyentes, nosotros heramos igual que los hombres del mundo (incredulos). 
 
-##### El verso cuatro marcara una contrase entre dos grupos creyentes y su conductra, los hombres y su conducta. Imaginen el mundo esta sumido en lo que el mundo quiere, inmoralidad, maldad, deseos etc... Y esto es normal para los hombres del mundo
+##### El verso cuatro marcara una contrase entre dos grupos creyentes y su conducta, los hombres y su conducta. Imaginen el mundo esta sumido en lo que el mundo quiere, inmoralidad, maldad, deseos etc... Y esto es normal para los hombres del mundo, realza esta piedad exhibida por parte de los creyente en un mundo totalmente opuesto 
 
 #### desobedientes, extraviados
 
