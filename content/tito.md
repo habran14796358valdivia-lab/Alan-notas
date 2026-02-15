@@ -941,6 +941,10 @@ Porque nosotros también en otro tiempo éramos necios, desobedientes, extraviad
 
 ##### El verso cuatro marcara una contrase entre dos grupos creyentes y su conducta, los hombres y su conducta. Imaginen el mundo esta sumido en lo que el mundo quiere, inmoralidad, maldad, deseos etc... Y esto es normal para los hombres del mundo, realza esta piedad exhibida por parte de los creyente en un mundo totalmente opuesto. Aunque esta piedad marca una diferencia, no debemos pensar que solo debemos portarnos bien, esto tiene un impacto para con los hombres por causa de en que se origina esta piedad, esto no es producto del esfuerzo del creyente, esta piedad esta rezarltando la verdad de Dios "El Evangelio"
 
+##### Esto es justamente lo que estos versos hara, nostros hermanos lo mismo que los demas, igual de perversos que los hombres, Entonces ¿Que es lo diferente? ¿de donde viene una conducta asi?, ¿Cual es su base, su origen, su poder para que esto sea una posibilidad en la vidad del creyente?. Bueno deberemos de esperan un poco mas.
+
+##### Nosotros eramos, este verbo es (inperfecto, indicativo, activo) expresa uan accion pasada ya completada, significa que en el tiempo presente ya no somos fuimos en algun momento
+
 #### desobedientes, extraviados
 
 #### 
