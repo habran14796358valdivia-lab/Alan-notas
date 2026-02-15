@@ -920,28 +920,36 @@ Injuriar - BLASFEMEO
 #### que no sean contenciosos, sino amables
 
 Contencioso - AMAKJOS
-: Quiere dec ir alguien que busca provocar pelea, una persona pendenciera, esto habal de alguien que esta predispuesto a peleas.
+: Quiere decir alguien que busca provocar pelea, una persona pendenciera, esto habal de alguien que esta predispuesto a peleas.
 
-##### Cuando vamos al griego encontramos el verbo "ser" delante de estas dos caracteristicas/adjetivos "no contencioso y amable". Buen el verbo ser se encuentra en modo infinitivo esta demotando el estado del ser o una identidad "EL es", estars caracteristicas resaltan pues estas aciones de no ser peleonero y ser amable son parte de su identidad.
+##### Cuando vamos al griego encontramos el verbo "ser" delante de estas dos caracteristicas/adjetivos "no contencioso y amable". Buen el verbo ser se encuentra en modo infinitivo esta demotando el estado del ser o una identidad "EL es", estas caracteristicas resaltan pues estas aciones de no ser peleonero y ser amable son parte de su identidad.
 
 #### mostrando toda consideración para con todos los hombres
+
+##### Ademas de todas la aciones mencionadas los creyente pueden estar siedo caracterizados como los que muestran toda concideracion a todos los hombres, mostrando es un verbo (presente, participio, medio) los creyentes estarian beneficiando de esta exhibicion de dulzura
+
+##### En el verso 1 y 2 se manda a que se recuerde a los creyente de aciones que alinean con una conducta piadosa, lo curioso es que los beneficiados o receptores no se menciona que sen creyentes, Pablo menciona a las autoridad, gobernantes y a los hombres en general, podemos ver como es que vivir siendo enseñado bajo la gracia de Dios nos conduce a tambien extender gracia para con todos. No solo mostramos piedad entre nosotros, sino tambien para con los de afuera.
+
+##### Bueno el texto nos dara una razon de esta conducta para con los hombres.
 
 ### Tito 3:3 
 Porque nosotros también en otro tiempo éramos necios, desobedientes, extraviados, esclavos de deleites y placeres diversos, viviendo en malicia y envidia, aborrecibles y odiándonos unos a otros. 
 
-### Porque nosotros
+#### Porque nosotros también en otro tiempo éramos necios
 
-### también en otro tiempo éramos necios
+##### Pablo y Tito estaran incluidos es esta descripcion "nosotros". En otro tiempo, estra frase esta marcando un contraste, antes de este presente como creyentes o mejor dicho antes de ser creyentes, nosotros heramos igual que los hombres del mundo (incredulos). 
 
-### desobedientes
+##### El verso cuatro marcara una contrase entre dos grupos creyentes y su conductra, los hombres y su conducta. Imaginen el mundo esta sumido en lo que el mundo quiere, inmoralidad, maldad, deseos etc... Y esto es normal para los hombres del mundo
 
-### extraviados
+#### desobedientes, extraviados
 
-### esclavos de deleites y placeres diversos
+#### 
 
-### viviendo en malicia y envidia
+#### esclavos de deleites y placeres diversos
 
-### aborrecibles y odiándonos unos a otros
+#### viviendo en malicia y envidia
+
+#### aborrecibles y odiándonos unos a otros
 
 ### Tito 3:4 
 Pero cuando se manifestó la bondad de Dios nuestro Salvador, y Su amor hacia la humanidad, 
