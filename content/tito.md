@@ -951,12 +951,24 @@ Necio - ANOETOS
 #### desobedientes, extraviados
 
 Desobedientes - APEITHES
-:
+: Significa impersuadible, alguien que no puede ser convencido, se lo armoniza con reberlde por esta caracteristica. Nosotros eramos asi enterquesidos en nosotros mismos nadie nos podia convencer de algo.
+
+##### Necio y desobediente son adjetivos, caracteristicas nuestra en otro tiempo.
 
 Extraviados - PLANAO
-:
+: Quiere decir deambular, desviarse de la verdad, engañar. Esta palabra no es una caracteristica simplemente.
+
+##### Extraviado es un verbo (presente, participio, pasivo), nosotros en otra epoca estabamos siendo los que se extrabiaban o los que se engañanan o desvian de la verdad.
 
 #### esclavos de deleites y placeres diversos
+
+##### En otra epoca nosotros eramos sirvientes de los deseo y placeres, "esclavos" es un verbo (presente, participio, activo), nosotros estabamos siendo sirvientes esclavos de los deseos y placeres.
+
+Deseos - EPITHUMIA
+: Esta palabra esta aludiendo a todo tipo de deseos, muchas veces podemos pensar que todos tenemos deseo, es algo normal, uno puede tener deseos buenos o malos, sin embargo esta palabra no trata una diferencia, enfatiza el deso como el querer del hombre. El contexto nos habla de ser esclavos de los deseos, no si son buenos o malos.
+
+Placeres - JEDONE
+: Esta palabra involucra toda actividad, pensamiento o accion fisica que satisface al hombre. El contexto nos muestra como eramos esclavos de los sentidos, 
 
 #### viviendo en malicia y envidia
 
