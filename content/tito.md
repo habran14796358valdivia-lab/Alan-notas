@@ -1203,17 +1203,29 @@ Regeneracion - PALINGENESIA
 
 #### y la renovación por el Espíritu Santo
 
-##### Nos salvo por medio de la renovacion por el Espiritu Santo
+Renovacion - ANAKAINOSIS
+: Se compone de 2 palabras ANA (significa otra vez o de nuevo) y KAINOS (significa nuevo) en sintesis la palabra da la ide a ser hecho nuevo, tambien sugiere la idea de transformacion, contrasta el pasado y el presente, ser renovado o transformado, no involucra restaurar algo viego o aornar algo viejo sino mas bien el de hacer algo diferente a lo que era lo viejo algo nuevo. Renovacion tamien implica la idea del ser.
+
 
 ### Tito 3:6 
 que Él derramó sobre nosotros abundantemente por medio de Jesucristo nuestro Salvador, 
 
 #### que Él derramó sobre nosotros abundantemente
 
+##### Dios realizo esta una nueva creacion y una renovacion por medio del Espiritu Santo. Esto ocuriio cuando Dios derramo el Espiritu Santo sobre nosotros, "derramo" es un verbo (aoristo, indicativo, activo) es una acion completa y real que Dios ya derramo su Espiritu sobre nosotros (creyentes).
+
+##### Dios no derramo su Espiritu por partes o mezquinandose, lo hizo de manera abundante, de una manera completa.
+
 #### por medio de Jesucristo nuestro Salvador
 
+##### El texto en estos versiculos comienza con el hecho "Dios nos salvo" y comienza a desarrollar como esa ssalvacion fue posible hasta llegar a la persona de Jesucrsto, nuestra salvacion fue por medio de el, el es la bondad, el amor de Dios manifestado, Dios tuvo misericordia de nosotros en la persona de Cristo, la nueva cracion y la renovacion, el derramaniento el Espiritu Santo en nosotros es por medio de Cristo.
+
+##### Lo que hoy somos creyentes, salvados, transformados, solo fue posible en Jesucristo por medio de quien Dios nos salvo. El titulo de Salvador es correcto en El, el fue quien se dio para salvarnos y en quien hay saslvacion.
+
+##### Entonces aquella vidad de piedad es posible unicamente en Cristo, esa contraste que Pablo marca entre que "sean asi" mostrando toda ternura a los hombres es posible por que Dios nos salvo y su poder actuando en nosotros, su gracia enseñandonos a vivir es posible vivir piadosamente.
+
 ### Tito 3:7 
-para que justificados por Su gracia fuéramos hechos herederos según la esperanza de la vida eterna[b].
+para que justificados por Su gracia fuéramos hechos herederos según la esperanza de la vida eterna.
 
 #### para que justificados por Su gracia
 
