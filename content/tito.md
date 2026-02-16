@@ -972,54 +972,62 @@ Placeres - JEDONE
 
 #### viviendo en malicia y envidia
 
+##### Nosotros eramos los que vivien en maldad y envidia. vivir tasmbien puede entenderse como conducirse a traves de.
+
 #### aborrecibles y odiándonos unos a otros
+
+##### Nosotros eramos aborrecibes, esto era una caracteristica nuestra, tambien se puede entender con alguien que es despresiable. tambien somos descritos como los que odian , esto eraa una accion que expresabamos entre nosotros.
+
+##### Este tipo de conducta es una realidad de los hombres (el mundo) y nosotros eramos lo mismo, no podemos decir algo de ese acionos, conducta piadosa de los versos 1 y 2 provino y es posible de lo que estaba igual de perdido. El siguente versiculos nos dara la respuesta. Esa vida de piedad es posible y real. 
 
 ### Tito 3:4 
 Pero cuando se manifestó la bondad de Dios nuestro Salvador, y Su amor hacia la humanidad, 
 
-### Pero cuando se manifestó la bondad de Dios nuestro Salvador
+#### Pero cuando se manifestó la bondad de Dios nuestro Salvador
 
-### y Su amor hacia la humanidad
+##### 
+
+#### y Su amor hacia la humanidad
 
 ### Tito 3:5 
 Él nos salvó, no por las obras de[a] justicia que nosotros hubiéramos hecho, sino conforme a Su misericordia, por medio del lavamiento de la regeneración y la renovación por el Espíritu Santo, 
 
-### Él nos salvó
+#### Él nos salvó
 
-### no por las obras de justicia que nosotros hubiéramos hecho
+#### no por las obras de justicia que nosotros hubiéramos hecho
 
-### sino conforme a Su misericordia
+#### sino conforme a Su misericordia
 
-### por medio del lavamiento de la regeneración
+#### por medio del lavamiento de la regeneración
 
-### y la renovación por el Espíritu Santo
+#### y la renovación por el Espíritu Santo
 
 ### Tito 3:6 
 que Él derramó sobre nosotros abundantemente por medio de Jesucristo nuestro Salvador, 
 
-### que Él derramó sobre nosotros abundantemente
+#### que Él derramó sobre nosotros abundantemente
 
-### por medio de Jesucristo nuestro Salvador
+#### por medio de Jesucristo nuestro Salvador
 
 ### Tito 3:7 
 para que justificados por Su gracia fuéramos hechos herederos según la esperanza de la vida eterna[b].
 
-### para que justificados por Su gracia
+#### para que justificados por Su gracia
 
-### fuéramos hechos herederos según la esperanza de la vida eterna
+#### fuéramos hechos herederos según la esperanza de la vida eterna
 
 ### Tito 3:8 
 Palabra fiel es esta; y en cuanto a estas cosas quiero que hables con firmeza, para que los que han creído en Dios procuren ocuparse en buenas obras. Estas cosas son buenas y útiles para los hombres. 
 
-### Palabra fiel es esta;
+#### Palabra fiel es esta;
 
-### y en cuanto a estas cosas quiero que hables con firmeza
+#### y en cuanto a estas cosas quiero que hables con firmeza
 
-### para que los que han creído en Dios
+#### para que los que han creído en Dios
 
-### procuren ocuparse en buenas obras
+#### procuren ocuparse en buenas obras
 
-### Estas cosas son buenas y útiles para los hombres
+#### Estas cosas son buenas y útiles para los hombres
 
 ## Un contraste, lo que no es bueno, ni útil.
 
