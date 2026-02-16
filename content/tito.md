@@ -1189,9 +1189,21 @@ Amor hacia la humanidad - FILANTHROPIA
 
 #### por medio del lavamiento de la regeneración
 
-##### Dios nos salvo 
+##### Dios nos salvo, "por medio" indica que uso Dios o a traves de que medio nos salvo, hemos visto fue cuando se amnifesto su bonda y amor, no fue por nustras obras, Dios se baso en su misericordia no dandonos la muerte y lo hizo por medio del "lavamiento la regeneracion del Espiritu Santo".
+
+Lavamiento - LUTRON
+: Esta palabra sencillamnete quiere decir lavar, bañar, su enfasis esta en el acto limpiar o limpieza, como tal la palabra no tiene un enfasis espirutual, mas aun el contexto o su conplemento le da un significado a esta palabra.
+
+##### Nos salvo por medio de la "limpieza", aqui podemos hacernos una pregunta ¿Que tipo de limpieza? hemos sido limpiados por regeneracion por el Espiritu.
+
+Regeneracion - PALINGENESIA
+: Esta es una palabra compuesta de PALIN (signifiva vlver a comenzar, hacer de nuevo, una vez mas, de nuevo u otra vez, tiene la idea de repetir) y GENESIS (significa comienzo o creacion, tiene la idea de estado), entoces cuando unimos estas palabras tenemos "nueva creacion" o "crear de nuevo" transmite de idea del nuevo nacimiento o nueva criatura.
+
+##### Por medio de la limpiza de la nueva creacion por medio del Espiritu, la limpieza que fue hecha en nosotros fue la de una nueva creacion, el Espiritu Santo fue el agente usado por Dios.
 
 #### y la renovación por el Espíritu Santo
+
+##### Nos salvo por medio de la renovacion por el Espiritu Santo
 
 ### Tito 3:6 
 que Él derramó sobre nosotros abundantemente por medio de Jesucristo nuestro Salvador, 
