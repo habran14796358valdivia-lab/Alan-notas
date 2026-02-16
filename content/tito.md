@@ -991,16 +991,19 @@ Pero cuando se manifestó la bondad de Dios nuestro Salvador, y Su amor hacia la
 
 ##### "Manifesto" es un verbo (aoristo, indicativo, pasivo), es curioso este verbo no expresa que Dios activamente manifesto su bondad, mas bien que "su bondad" se manifesto, ahora ¿Como es esto? Pues esta accion se esta mostarndo como un evento completo ya realizado por alguien mas.
 
-##### Aqui "la Bondad" es el sujeto, la bondad se manifesto, fue revelada por alguin mas, Cristo, el manifesto la bondad de Diso, El es la manifestacion de la bondad de Dios. Dios nuestro Salvador es un titulo muy acertado por que de el provino la salvacion y es el unico que puede salvar.
+##### Aqui "la Bondad" es el sujeto, la bondad se manifesto, fue revelada por alguien mas, en Cristo, el manifesto la bondad de Diso, El es la manifestacion de la bondad de Dios. Dios nuestro Salvador es un titulo muy acertado por que de el provino la salvacion y es el unico que puede salvar.
 
 ##### El texto marca un detalle sutil pero de mucho peso "nuestro" Salvador. Dios es nuestro salvador, el que nos rescado de aquella condicion en que esta toda la humanidad perdidos ¿Cuando ocurioio? cuando su bondad se manifesto.
 
 #### y Su amor hacia la humanidad
 
-#####
+Amor hacia la humanidad - FILANTHROPIA
+: Esta palabra es muy conocida en nuestro contexto, se compone de 2 palabras FILOS (amor, de afecto o cariño) y ANTHROPO (humanidad, hombre) literalmente quiere decir afecto o cariño a la humanidad o a los hombres.
+
+##### Pero cuando se manifesto "Su amor", El amor de Dios fue revelado ¿Como se manifesto el amor, el cariño de Dios para con la humanidad? 
 
 ### Tito 3:5 
-Él nos salvó, no por las obras de[a] justicia que nosotros hubiéramos hecho, sino conforme a Su misericordia, por medio del lavamiento de la regeneración y la renovación por el Espíritu Santo, 
+Él nos salvó, no por las obras de justicia que nosotros hubiéramos hecho, sino conforme a Su misericordia, por medio del lavamiento de la regeneración y la renovación por el Espíritu Santo, 
 
 #### Él nos salvó
 
