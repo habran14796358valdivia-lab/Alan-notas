@@ -1229,6 +1229,10 @@ para que justificados por Su gracia fuéramos hechos herederos según la esperan
 
 #### para que justificados por Su gracia
 
+##### Nos salvo... por medio de Jesucristo "para", nuestra salvacion consta de un proposito. Es normal que una pregunta este presente una persona salvada (creyente) ¿Y ahora que? ahora que soy creyente, que mas sigue ¿que debo hacer?, ¿esta bien Dios me salvo por gracia por medio de Cristo? ¿que sigue ahora?. Pues aun hay mucho mas, la gracia de dios no solo fue para nuestra justificacion, la gracia nos enseña a vivir enpoderados en la obra de Cristo con un proposito.
+
+##### "justificados" es un verbo (aoristo, participio, pasivo) nustra justificacion es completa, nostros no nos declaramos justo, DIos nos declara justos, entonces se puede entende como "habiendo sido declarados justos" este es una posicion o estado permanente en el creyente.
+
 #### fuéramos hechos herederos según la esperanza de la vida eterna
 
 ### Tito 3:8 
