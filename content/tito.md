@@ -1007,11 +1007,25 @@ Amor hacia la humanidad - FILANTHROPIA
 
 #### Él nos salvó
 
+##### Cuando su la bondad y amor de Dios se manifesto el nos salvo. Dios nuestro Salvador esta conectado a "El", Dios nos salvo, esta es la verdad de como fuimos rescatados de nuestra condicion perdida como humanidad.
+
+##### Es asombroso poder ver que Diso nos salvo, nos rescato de la esclavitud de la muerte, de los deseos y pasiones marcando la la diferencia de nuestra ealida, somo salvado por Dios. "Salvo" es un verbo (aoristo, indicativo, activo) que Dios nos salvo es una accion completa real, Dios lo hizo.
+
 #### no por las obras de justicia que nosotros hubiéramos hecho
+
+##### La accion de Dios de salvarnos no tuvo origen en la obras, trabajo o esfuerzos de nuestra parte, es curioso, las obras que se mencionan aqui no son cualquie tipo de obras, son obras de justicia o acciones justas, rectas, correctas, buenas, honestas. Bueno Dios no tomo en concideracion niguntipo de obras en cuanta para realizar nuestra salvacion por mas buenas que fueran.
+
+##### La salvacion en su diseño excluye cualquier tipo de obras para dar vida al hombre, es mas la naturaleza de la salvacion se basa en la gracia de Dios de entregar a su unico Hijo Jesucristo en favor de la humanidad para morir por nuestros pecados en la cruz, fue diseñada a para ser adoctada por medio de la fe en la obra y persona de Jesuscrito.
+
+##### "que nostros hubieramos hechos" Dios nos salvo, en esta frase exluye completamente al hombre, mas enfaticamente nos excluye a nosotros como ser parte de nuestra salvacion o alguna participacion y enfatiza a Dios como el unico accionario. En nuesta condicion pasada hicimos "obras justas" en apariencia sin embargo Dios no nos salvo por tales obras. Para Dios no tenian valor.
 
 #### sino conforme a Su misericordia
 
+##### ¿Entonces en que se baso Dios para hacer posible nuestra salvacion?. Dios nos salvo basado en su misericordia, fuimos salvados completa y enteramnete en el fundamento de la misericordia de Dios, la gracia de Dios se hace visible al no habernos dado lo que justamente mereciamos en nuestra antigua condicion en la cual justamente mereciamos la muerte, Dios no nos dio muerte.
+
 #### por medio del lavamiento de la regeneración
+
+##### 
 
 #### y la renovación por el Espíritu Santo
 
