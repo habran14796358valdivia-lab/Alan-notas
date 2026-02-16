@@ -978,16 +978,26 @@ Placeres - JEDONE
 
 ##### Nosotros eramos aborrecibes, esto era una caracteristica nuestra, tambien se puede entender con alguien que es despresiable. tambien somos descritos como los que odian , esto eraa una accion que expresabamos entre nosotros.
 
-##### Este tipo de conducta es una realidad de los hombres (el mundo) y nosotros eramos lo mismo, no podemos decir algo de ese acionos, conducta piadosa de los versos 1 y 2 provino y es posible de lo que estaba igual de perdido. El siguente versiculos nos dara la respuesta. Esa vida de piedad es posible y real. 
+##### Este tipo de conducta es una realidad de los hombres (el mundo) y nosotros eramos lo mismo, no podemos decir algo de ese aciones, conducta piadosa de los versos 1 y 2 provino y es posible de lo que estaba igual de perdido. El siguente versiculos nos dara la respuesta. Esa vida de piedad es posible y real. 
 
 ### Tito 3:4 
 Pero cuando se manifestó la bondad de Dios nuestro Salvador, y Su amor hacia la humanidad, 
 
 #### Pero cuando se manifestó la bondad de Dios nuestro Salvador
 
-##### 
+##### El verso 4 comienza con un "Pero" esto marca un punto de contraste, esa vida de piedad, esa conducta fue hecha posible, pero antes, el mismo hecho de que nosotros ahora no seamos parte del mundo en la misma condicion de los hombres no vino de nostros, vino de Dios. ¿De que manera vino?
+
+##### Cuando la bondad de Dios se manifesto, aqui podemos observar el contraste, se hizo posible sin la intervencion del hombre.
+
+##### "Manifesto" es un verbo (aoristo, indicativo, pasivo), es curioso este verbo no expresa que Dios activamente manifesto su bondad, mas bien que "su bondad" se manifesto, ahora ¿Como es esto? Pues esta accion se esta mostarndo como un evento completo ya realizado por alguien mas.
+
+##### Aqui "la Bondad" es el sujeto, la bondad se manifesto, fue revelada por alguin mas, Cristo, el manifesto la bondad de Diso, El es la manifestacion de la bondad de Dios. Dios nuestro Salvador es un titulo muy acertado por que de el provino la salvacion y es el unico que puede salvar.
+
+##### El texto marca un detalle sutil pero de mucho peso "nuestro" Salvador. Dios es nuestro salvador, el que nos rescado de aquella condicion en que esta toda la humanidad perdidos ¿Cuando ocurioio? cuando su bondad se manifesto.
 
 #### y Su amor hacia la humanidad
+
+#####
 
 ### Tito 3:5 
 Él nos salvó, no por las obras de[a] justicia que nosotros hubiéramos hecho, sino conforme a Su misericordia, por medio del lavamiento de la regeneración y la renovación por el Espíritu Santo, 
