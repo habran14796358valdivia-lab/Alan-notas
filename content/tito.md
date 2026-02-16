@@ -1189,7 +1189,7 @@ Amor hacia la humanidad - FILANTHROPIA
 
 #### por medio del lavamiento de la regeneración
 
-##### 
+##### Dios nos salvo 
 
 #### y la renovación por el Espíritu Santo
 
