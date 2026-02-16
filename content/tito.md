@@ -84,311 +84,475 @@ Title: Tito
 
 ## Tito 1:1-4 Saludos.
 
-### Tito 1:1a "*Pablo, siervo de Dios...*" Pablo, un antiguo preseguidor de la iglesia ahora se presenta y considera como un siervo.
+### Tito 1:1 
+Pablo, siervo de Dios y apóstol de Jesucristo, conforme a la fe de los escogidos de Dios y al pleno conocimiento de la verdad que es según la piedad, 
 
-#### Siervo, DULOS de Dios, esto quiere decir un esclavo de Dios, esto no era una condicion obligada, el se concideraba al servicio de Dios. Romanos 1:1; Filipenses 1:1; Tito 1:1
+#### Pablo, siervo de Dios
 
-#### El siervo no hace lo que quiere o parezca, el esta a la disposicion de su amo, hace lo que el amo le indica, Pablo esta sujeto a lo que Dios le mando a hacer. Hechos 9:15-16; Gálatas 1:15-16; 1 Corintios 1:1; 1 Timoteo 1:12
+##### Pablo, un antiguo preseguidor de la iglesia ahora se presenta y considera como un siervo.
 
-### Tito 1:1b "*y apóstol de Jesucristo,...*" Pablo tambien es un apóstol de Cristo.
+##### Siervo, DULOS de Dios, esto quiere decir un esclavo de Dios, esto no era una condicion obligada, el se concideraba al servicio de Dios. Romanos 1:1; Filipenses 1:1; Tito 1:1
 
-#### Ser apóstol, APOSTOLOS quiere decir ser un mensajero o emisario, alguien que lleva un mensaje. En si la palabra apóstol no es especial, era comunmente usada en el primer siglo para denotar a un mensajero.
+##### El siervo no hace lo que quiere o parezca, el esta a la disposicion de su amo, hace lo que el amo le indica, Pablo esta sujeto a lo que Dios le mando a hacer. Hechos 9:15-16; Gálatas 1:15-16; 1 Corintios 1:1; 1 Timoteo 1:12
 
-#### La difencia esta en el que te envia, Cristo solo comisiono a 12 apóstoles, 12 persononas enviadas persolmente por Cristo con un mensaje. 1 Corintios 1:1; 2 Corintios 1:1; Gálatas 1:1; Efesios 1:1; Colosenses 1:1; 1 Timoteo 1:!; 2 Timoteo 1:1; Apocalipsis 21:14
+#### y apóstol de Jesucristo
 
-#### Una pregunta podria ser ¿Jesús ya habia escogido 12 apóstoles? o ¿Qué sucede con Matias?, Bueno en Apocalipsis 21:14 vemos solo hay doce apostoles "y sobre ellos doce nombres de los doce apostoles del Cordero" en Lucas 6:13 Jesús escoge a 12 y los llama apostoles, en este versiculo vemos un hecho, Jesús debe comisionarlo personalmente para ser apóstol del Cordero, en Hechos 1:17-20 vemos como Judas Iscariote no seria contado como apóstol, esto lo confima Hechos 1:26, asi mismo vemos otro requisito indispensable mensionado por Pedro en Hechos 1:21-22 ser testigo del Cristo resucitado.
+##### Pablo tambien es un apóstol de Cristo.
 
-##### En resumen hay 2 requisitos indispensables: (1) "Ser comisionado por Cristo personalmente" y (2) "Ser testigo ocular del Cristo resucitado". Aunque Matias fue testigo ocular, no fue comisionado por Cristo personalmente a diferencia de Pablo en Hechos 9:3-8, 15-17; 1 Corintios 9:1-2, 15:3-8; Galatas 1:1, 11-12, 2:6-9
+##### Ser apóstol, APOSTOLOS quiere decir ser un mensajero o emisario, alguien que lleva un mensaje. En si la palabra apóstol no es especial, era comunmente usada en el primer siglo para denotar a un mensajero.
 
-### Tito 1:1c "*conforme a la fe de los escogidos de Dios...*" Pablo es siervo y apostol conforme a la fe o de acuerdo a la fe.
+##### La difencia esta en el que te envia, Cristo solo comisiono a 12 apóstoles, 12 persononas enviadas persolmente por Cristo con un mensaje. 1 Corintios 1:1; 2 Corintios 1:1; Gálatas 1:1; Efesios 1:1; Colosenses 1:1; 1 Timoteo 1:!; 2 Timoteo 1:1; Apocalipsis 21:14
 
-#### Esta expresion es interesante, el servicio y apóstolado de Pablo esta alineado con la fe (conjunto de enseñanza) de este grupo (los escogido) de Dios.
+##### Una pregunta podria ser ¿Jesús ya habia escogido 12 apóstoles? o ¿Qué sucede con Matias?, Bueno en Apocalipsis 21:14 vemos solo hay doce apostoles "y sobre ellos doce nombres de los doce apostoles del Cordero" en Lucas 6:13 Jesús escoge a 12 y los llama apostoles, en este versiculo vemos un hecho, Jesús debe comisionarlo personalmente para ser apóstol del Cordero, en Hechos 1:17-20 vemos como Judas Iscariote no seria contado como apóstol, esto lo confima Hechos 1:26, asi mismo vemos otro requisito indispensable mensionado por Pedro en Hechos 1:21-22 ser testigo del Cristo resucitado.
 
-### Tito 1:1d "*y al pleno conocimiento de la verdad que es según la piedad,...*" El servicio y apostolado de Pablo estaba alineado al pleno conocimiento de la verdad, la verdad que es según piedad.
+- En resumen hay 2 requisitos indispensables: (1) "Ser comisionado por Cristo personalmente" y (2) "Ser testigo ocular del Cristo resucitado". Aunque Matias fue testigo ocular, no fue comisionado por Cristo personalmente a diferencia de Pablo en Hechos 9:3-8, 15-17; 1 Corintios 9:1-2, 15:3-8; Galatas 1:1, 11-12, 2:6-9
 
-#### La palabra pleno no se encuentra en el griego, "y al conocimiento de la verdad"
+#### conforme a la fe de los escogidos de Dios
 
-#### ¿Que es el conocimiento de la verdad?, Conocimiento es EPIGNOSIS esto se refiere a un conocimiento acertado o preciso de algo, en este caso es de la verdad. La carta a tito no nos dice que es la verdad, asume ser ya conocida por los creyentes, sin embargo tenemos una pauta importante, la verdad se alinea a la piedad.
+##### Pablo es siervo y apostol conforme a la fe o de acuerdo a la fe.
 
-#### De igual manera Pablo mismo esta alineado con la fe, la verdad y como sabemos esto, pues la piedad es una conducta externa expresada que evidencia o realza la verdad, esto no es solamente todo el conjunto de la enzeñanza que temnemos sino en el fundamneto, EL Evangelio.
+##### Esta expresion es interesante, el servicio y apóstolado de Pablo esta alineado con la fe (conjunto de enseñanza) de este grupo (los escogido) de Dios.
 
-#### La piedad esta realzando la verdad, la verdad alinea con la piedad, esto no es cualquier verdad entre comillas, dice un conocimiento acertado de la verdad, el texto la muestra como unica. Juan 1:14, 17, 3:21, 4:23-24, 8:32, 40, 45-46, 14:6, 17, 16:13, 17:17, 19; Romanos 1:25; 1 Corintios 13:6; 2 Corintios 4:2, 6:7, 13:7-8; Gálatas 2:5, 14, 5:7; Efesios 1:13, 4:20-22
+### y al pleno conocimiento de la verdad que es según la piedad
 
-#### EL servicio, apostolado y Pablo mismo estaba alineado no solo con la fe sino con el conocimiento de la verdad que es segun piedad.
+##### El servicio y apostolado de Pablo estaba alineado al pleno conocimiento de la verdad, la verdad que es según piedad.
 
-#### Esto es algo que veremos implicito a lo largo de todad la carta, el conocimiento de la verdad que es segun la piedad y a raiz de esto que es lo deficiente. 
+##### La palabra pleno no se encuentra en el griego, "y al conocimiento de la verdad"
 
-#### El constante de la carta es la piedad, mas es especificamente la vida piadosa en conducta externa alineada de la verdad.
+##### ¿Que es el conocimiento de la verdad?, Conocimiento es EPIGNOSIS esto se refiere a un conocimiento acertado o preciso de algo, en este caso es de la verdad. La carta a tito no nos dice que es la verdad, asume ser ya conocida por los creyentes, sin embargo tenemos una pauta importante, la verdad se alinea a la piedad.
 
-### Tito 1:2a "*con la esperanza de vida eterna,...*" La verdad contiene la esperanza de la vida eterna.
+##### De igual manera Pablo mismo esta alineado con la fe, la verdad y como sabemos esto, pues la piedad es una conducta externa expresada que evidencia o realza la verdad, esto no es solamente todo el conjunto de la enzeñanza que temnemos sino en el fundamneto, EL Evangelio.
 
-#### Para ser mas exactos la verdad no solo esta alineadad con la piedad, sino la verdad tiene como base la esperanza de vida eterna.
+##### La piedad esta realzando la verdad, la verdad alinea con la piedad, esto no es cualquier verdad entre comillas, dice un conocimiento acertado de la verdad, el texto la muestra como unica. Juan 1:14, 17, 3:21, 4:23-24, 8:32, 40, 45-46, 14:6, 17, 16:13, 17:17, 19; Romanos 1:25; 1 Corintios 13:6; 2 Corintios 4:2, 6:7, 13:7-8; Gálatas 2:5, 14, 5:7; Efesios 1:13, 4:20-22
 
-### Tito 1:2b "*la cual Dios, que no miente,...*" Dios no miente, no es parte de su naturaleza, es mas, el es verdad, y siempre resulta veraz.
+##### EL servicio, apostolado y Pablo mismo estaba alineado no solo con la fe sino con el conocimiento de la verdad que es segun piedad.
 
-#### Cuando se dice "que no miente" esto es un adjetivo, es una caracteriztica de Dios, el no puede mentit, entonces podemos confiar plenamente que cuando Dios dice algo es completamente verdad. Romanos 3:4; Hebreos 6:18
+##### Esto es algo que veremos implicito a lo largo de todad la carta, el conocimiento de la verdad que es segun la piedad y a raiz de esto que es lo deficiente. 
 
-#### Dios no miente cuando habla de la vida eterna, esta es completamente real.
+##### El constante de la carta es la piedad, mas es especificamente la vida piadosa en conducta externa alineada de la verdad.
 
-### Tito 1:2c "*prometió desde los tiempos eternos,...*" Dios habia prometido la vida eterna desde los tiempos en la eternidad.
+### Tito 1:2 
+con la esperanza de vida eterna, la cual Dios, que no miente, prometió desde los tiempos eternos, 
 
-#### "prometió" es un verbo (aoristo, indicativo, medio), esto nos señala que Dios habia prometido en un punto del tiempo, el mismo versiculo nos dice que fue desde "los tiempos eternos".
+#### con la esperanza de vida eterna
 
-#### Al ser un indicativo no deja lugar a dudas, esto es un hecho veraz, una certeza que "Dios lo prometio". la voz media nos dice que Dios prometio por si mismo, el seria el unico encargado de llevar acabo su promesa. Hechos 7:5; Romanos 1:2
+##### La verdad contiene la esperanza de la vida eterna.
 
-### Tito 1:3a "*y a su debido tiempo, manifestó Su palabra por la predicación que me fue confiada,...*" Dios manifestó su palabra en el tiempo justo,. Galatas 4:4
+##### Para ser mas exactos la verdad no solo esta alineadad con la piedad, sino la verdad tiene como base la esperanza de vida eterna.
 
-#### Dios manifestó su promesa (vida eterna) por medio de la predicación, la vida eterna estaba contenida en su palabra predicada, esto le fue confiado a Pablo anunciar (el evangelio). Gálatas 1:11-12; 1 Corintios 15:3-4; Hechos 9:15-17,13:16-41; Juan 3:36, 5:24, 6:40, 47 
+#### la cual Dios, que no miente
 
-### Tito 1:3b "*conforme al mandamiento de Dios nuestro Salvador,...*"Dios habria determinado que Pablo le era útil en el ministerio. 1 Timoteo 1:12-13
+##### Dios no miente, no es parte de su naturaleza, es mas, el es verdad, y siempre resulta veraz.
 
-### Tito 1:4a "*a Tito, verdadero hijo en la común fe:...*" Tito seria el receptor de la carta.
+##### Cuando se dice "que no miente" esto es un adjetivo, es una caracteriztica de Dios, el no puede mentit, entonces podemos confiar plenamente que cuando Dios dice algo es completamente verdad. Romanos 3:4; Hebreos 6:18
 
-#### Al referirse a Tito como "verdadero" solo da a entender que genuinamente Tito era su hijo nacido en la fe que conparten los creyentes.
+##### Dios no miente cuando habla de la vida eterna, esta es completamente real.
 
-### Tito 1:4b "*Gracia y paz de parte de Dios el Padre...*" Pablo extiende gracia y paz de parte de Dios el Padre.
+#### prometió desde los tiempos eternos
 
-#### Aunque lo vemos como un saludo comun de parte de Pablo, no es solo un saludo, el quiere extender la gracia y la paz de Dios para con Tito y los creyentes, en la carta hay repenciones duras, como esto puede ir asociado a la gracia y a la paz, pues estas estan alinineadas con la verdad.
+##### Dios habia prometido la vida eterna desde los tiempos en la eternidad.
 
-### Tito 1:4c "*y de Cristo Jesús nuestro Salvador....*" Asi mismo, el extiende la gracia y la paz de parte de Jesús quien nos salvó.
+##### "prometió" es un verbo (aoristo, indicativo, medio), esto nos señala que Dios habia prometido en un punto del tiempo, el mismo versiculo nos dice que fue desde "los tiempos eternos".
 
-#### El creyente solo podra hallar la gracia y paz en el Padre y el Hijo, el creyente necesita de la gracia de Dios en Cristo para su diario vivir, asi como su paz vine en el descanso que solo Dios y cristo pueden ofrecer en la verdad.
+##### Al ser un indicativo no deja lugar a dudas, esto es un hecho veraz, una certeza que "Dios lo prometio". la voz media nos dice que Dios prometio por si mismo, el seria el unico encargado de llevar acabo su promesa. Hechos 7:5; Romanos 1:2
+
+### Tito 1:3 
+y a su debido tiempo, manifestó Su palabra por la predicación que me fue confiada, conforme al mandamiento de Dios nuestro Salvador, 
+
+#### y a su debido tiempo, manifestó Su palabra por la predicación que me fue confiada
+
+##### Dios manifestó su palabra en el tiempo justo. Galatas 4:4
+
+##### Dios manifestó su promesa (vida eterna) por medio de la predicación, la vida eterna estaba contenida en su palabra predicada, esto le fue confiado a Pablo anunciar (el evangelio). Gálatas 1:11-12; 1 Corintios 15:3-4; Hechos 9:15-17,13:16-41; Juan 3:36, 5:24, 6:40, 47 
+
+#### conforme al mandamiento de Dios nuestro Salvador
+
+##### Dios habria determinado que Pablo le era útil en el ministerio. 1 Timoteo 1:12-13
+
+### Tito 1:4 
+a Tito, verdadero hijo en la común fe: Gracia y paz de parte de Dios el Padre y de Cristo Jesús nuestro Salvador.
+
+#### a Tito, verdadero hijo en la común fe:
+
+##### Tito seria el receptor de la carta.
+
+##### Al referirse a Tito como "verdadero" solo da a entender que genuinamente Tito era su hijo nacido en la fe que conparten los creyentes.
+
+#### Gracia y paz de parte de Dios el Padre
+
+##### Pablo extiende gracia y paz de parte de Dios el Padre.
+
+##### Aunque lo vemos como un saludo comun de parte de Pablo, no es solo un saludo, el quiere extender la gracia y la paz de Dios para con Tito y los creyentes, en la carta hay repenciones duras, como esto puede ir asociado a la gracia y a la paz, pues estas estan alinineadas con la verdad.
+
+#### y de Cristo Jesús nuestro Salvador
+
+##### Asi mismo, el extiende la gracia y la paz de parte de Jesús quien nos salvó.
+
+##### El creyente solo podra hallar la gracia y paz en el Padre y el Hijo, el creyente necesita de la gracia de Dios en Cristo para su diario vivir, asi como su paz vine en el descanso que solo Dios y cristo pueden ofrecer en la verdad.
 
 ## Corrigiendo lo deficiente para salvarnos del engaño.
 
-### Tito 1:5a "*Por esta causa te dejé en Creta,...*" Pablo tiene una razón o proposito para dejar a Tito en creta.
+### Tito 1:5 
+Por esta causa te dejé en Creta, para que pusieras en orden lo que queda, y designaras ancianos en cada ciudad como te mandé. 
 
-#### Aun que no sabemos cuanto tiempo Pablo estuvo en creta, por la carta a Tito sabemos que habia muchas iglesia locales en creta, seguramente Pablo y Tito habrian ido juntos la isla y habiendose cumplido un tiempo Pablo partio a otro lugar dejando a Tito con la enseñanza.
+#### Por esta causa te dejé en Creta
 
-### Tito 1:5b "*para que pusieras en orden lo que queda,...*" Primero veremos que Tito debia poner en orden lo que faltaba en la enzeñanza.
+##### Pablo tiene una razón o proposito para dejar a Tito en creta.
 
-#### RVR60 dice "para que corrigiesees lo deficiente" aunque literalmente se puede decir "para que las cosas que dejamos atras hagas rectas"
+##### Aun que no sabemos cuanto tiempo Pablo estuvo en creta, por la carta a Tito sabemos que habia muchas iglesia locales en creta, seguramente Pablo y Tito habrian ido juntos la isla y habiendose cumplido un tiempo Pablo partio a otro lugar dejando a Tito con la enseñanza.
 
-#### Pablo viajaba de ciudad en ciudad anunciando y enseñando el evangelio, aqui Tito fue comisionado a terminar el trabajo en creta de enseñar el evangelio a los creyentes, especialmente en cuanto a la piedad y como el conocimiento de la verdad, tanto general como especifica alinea con una vida o andar de piedad (la verdad segun piedad). Hechos 20:26-28
+#### para que pusieras en orden lo que queda
 
-### Tito 1:5c "*y designaras ancianos en cada ciudad como te mandé....*" En segundo lugar Tito debia designar ancianos en cada iglesia local.
+##### Primero veremos que Tito debia poner en orden lo que faltaba en la enzeñanza.
 
-#### Esta forma de proceder es muy comun de Pablo, primero anunciaba el evangelio, despues enseñaba todo el consejo de Dios a los discipulos y por ultimo establecia ancianos en la iglesia local. Tito debia establecer ancianos despues de terminar de completar la enseñanza. Hechos 14:23, 1 Timoteo 3:1-7
+##### RVR60 dice "para que corrigiesees lo deficiente" aunque literalmente se puede decir "para que las cosas que dejamos atras hagas rectas"
 
-#### Veremos que hay una forma de designar ancianos que alinea con la verdad de la escritura, la designacion de un anciano/opispo/pastor no tiene relacion a los años dentro de la iglesia, el conocimiento, la participacion, por voto popular o por democracia .
+##### Pablo viajaba de ciudad en ciudad anunciando y enseñando el evangelio, aqui Tito fue comisionado a terminar el trabajo en creta de enseñar el evangelio a los creyentes, especialmente en cuanto a la piedad y como el conocimiento de la verdad, tanto general como especifica alinea con una vida o andar de piedad (la verdad segun piedad). Hechos 20:26-28
 
-#### Es interesante notar que la carta nos muestra una forma de designar a un anciano, veremos que no se debe designar un anciano a la ligera, es mas veremos una lista de requisitos sumamente indispensables. Ademas que alinean con la verdad que es segun piedad.
+#### y designaras ancianos en cada ciudad como te mandé
 
-#### Los diferentes requisitos son expresiones de una conducta piadosa.
+##### En segundo lugar Tito debia designar ancianos en cada iglesia local.
 
-#### "Ancianos" es un adjetivo en plural masculino, esto lo denota como una caracteristica o rol de un grupo de hombres creyentes.
+##### Esta forma de proceder es muy comun de Pablo, primero anunciaba el evangelio, despues enseñaba todo el consejo de Dios a los discipulos y por ultimo establecia ancianos en la iglesia local. Tito debia establecer ancianos despues de terminar de completar la enseñanza. Hechos 14:23, 1 Timoteo 3:1-7
 
-### Tito 1:6a "*Lo designarás, si el anciano es irreprensible,...*" La designación de un anciano contiene una condicionante de 1ra clase "si", esto indica que algo es una realidad o un hecho.
+##### Veremos que hay una forma de designar ancianos que alinea con la verdad de la escritura, la designacion de un anciano/opispo/pastor no tiene relacion a los años dentro de la iglesia, el conocimiento, la participacion, por voto popular o por democracia .
 
-#### Para este caso alguien es designado como anciano solo si esta siendo en tiempo presente (irreprensible, marido de una sola mujer, que tenga hijos crtentes......no obstinado, no iracundo.......debe ser hospitalario, amante de lo bueno, etc).
+##### Es interesante notar que la carta nos muestra una forma de designar a un anciano, veremos que no se debe designar un anciano a la ligera, es mas veremos una lista de requisitos sumamente indispensables. Ademas que alinean con la verdad que es segun piedad.
 
-#### La lista de requisitos que vemos desde el verso 6 hasta 9, son adjetivos, esto quiere decir que son caracteristicas que forman parte del anciano. Ahora si volvemos al texto, no dice que alguien sea designado como anciano para ir adquiriendo estas caracteristicas.
+##### Los diferentes requisitos son expresiones de una conducta piadosa.
 
-#### Asi como no dice "Alguien que antes fue anciano esta calificado para volverlo a ser", al contrario el varon que desea el obispado 1 Timoteo 3:1 debe mostrar en el tiempo presente todas estas cualidades.
+##### "Ancianos" es un adjetivo en plural masculino, esto lo denota como una caracteristica o rol de un grupo de hombres creyentes.
 
-### Tito 1:6b "*marido de una sola mujer,...*" Debe ser en el tiempo presente marido/hombre de una sola mujer.
+### Tito 1:6 
+Lo designarás, si el anciano es irreprensible, marido de una sola mujer, que tenga hijos creyentes, no acusados de disolución ni de rebeldía. 
 
-#### Este requisito no descalifica a un viudo o soltero, no dice que debe ser casado, el requisito se enfoca en ser hobre de una sola mujer esto contrasta con un hobre de muchas mujeres (un mujeriego). Proverbios 6:25-29; Mateo 5:28; 1 Corintios 7:2; Efesios 5:3; 1 Tesalonicenses 4:4
+#### Lo designarás, si el anciano es irreprensible
 
-#### Para este caso si el varon que desea el obispado esta casado debe ser un hombre/marido de una sola mujer.
+##### La designación de un anciano contiene una condicionante de 1ra clase "si", esto indica que algo es una realidad o un hecho.
 
-### Tito 1:6c "*que tenga hijos creyentes,...*" Para el creyente eque desea el obispado y tenga hijos dben ser creyentes.
+##### Para este caso alguien es designado como anciano solo si esta siendo en tiempo presente (irreprensible, marido de una sola mujer, que tenga hijos crtentes......no obstinado, no iracundo.......debe ser hospitalario, amante de lo bueno, etc).
 
-#### Cuando se menciona la palabra creyentes no significa que deben ser salvos, ninguna persona puede manipular la salvacion de una otra, la palabra es "pista" es un adjetivo, un hijo fiel o digno de confianza, esto para con su padre mientras vive bajo su cuidado. Hechos 13:34; 1 Timoteo 3:11
+##### La lista de requisitos que vemos desde el verso 6 hasta 9, son adjetivos, esto quiere decir que son caracteristicas que forman parte del anciano. Ahora si volvemos al texto, no dice que alguien sea designado como anciano para ir adquiriendo estas caracteristicas.
 
-### Tito 1:6e "*no acusados de disolución ni de rebeldía....*" Sus hijos no deben estar acusados de libertinaje o rebeldia.
+##### Asi como no dice "Alguien que antes fue anciano esta calificado para volverlo a ser", al contrario el varon que desea el obispado 1 Timoteo 3:1 debe mostrar en el tiempo presente todas estas cualidades.
 
-#### Mientras sus hijos vivan bajo su cuidado asi como su padre debe ser irreprencible, ellos tambien deben ser irreprencibles, esto esta relacionado que son fieles en la casa de su padre sujetandose a el, esto no esta ligado a exigir sujecion o rectitud de parte del padre, al contrario enfatiza como el padre dirige su hogar, del como a instruido a sus hijos. 1 Timoteo 3:4-5
+#### marido de una sola mujer
 
-#### "disolucion" quiere decir una vida de desenfreno o libertino (inmoralidad de todo tipo). Efesios 5:18; 1 Pedro 4:4
+##### Debe ser en el tiempo presente marido/hombre de una sola mujer.
 
-#### "rebeldia" quiere decir no estar bajo sujecion, en este caso a sus padres, tambien conocido como un desobediente.
+##### Este requisito no descalifica a un viudo o soltero, no dice que debe ser casado, el requisito se enfoca en ser hobre de una sola mujer esto contrasta con un hobre de muchas mujeres (un mujeriego). Proverbios 6:25-29; Mateo 5:28; 1 Corintios 7:2; Efesios 5:3; 1 Tesalonicenses 4:4
 
-#### Aqui vemos un contraste con respecto a la familia, como el creyente gobierna en su casa o se conduce en la misma, este tipo caracteristicas estsan alineadas con la verdad y con una vida piadosa por parte de que desa el obispado.
+##### Para este caso si el varon que desea el obispado esta casado debe ser un hombre/marido de una sola mujer.
 
-### Tito 1:7a "*Porque el obispo debe ser irreprensible como administrador de Dios,...*" Estos requisitos tienen una razon, el obispo debe ser irreprensible.
+#### que tenga hijos creyentes
 
-#### "Irreprencible" significa que no puede ser acusado de nada, no tiene nada en su contra, alguien no debe ser llamado a rendir cuentas, esto no solo va en direccion con la iglesia sino tambien para con los de afuera.
+##### Para el creyente eque desea el obispado y tenga hijos dben ser creyentes.
 
-#### El anociano es un administrador de Dios, entre la iglesia es irreprencible, es un ejemplo de fe y de la gracia de Dios entre los creyentes. El anciano es puesto para administrar lo que le pertenece a Dios, su iglesia, siendo que el mismo forma parte de ella.
+##### Cuando se menciona la palabra creyentes no significa que deben ser salvos, ninguna persona puede manipular la salvacion de una otra, la palabra es "pista" es un adjetivo, un hijo fiel o digno de confianza, esto para con su padre mientras vive bajo su cuidado. Hechos 13:34; 1 Timoteo 3:11
 
-#### A continuacion veremos algunas caracteristicas que no deben formar parte de alguien que desa el obispado, especialmente ya que sera un administrador de Dios.
+#### no acusados de disolución ni de rebeldía
 
-### Tito 1:7b "*no obstinado,...*" Esto esta relacionado con la arrogancia, el no debe ser un hombre que se agrada a si mismo y complase sus propios deseos, es un contraste con un administrador(mayordomo) ya que este agrada a su Señor y no asi mismo.
+##### Sus hijos no deben estar acusados de libertinaje o rebeldia.
 
-### Tito 1:7c "*no iracundo,...*"  El no debe ser alguen iracundo, esto es alguen que se deja controlar por el enojo o la colera de manera que se vuelve irracinal o es cegado por el enojo.
+##### Mientras sus hijos vivan bajo su cuidado asi como su padre debe ser irreprencible, ellos tambien deben ser irreprencibles, esto esta relacionado que son fieles en la casa de su padre sujetandose a el, esto no esta ligado a exigir sujecion o rectitud de parte del padre, al contrario enfatiza como el padre dirige su hogar, del como a instruido a sus hijos. 1 Timoteo 3:4-5
 
-### Tito 1:7d "*no dado a la bebida,...*" El no debe ser un borracho, alguien que es controlado por el alcohol, literalmente se traduce como "cerca del vino"
+##### "disolucion" quiere decir una vida de desenfreno o libertino (inmoralidad de todo tipo). Efesios 5:18; 1 Pedro 4:4
 
-### Tito 1:7e "*no pendenciero,...*" Literalmente dicho un colerico "listo para dar un golpe", El no debe ser un pendenciero, alguen reaccionario a los golpes ante cualquier situacion (un violento).
+##### "rebeldia" quiere decir no estar bajo sujecion, en este caso a sus padres, tambien conocido como un desobediente.
 
-### Tito 1:7f "*no amante de ganancias deshonestas....*" El no debe ser amar las ganancias o recompensas deshonestas, esto tambien se refiere a alguen codicioso de todo tipo de ganacias (dinero o recompensas) lo particular de esto es que estas ganancias no provienen de la verdad o algo apropiado. 1 Timoteo 3:8
+##### Aqui vemos un contraste con respecto a la familia, como el creyente gobierna en su casa o se conduce en la misma, este tipo caracteristicas estsan alineadas con la verdad y con una vida piadosa por parte de que desa el obispado.
 
-#### El contraste con todo lo que un anciano no debe ser, es ser un administrador (mayordomo), todas estas caracteristicas estan enfocadas como alguien se deja llevar por sus deseos y es cegado por los mismos, esto no carecteriza a un mayordomo.
+### Tito 1:7 
+Porque el obispo debe ser irreprensible como administrador de Dios, no obstinado, no iracundo, no dado a la bebida, no pendenciero, no amante de ganancias deshonestas. 
 
-#### Todas estas caracteristicas en la vida de un creyente son contrarias a la verdad, una vida piadosa se contrasta aqui ya que la verdad alinea con la piedad.
+#### Porque el obispo debe ser irreprensible como administrador de Dios
 
-### Tito 1:8a "*Antes bien, debe ser hospitalario,...*" Un segundo contraste a como no debe ser, esta como debes ser un su andar, un andar o vida que alinea con la verdad segun piedad.
+##### Estos requisitos tienen una razon, el obispo debe ser irreprensible.
 
-#### El es hospitalario, literalmente dicho "alguien que ama a los extraños" o "amigo de los extrangeros". 1 Timoteo 3:2; 1 Pedro 4:9
+##### "Irreprencible" significa que no puede ser acusado de nada, no tiene nada en su contra, alguien no debe ser llamado a rendir cuentas, esto no solo va en direccion con la iglesia sino tambien para con los de afuera.
 
-### Tito 1:8b "*amante de lo bueno,...*" Debe ser alguin que ame lo bueno, esto esta referido al bien en todas sus expresiones, ama el bien conforme a la verdad. Mateo 19:16, 20:15; Lucas 8:8
+##### El anociano es un administrador de Dios, entre la iglesia es irreprencible, es un ejemplo de fe y de la gracia de Dios entre los creyentes. El anciano es puesto para administrar lo que le pertenece a Dios, su iglesia, siendo que el mismo forma parte de ella.
 
-### Tito 1:8c "*prudente,...*" Debe ser de mente sana, alguien prudente es alguien que goza de una mente sana o alguien que esta en sus cabales capaz de pensar conforme a la verdad, en contraste a lo que no debe ser un iracundo, un codicioso,un pendenciero, un borracho y un orgullo los cuales estan cegados por sus deseos. 1 Timoteo 3:2; Tito 2:2, 5
+##### A continuacion veremos algunas caracteristicas que no deben formar parte de alguien que desa el obispado, especialmente ya que sera un administrador de Dios.
 
-### Tito 1:8d "*justo,...*" Debe ser justo en su andar, estas son caracteristicas que se persiben extexternamente, es alguin que exibe justicia en su andar, tambien puede verse con hacer lo que es correcto. Hechos 4:19; Efesios 6:1; Colosenses 4:1; 2 Pedro 1:13
+#### no obstinado
 
-### Tito 1:8e "*santo,...*" Debe ser andar en santidad, literalmente dicho "fiel en santidad". Hechos 13:34; 1 Timoteo 2:8; Hebreos 7:26
+##### Esto esta relacionado con la arrogancia, el no debe ser un hombre que se agrada a si mismo y complase sus propios deseos, es un contraste con un administrador(mayordomo) ya que este agrada a su Señor y no asi mismo.
 
-### Tito 1:8f "*dueño de sí mismo....*" Deber tener dominio propio, es interesante que no lo manda a dominar sus deseos, mas bien lo enfatiza como una caracteristica de el alguien que es dueño de si mismo. Gálatas 5:23; 2 Pedro 1:6
+#### no iracundo
 
-### Tito 1:9a "*Debe retener la palabra fiel que es conforme a la enseñanza,...*"Una traducion mas literal " Se este adhiriendo firmemente a la palabra que es digna de confianza que alinea con la enseñanza".
+##### El no debe ser alguen iracundo, esto es alguen que se deja controlar por el enojo o la colera de manera que se vuelve irracinal o es cegado por el enojo.
 
-#### Es interesante como se escribe, "se predico la palabra (fiel) segun la enseñanza", fuera de la enseñanza (la Fe, de la verdad) la palabra dicha no es digna de confianza, asimismo solo la enseñanza (la verdad) produce una palabra fiel.
+#### no dado a la bebida
 
-#### "retener" es un verbo (presente, participio, medio), el deber estar aferrado fimemente, el particiopio nos indica que es una caracteristica suya un aferrado/retenedor.
+##### El no debe ser un borracho, alguien que es controlado por el alcohol, literalmente se traduce como "cerca del vino"
 
-### Tito 1:9b "*para que sea capaz también de exhortar con sana doctrina...*" Veremos que etsa carcteristica de ser retenedor tiene un proposito en el rol de anciano.
+#### no pendenciero
 
-#### "Sea" es un verbo en modo subjuntivo indicando posibilidad en el verbo, puede que sea o puede que no sea. Ser capaz esta sujeto a retener, eso indica "para" retener para ser.
+##### Literalmente dicho un colerico "listo para dar un golpe", El no debe ser un pendenciero, alguen reaccionario a los golpes ante cualquier situacion (un violento).
 
-#### "Capaz" tambien traducido como "poderoso", que sea retenedor para ser poderoso y estar exhortando/consolando/animando con enseñanza saludable o que sana. Hechos 7:22, !4:8, 18:24; Romanos 11:23; Hebreos 11:19; Santiago 3:2
+#### no amante de ganancias deshonestas
 
-### Tito 1:9c "*y refutar a los que contradicen....*" Para que se poderoso en refutar a los que contradicen.
+##### El no debe ser amar las ganancias o recompensas deshonestas, esto tambien se refiere a alguen codicioso de todo tipo de ganacias (dinero o recompensas) lo particular de esto es que estas ganancias no provienen de la verdad o algo apropiado. 1 Timoteo 3:8
 
-#### "Refutar" es ELENKJO quiere decir poner al descubierto, al ser retenedor de la palabra fiel conforme a la enseñanza, sera poderoso para podener al descubierto(exhibir) con base en la verdad. Tito 1:13, 2:15; 1 Timoteo 5:20 
+##### El contraste con todo lo que un anciano no debe ser, es ser un administrador (mayordomo), todas estas caracteristicas estan enfocadas como alguien se deja llevar por sus deseos y es cegado por los mismos, esto no carecteriza a un mayordomo.
 
-#### Sera capaz de exhibir a todo el que habla en contra de la verdad. 
+##### Todas estas caracteristicas en la vida de un creyente son contrarias a la verdad, una vida piadosa se contrasta aqui ya que la verdad alinea con la piedad.
 
-#### En el verso 8 y 9 vemos cararcteristicas que alinean con la verdad y la piedad, alguien que anda piadasosamente.
+### Tito 1:8 
+Antes bien, debe ser hospitalario, amante de lo bueno, prudente, justo, santo, dueño de sí mismo. 
 
-### Tito 1:10a "*Porque hay muchos rebeldes,...*"  Por que razon es importante que el que desea el obispado sea un retenedor de la palabra fiel, bueno ahora vemos que hay muchos rebeldes.
+#### Antes bien, debe ser hospitalario
 
-#### El verbo "hay" (presente, indicativo, activo) nos muestar que es un hecho/realidad, hay muchos rebeldes, se esta apuntando directamente a un grupo, aunque no se nos dice si estos forman parate de la iglesia o no, pero si se nos dice que son rebeldes.
+##### Un segundo contraste a como no debe ser, esta como debes ser un su andar, un andar o vida que alinea con la verdad segun piedad.
 
-#### "rebeldes" literalmente dicho no puesto bajo sujecion, es un grupo de personas que no estan bajo la enseñanza ( la verdad), como sabemos esto, al revisasr el contexto vemos que el anciano debe se run retenedor de la palabra fiel conforme a la enseñanza, para refutar a los que contradicen, esto podia estar identificandona estos rebeldes.
+##### El es hospitalario, literalmente dicho "alguien que ama a los extraños" o "amigo de los extrangeros". 1 Timoteo 3:2; 1 Pedro 4:9
 
-#### Los rebeldes habrian negado la fe, por lo cual naunfragaron de ella, estos abiertamente no estan deacuerdo con la enseñanza en la verdad biblica pues no se sujetan a ella.
+#### amante de lo bueno
 
-### Tito 1:10b "*habladores vanos...*" Esto es un adjetivo al igual que rebeldes, esta describiendo a este grupo de personas, son reberdes, hablan palabras vacias.
+##### Debe ser alguin que ame lo bueno, esto esta referido al bien en todas sus expresiones, ama el bien conforme a la verdad. Mateo 19:16, 20:15; Lucas 8:8
 
-#### "habladores vanos" se puede traducir como un charlatan o un hablador inutil ya que su habla no lleva a ningun lugar. 2 Pedro 1:21
+#### prudente
 
-### Tito 1:10c "*y engañadores,...*" Tambien son engañadores, esto ya no solo es una caracteristica de ellos, sino que se refiere a ellos como una persona, son "Los Engañadores" asi se los identifica.
+##### Debe ser de mente sana, alguien prudente es alguien que goza de una mente sana o alguien que esta en sus cabales capaz de pensar conforme a la verdad, en contraste a lo que no debe ser un iracundo, un codicioso,un pendenciero, un borracho y un orgullo los cuales estan cegados por sus deseos. 1 Timoteo 3:2; Tito 2:2, 5
 
-#### "engañadores" viene de FRENAPATES literalmente dicho "Los que descarrian/seducens la mente".
+#### justo
 
-### Tito 1:10d "*especialmente los de la circuncisión,...*" Pablo señalara a un grupo especial de engañadores, rebeldes y habladores vanos.
+##### Debe ser justo en su andar, estas son caracteristicas que se persiben extexternamente, es alguin que exibe justicia en su andar, tambien puede verse con hacer lo que es correcto. Hechos 4:19; Efesios 6:1; Colosenses 4:1; 2 Pedro 1:13
 
-#### Pablo señalaria a los judios como uno de estos grupos que se dedican a engañar a los creyentes, aunque no son los unicos ya que tambien hay engañadores de parte de los gentiles. Hechos 13:50, 14:1-2, 19, 17:5, 13
+#### santo
 
-### Tito 1:11a "*a quienes es preciso tapar la boca,...*" Esta parte no solamente habla de los judios, sino esta tomando a todos los que tengan estas caracteristicas, a todo aquel que este en esto, un engañador, un rebelde, un hablador vano, sea judio o gentil.
+##### Debe ser andar en santidad, literalmente dicho "fiel en santidad". Hechos 13:34; 1 Timoteo 2:8; Hebreos 7:26
 
-#### "Es preciso" tambien se traduce como "es necesario", esta en (presente, indicativo, avtivo) mostrando la necesesidad como un hecho presente a hacer.
+#### dueño de sí mismo
 
-#### A estos hombres es necesario ahora taparles la boca, tambien dicho hacerlos callar.
+##### Deber tener dominio propio, es interesante que no lo manda a dominar sus deseos, mas bien lo enfatiza como una caracteristica de el alguien que es dueño de si mismo. Gálatas 5:23; 2 Pedro 1:6
 
-#### El verbo es (presente, infinitivo, activo) el tiempo presente muestra el momento del del verbo como continuo ahora, el activo nos mustra que no demos esperar a que esto mengue por si solo y el modo infinitivo decribe a la accion como tal no enfatisando a alguin en especifico o un tiempo en el deba hacerce simplemente la accion de taparles la boca, por tanto ahora activamente silenciarlos.
+### Tito 1:9 
+Debe retener la palabra fiel que es conforme a la enseñanza, para que sea capaz también de exhortar con sana doctrina y refutar a los que contradicen.
 
-### Tito 1:11b "*porque están trastornando familias enteras,...*" Vemos porque esta inportante taparles la boca.
+#### Debe retener la palabra fiel que es conforme a la enseñanza
 
-#### Estos hombres estan transtornando literalmente dicho "voltear, destuir o arruinar" una connotacion negativa. Juan 2:15; 2 Timoteo 2:18
+##### Una traducion mas literal " Se este adhiriendo firmemente a la palabra que es digna de confianza que alinea con la enseñanza".
 
-#### A "familias enteras" tambien traducido como casas o moradas, estos hombres estan destruyendo casas, ahora es interesante que no es una frase literal, sino que se refiera a las personas que se reunen en un lugar, estas estan siendo destruidas. Pero ¿De que manera?
+##### Es interesante como se escribe, "se predico la palabra (fiel) segun la enseñanza", fuera de la enseñanza (la Fe, de la verdad) la palabra dicha no es digna de confianza, asimismo solo la enseñanza (la verdad) produce una palabra fiel.
 
-### Tito 1:11c "*enseñando por ganancias deshonestas,...*" Estos hombres estan enseñando, es pormedio de su enseñanza que estan destruyendo casas enteras.
+##### "retener" es un verbo (presente, participio, medio), el deber estar aferrado fimemente, el particiopio nos indica que es una caracteristica suya un aferrado/retenedor.
 
-#### Asi mismo ellos enseñan por ganancia es decir por lucrar. "Deshonestas" es un adjetivo de ganancia, tambien se traduce como vergonzoso, indecoroso. Ellos enseñan por un lucho vergonzoso. Filipenses 1:21; 1 Corintios 11:6, 14:35; Efesios 5:12
+#### para que sea capaz también de exhortar con sana doctrina
 
-### Tito 1:11d "*cosas que no deben....*" Su ganancia es vergonzosa  por que enseñann lo que no deben.
+##### Veremos que etsa carcteristica de ser retenedor tiene un proposito en el rol de anciano.
 
-#### Entendemos que el obrero es digno de su salario, sin embargo al enseñanr por lucro y aun mas, enseñan cosas que no deben, esa ganacia es vergonzosa.
+##### "Sea" es un verbo en modo subjuntivo indicando posibilidad en el verbo, puede que sea o puede que no sea. Ser capaz esta sujeto a retener, eso indica "para" retener para ser.
 
-#### Cuando dice "cosas que no deben" no significa que hay algo oculto que no puede enseñanrse, en un sentido de "esta enseñanza no es para ustedes". Hablando de la "Enseñanza" ¿que son las cosas que no deben?, pues lo que es contrario a la misma, estos hombres son rebeldes y engañadores, su enseñanza no se alinea a verdad y mucho menos a una vida de piedad. Su misma enseñanza es contraria a la verdad de la escritura.
+##### "Capaz" tambien traducido como "poderoso", que sea retenedor para ser poderoso y estar exhortando/consolando/animando con enseñanza saludable o que sana. Hechos 7:22, !4:8, 18:24; Romanos 11:23; Hebreos 11:19; Santiago 3:2
 
-### Tito 1:12a "*Uno de ellos, su propio profeta,...*" En este verso "uno de ellos" esta conectado gramaticalmente al grupo plural de los rebeldes y engañadores.
+#### y refutar a los que contradicen
 
-#### " Alguien que procede de ellos, su propio profeta de ellos". "Uno de ellos" esta frase relaciona al uno en el grupo de rebelde, hablador vano y engañador, este "uno" es un poeta propio de los cretences, vemos que a diferencia de los demas identifica su origen, es de los cretences.
+##### Para que se poderoso en refutar a los que contradicen.
 
-### Tito 1:12b "*dijo: «Los cretenses son siempre mentirosos,...*" Esto es dicho por primera vez por Epimanes en el siglo XII a.C. a raiz de que los cretences aseveraban que la tumba de zeus(jupiter) se encontraba en la isla.
+##### "Refutar" es ELENKJO quiere decir poner al descubierto, al ser retenedor de la palabra fiel conforme a la enseñanza, sera poderoso para podener al descubierto(exhibir) con base en la verdad. Tito 1:13, 2:15; 1 Timoteo 5:20 
 
-#### Los cretences tenian la fama de ser siempre mentirosos, "siempre" da a entender continuidad/constantemente. Mentiroso es un sustantivo esto esta descripiendo a una persona, cretence y mentiroso eran intercambiabres cuando te referias a ellos. Hechos 9:13; Romanos 3:8; 2 Timoteo 4:14; 1 Pedro 3:12
+##### Sera capaz de exhibir a todo el que habla en contra de la verdad. 
 
-### Tito 1:12c "*malas bestias,...*"  "malas" es un adjetivo de bestias que es el sustantivo. A los cretences se los identificaba como bestias, o por lo menos se referian a ellos asi, a demas de bestias eran maliciosas. Marcos 1:13; Hechos 11:6, 28:4-5
+##### En el verso 8 y 9 vemos cararcteristicas que alinean con la verdad y la piedad, alguien que anda piadasosamente.
 
-### Tito 1:12d "*glotones ociosos»....*" Eran conocidos por ser glotones o del comer, sin embargo esto tenia una connotacion negativa al ser complementado con ociosos, esto es alguien sin que hacer o desempleado.
+### Tito 1:10 
+Porque hay muchos rebeldes, habladores vanos y engañadores, especialmente los de la circuncisión, 
 
-### Tito 1:13a "*Este testimonio es verdadero....*" A traves de la carta podemos ver que esto no solo era un dicho de Epimanes, esto era una descripcion real de la cultura cretence, se nos dice que es un testimonio confiable.
+#### Porque hay muchos rebeldes
 
-#### Notamos la similitud del dicho con la conducta de los rebeldes, siembre mentirosos (Enseñan cosas que no deben), malas bestias (Son rebeldes) y glotones osiosos (Enseñan por ganancias deshonestas).
+##### Por que razon es importante que el que desea el obispado sea un retenedor de la palabra fiel, bueno ahora vemos que hay muchos rebeldes.
 
-### Tito 1:13b "*Por eso, repréndelos severamente...*"  El "por eso " en esta parte del texto es una conclusion que engloba desde el verso 10 al 13. Habia un peligro latente al asecho, habian rebeldes enseñando cosas que no deben, Tito debia reprenderlos severamente. Tito 1:9, 13, 2:15 
+##### El verbo "hay" (presente, indicativo, activo) nos muestar que es un hecho/realidad, hay muchos rebeldes, se esta apuntando directamente a un grupo, aunque no se nos dice si estos forman parate de la iglesia o no, pero si se nos dice que son rebeldes.
 
-#### "Reprenderlos" es ELENKJO, quiere decir: Poner al descubierto, Tito debia exponer (sacar a la luz) a estos rebeldes, es interesante la manera, solo podria ser a traves de la verdad. Juan 8:46; 1 Corintios 14:24; Efesios 5:11; 1 Timoteo 5:20; Judas 22
+##### "rebeldes" literalmente dicho no puesto bajo sujecion, es un grupo de personas que no estan bajo la enseñanza ( la verdad), como sabemos esto, al revisasr el contexto vemos que el anciano debe se run retenedor de la palabra fiel conforme a la enseñanza, para refutar a los que contradicen, esto podia estar identificandona estos rebeldes.
 
-#### "reprendelos severamente" Esta confrontacion con la verdad debia ser de manera abupta, vemos que no tenia caso a tolerancia, esto no indica el trato con la persona sino con respencto a la verdad del evangelio, no hay caso en otorgar tolerancia cuando la verdad esta siendo cambiada, no es algo permisible. 2 Corintios 13:10
+##### Los rebeldes habrian negado la fe, por lo cual naunfragaron de ella, estos abiertamente no estan deacuerdo con la enseñanza en la verdad biblica pues no se sujetan a ella.
 
-### Tito 1:13c "*para que sean sanos en la fe,...*" Esta reprencion no tiene el proposito de destruir a la persona, mas bien de sanarlo.
+#### habladores vanos
 
-#### Muchos hoy en dia no solemos tomar con la mejor actitud una reprencion, pensamos que es un ataque personal, pero debemos reconciderar que tiene un proposito "ser sanos en la fe".
+##### Esto es un adjetivo al igual que rebeldes, esta describiendo a este grupo de personas, son reberdes, hablan palabras vacias.
 
-#### "Sano en la fe" Ser sano es un verbo ( presente, subjuntivo, activo) indicando la posiblilidad de ser sano, esto en condicion de como recibimos la reprencion. A traves de ser confrontado con la verdad podemos cambiar de mente o no.
+##### "habladores vanos" se puede traducir como un charlatan o un hablador inutil ya que su habla no lleva a ningun lugar. 2 Pedro 1:21
 
-#### Ser sanos esta ligado a "En la fe". La fe aqui no es la confianza personal de cada uno sino se reliere al conjunto de la enzeñanza mostrada en la escritura, esto es lo que conforma la verdad Biblica.
+#### y engañadores
 
-### Tito 1:14a "*y no presten atención a mitos judaicos...*" Un segundo proposito en esta reprencion, para que no presten atencion a fabulas judias.
+##### Tambien son engañadores, esto ya no solo es una caracteristica de ellos, sino que se refiere a ellos como una persona, son "Los Engañadores" asi se los identifica.
 
-#### Al ser sanos en la fe no estaremos yendo tras fabulas o mitos judios o de cualquier clase, cosas que al ser fantaciosas nos desvian de la verdad.
+##### "engañadores" viene de FRENAPATES literalmente dicho "Los que descarrian/seducens la mente".
 
-#### "prestar atencion" (presente, participio, activo) se refiere a buscar activamente o navegar hacia. 1 Timoteo 1:4, 3:8 4:1, 13; 2 Pedro 1:19
+#### especialmente los de la circuncisión
 
-### Tito 1:14b "*y a mandamientos de hombres que se apartan de la verdad....*" Un tercer proposito en esta reprencion, para que no prestemos atencion a mandamiento que provienen de los hombres.
+##### Pablo señalara a un grupo especial de engañadores, rebeldes y habladores vanos.
 
-#### Literalmente dicho: Hombres apartados de la verdad, estos han sido apartados de la verdad, mostrando que la verdad no mora en ellos o sus enseñanzas.
+##### Pablo señalaria a los judios como uno de estos grupos que se dedican a engañar a los creyentes, aunque no son los unicos ya que tambien hay engañadores de parte de los gentiles. Hechos 13:50, 14:1-2, 19, 17:5, 13
 
-#### Estos hombres se han apartado de la verdad y aun asi dictan mandamientos sobre sus seguidores, evidentemente lo que recomiendan jamas estara alineado con la verdad, al ser sanos en la fe no seremos engañados facilmente.
+### Tito 1:11 
+a quienes es preciso tapar la boca, porque están trastornando familias enteras, enseñando por ganancias deshonestas, cosas que no deben. 
 
-#### La iglesia de Dios debe estar siendo nutrida en y a traves de la verdad, hasta este momento hemos visto como la verdad a sido enfatizada, empezando con la presentacion de Pablo, su apostolado, su servicio son conforme a la verdad segun piedad, la designacion de ancianos en la iglesia en cumplimiento de los requisitos (una conductaconforme a la verdad segun piedad), la conducta que no esta alineada a la verdad segun piedad y la reprencion a los rebeldes en base a la verdad.
+#### a quienes es preciso tapar la boca
+
+##### Esta parte no solamente habla de los judios, sino esta tomando a todos los que tengan estas caracteristicas, a todo aquel que este en esto, un engañador, un rebelde, un hablador vano, sea judio o gentil.
+
+##### "Es preciso" tambien se traduce como "es necesario", esta en (presente, indicativo, avtivo) mostrando la necesesidad como un hecho presente a hacer.
+
+##### A estos hombres es necesario ahora taparles la boca, tambien dicho hacerlos callar.
+
+##### El verbo es (presente, infinitivo, activo) el tiempo presente muestra el momento del del verbo como continuo ahora, el activo nos mustra que no demos esperar a que esto mengue por si solo y el modo infinitivo decribe a la accion como tal no enfatisando a alguin en especifico o un tiempo en el deba hacerce simplemente la accion de taparles la boca, por tanto ahora activamente silenciarlos.
+
+#### porque están trastornando familias enteras
+
+##### Vemos porque esta inportante taparles la boca.
+
+##### Estos hombres estan transtornando literalmente dicho "voltear, destuir o arruinar" una connotacion negativa. Juan 2:15; 2 Timoteo 2:18
+
+##### A "familias enteras" tambien traducido como casas o moradas, estos hombres estan destruyendo casas, ahora es interesante que no es una frase literal, sino que se refiera a las personas que se reunen en un lugar, estas estan siendo destruidas. Pero ¿De que manera?
+
+#### enseñando por ganancias deshonestas
+
+##### Estos hombres estan enseñando, es pormedio de su enseñanza que estan destruyendo casas enteras.
+
+##### Asi mismo ellos enseñan por ganancia es decir por lucrar. "Deshonestas" es un adjetivo de ganancia, tambien se traduce como vergonzoso, indecoroso. Ellos enseñan por un lucho vergonzoso. Filipenses 1:21; 1 Corintios 11:6, 14:35; Efesios 5:12
+
+#### cosas que no deben
+
+##### Su ganancia es vergonzosa  por que enseñann lo que no deben.
+
+##### Entendemos que el obrero es digno de su salario, sin embargo al enseñanr por lucro y aun mas, enseñan cosas que no deben, esa ganacia es vergonzosa.
+
+##### Cuando dice "cosas que no deben" no significa que hay algo oculto que no puede enseñanrse, en un sentido de "esta enseñanza no es para ustedes". Hablando de la "Enseñanza" ¿que son las cosas que no deben?, pues lo que es contrario a la misma, estos hombres son rebeldes y engañadores, su enseñanza no se alinea a verdad y mucho menos a una vida de piedad. Su misma enseñanza es contraria a la verdad de la escritura.
+
+### Tito 1:12 
+Uno de ellos, su propio profeta, dijo: «Los cretenses son siempre mentirosos, malas bestias, glotones ociosos». 
+
+#### Uno de ellos, su propio profeta
+
+##### En este verso "uno de ellos" esta conectado gramaticalmente al grupo plural de los rebeldes y engañadores.
+
+##### " Alguien que procede de ellos, su propio profeta de ellos". "Uno de ellos" esta frase relaciona al uno en el grupo de rebelde, hablador vano y engañador, este "uno" es un poeta propio de los cretences, vemos que a diferencia de los demas identifica su origen, es de los cretences.
+
+#### dijo: «Los cretenses son siempre mentirosos
+
+##### Esto es dicho por primera vez por Epimanes en el siglo XII a.C. a raiz de que los cretences aseveraban que la tumba de zeus(jupiter) se encontraba en la isla.
+
+##### Los cretences tenian la fama de ser siempre mentirosos, "siempre" da a entender continuidad/constantemente. Mentiroso es un sustantivo esto esta descripiendo a una persona, cretence y mentiroso eran intercambiabres cuando te referias a ellos. Hechos 9:13; Romanos 3:8; 2 Timoteo 4:14; 1 Pedro 3:12
+
+#### malas bestias
+
+##### "malas" es un adjetivo de bestias que es el sustantivo. A los cretences se los identificaba como bestias, o por lo menos se referian a ellos asi, a demas de bestias eran maliciosas. Marcos 1:13; Hechos 11:6, 28:4-5
+
+#### glotones ociosos»
+
+##### Eran conocidos por ser glotones o del comer, sin embargo esto tenia una connotacion negativa al ser complementado con ociosos, esto es alguien sin que hacer o desempleado.
+
+### Tito 1:13 
+Este testimonio es verdadero. Por eso, repréndelos severamente para que sean sanos en la fe, 
+
+#### Este testimonio es verdadero
+
+##### A traves de la carta podemos ver que esto no solo era un dicho de Epimanes, esto era una descripcion real de la cultura cretence, se nos dice que es un testimonio confiable.
+
+##### Notamos la similitud del dicho con la conducta de los rebeldes, siembre mentirosos (Enseñan cosas que no deben), malas bestias (Son rebeldes) y glotones osiosos (Enseñan por ganancias deshonestas).
+
+#### Por eso, repréndelos severamente
+
+##### El "por eso " en esta parte del texto es una conclusion que engloba desde el verso 10 al 13. Habia un peligro latente al asecho, habian rebeldes enseñando cosas que no deben, Tito debia reprenderlos severamente. Tito 1:9, 13, 2:15 
+
+##### "Reprenderlos" es ELENKJO, quiere decir: Poner al descubierto, Tito debia exponer (sacar a la luz) a estos rebeldes, es interesante la manera, solo podria ser a traves de la verdad. Juan 8:46; 1 Corintios 14:24; Efesios 5:11; 1 Timoteo 5:20; Judas 22
+
+##### "reprendelos severamente" Esta confrontacion con la verdad debia ser de manera abupta, vemos que no tenia caso a tolerancia, esto no indica el trato con la persona sino con respencto a la verdad del evangelio, no hay caso en otorgar tolerancia cuando la verdad esta siendo cambiada, no es algo permisible. 2 Corintios 13:10
+
+#### para que sean sanos en la fe
+
+##### Esta reprencion no tiene el proposito de destruir a la persona, mas bien de sanarlo.
+
+##### Muchos hoy en dia no solemos tomar con la mejor actitud una reprencion, pensamos que es un ataque personal, pero debemos reconciderar que tiene un proposito "ser sanos en la fe".
+
+##### "Sano en la fe" Ser sano es un verbo ( presente, subjuntivo, activo) indicando la posiblilidad de ser sano, esto en condicion de como recibimos la reprencion. A traves de ser confrontado con la verdad podemos cambiar de mente o no.
+
+##### Ser sanos esta ligado a "En la fe". La fe aqui no es la confianza personal de cada uno sino se reliere al conjunto de la enzeñanza mostrada en la escritura, esto es lo que conforma la verdad Biblica.
+
+### Tito 1:14 
+y no presten atención a mitos judaicos y a mandamientos de hombres que se apartan de la verdad.
+
+#### y no presten atención a mitos judaicos
+
+##### Un segundo proposito en esta reprencion, para que no presten atencion a fabulas judias.
+
+##### Al ser sanos en la fe no estaremos yendo tras fabulas o mitos judios o de cualquier clase, cosas que al ser fantaciosas nos desvian de la verdad.
+
+##### "prestar atencion" (presente, participio, activo) se refiere a buscar activamente o navegar hacia. 1 Timoteo 1:4, 3:8 4:1, 13; 2 Pedro 1:19
+
+#### y a mandamientos de hombres que se apartan de la verdad
+
+##### Un tercer proposito en esta reprencion, para que no prestemos atencion a mandamiento que provienen de los hombres.
+
+##### Literalmente dicho: Hombres apartados de la verdad, estos han sido apartados de la verdad, mostrando que la verdad no mora en ellos o sus enseñanzas.
+
+##### Estos hombres se han apartado de la verdad y aun asi dictan mandamientos sobre sus seguidores, evidentemente lo que recomiendan jamas estara alineado con la verdad, al ser sanos en la fe no seremos engañados facilmente.
+
+##### La iglesia de Dios debe estar siendo nutrida en y a traves de la verdad, hasta este momento hemos visto como la verdad a sido enfatizada, empezando con la presentacion de Pablo, su apostolado, su servicio son conforme a la verdad segun piedad, la designacion de ancianos en la iglesia en cumplimiento de los requisitos (una conductaconforme a la verdad segun piedad), la conducta que no esta alineada a la verdad segun piedad y la reprencion a los rebeldes en base a la verdad.
 
 ## Ser corrompidos nos vuelve inutiles.
 
-### Tito 1:15a "*Todas las cosas son puras para los puros,...*" Estos versos van a girar en torno a "los puros" o "los limpios" esto es un adjetivo, quiere decir que es una caracteristica.
+### Tito 1:15 
+Todas las cosas son puras para los puros, pero para los corrompidos e incrédulos nada es puro, sino que tanto su mente como su conciencia están corrompidas. 
 
-#### Para "los limpios" todas las cosas son limpias, en algunas ocacion esta palabra se utiliza para describir la condicion de una persona como ser sin culpa, inocente o libre, asi como de la pureza de alguien o algo como los alimentos  Juan 13:10-11, 15:3; Hechos 18:6, 20:26; Romanos 14:20; 1 Timoteo 3:9; Hebreos 10:23; Santiago 1:27
+#### Todas las cosas son puras para los puros
 
-#### Esto es una realidad de todo aquel que ha sido limpiados en la sangre de Cristo por medio de la palabra, para ellos (creyentes) todas las cosas son limpias. Hechos 10:15; Romanos 14:14
+##### Estos versos van a girar en torno a "los puros" o "los limpios" esto es un adjetivo, quiere decir que es una caracteristica.
 
-#### En el contexto para los puros (los que permanecen firmes en la verdad, o persudidos por ella) conforme a la verdad no hay ninguna cosa impura en si. Aqui puros esta en relacion a la verdad.
+##### Para "los limpios" todas las cosas son limpias, en algunas ocacion esta palabra se utiliza para describir la condicion de una persona como ser sin culpa, inocente o libre, asi como de la pureza de alguien o algo como los alimentos  Juan 13:10-11, 15:3; Hechos 18:6, 20:26; Romanos 14:20; 1 Timoteo 3:9; Hebreos 10:23; Santiago 1:27
 
-### Tito 1:15b "*pero para los corrompidos e incrédulos nada es puro,...*" Aqui se marca un pequeño contraste, en el texto griego aun se continua hablando de "los puros" pero con un enfasis a ser contaminados o corrompidos.
+##### Esto es una realidad de todo aquel que ha sido limpiados en la sangre de Cristo por medio de la palabra, para ellos (creyentes) todas las cosas son limpias. Hechos 10:15; Romanos 14:14
 
-#### Todo creyente posicionalmente es limpio, el enfasis aqui es "el limpio contaminado" y esta contaminacion o corrupcion es en cuanto a la palabra de verdad. 
+##### En el contexto para los puros (los que permanecen firmes en la verdad, o persudidos por ella) conforme a la verdad no hay ninguna cosa impura en si. Aqui puros esta en relacion a la verdad.
 
-#### Un creyente que ha sido corrompido en cuanto a la verdad biblica nada le es puro, todo le resulta en contaminacion hacia si mismo y es una afrenta a su fe.
+#### pero para los corrompidos e incrédulos nada es puro
 
-#### "incredulo" Primeramnente puede referirse al incredulo (no salvo) en si mismo el no es puro y no tiene ninguna cosa pura.
+##### Aqui se marca un pequeño contraste, en el texto griego aun se continua hablando de "los puros" pero con un enfasis a ser contaminados o corrompidos.
 
-#### En segundo lugar puede referirse a un cryente (salvo) pero carente de confianza. ¿Es posible que un cryente habiendo sido salvado al creer en el evangelio viva en incredulidad?, la respuesta es si, esto puede deberse ignorar la verdad biblica habiendola conocido. A causa de su negligencia nada le resulta puro. Otro caso es el creyente debil , el que esta creciendo en el conocimiento de la verdad biblica y en la fe, a el por la falta de conocimiento (la fe) algunas cosa le pueden resultar impuras. Juan 20:27; Romanos 14:1-5, 14, 22-25 (revisar)
+##### Todo creyente posicionalmente es limpio, el enfasis aqui es "el limpio contaminado" y esta contaminacion o corrupcion es en cuanto a la palabra de verdad. 
 
-### Tito 1:15c "*sino que tanto su mente como su conciencia están corrompidas....*" Para estos dos el corrompido e incredulo nada es puro porque su mente y conciencia estan contaminadas, esto tiene que ver con la ausencia de la verdad en ellos.
+##### Un creyente que ha sido corrompido en cuanto a la verdad biblica nada le es puro, todo le resulta en contaminacion hacia si mismo y es una afrenta a su fe.
 
-### Tito 1:16a "*Profesan conocer a Dios,...*" EL corrompido e incredulo profesa conocer a Dios.
+##### "incredulo" Primeramnente puede referirse al incredulo (no salvo) en si mismo el no es puro y no tiene ninguna cosa pura.
 
-#### "profesar" quiere decir confesar o declarar persibir a Dios. El sabe quien es Dios y que quiere. Conocer (perfecto, infinitivo, activo), ellos dicen haber percibido a Dios y aun persibirlo o conocerlo. Esta es su verdad
+##### En segundo lugar puede referirse a un cryente (salvo) pero carente de confianza. ¿Es posible que un cryente habiendo sido salvado al creer en el evangelio viva en incredulidad?, la respuesta es si, esto puede deberse ignorar la verdad biblica habiendola conocido. A causa de su negligencia nada le resulta puro. Otro caso es el creyente debil , el que esta creciendo en el conocimiento de la verdad biblica y en la fe, a el por la falta de conocimiento (la fe) algunas cosa le pueden resultar impuras. Juan 20:27; Romanos 14:1-5, 14, 22-25 (revisar)
 
-### Tito 1:16b "*pero con sus hechos lo niegan,...*" un pequeño contraste a su confesion, estos que dicen persibir a Dios niegan a Dios con sus aciones, su andar contradice sus palabras. esta es su piedad.
+#### sino que tanto su mente como su conciencia están corrompidas
 
-#### Aqui podemos resaltar algo importante "El conocimiento de la verdad es segun piedad" ambos coinciden, hay la verdad que resulta en piedad, y esta misma piedad realza esta verdad y hay entre comillas " verdad pero que resulta en falsa piedad o en inpiedad". Lo unico que puede resultar en piedad real es la verdad biblica tomada por la fe.
+##### Para estos dos el corrompido e incredulo nada es puro porque su mente y conciencia estan contaminadas, esto tiene que ver con la ausencia de la verdad en ellos.
 
-#### Veamos a continuacion en que resulta los que dicen conocer a Dios y sus hechos lo niegan o rechazan.
+### Tito 1:16 
+Profesan conocer a Dios, pero con sus hechos lo niegan, siendo abominables y desobedientes e inútiles para cualquier obra buena.
 
-### Tito 1:16c "*siendo abominables y desobedientes...*" Son abominables y desobedientes estos son caracteristicas de ellos.
+#### Profesan conocer a Dios
 
-#### "abominable" es BDELUKTOS quiere decir ser repugnante, detestable o de hedor insoportable, se usaba para calificar a la idoratria como repugnante, 
+##### EL corrompido e incredulo profesa conocer a Dios.
 
-#### "desobediente" es un rebelde o contumaz, esta caracteristica tine que ver con haber rechazado la verdad.
+##### "profesar" quiere decir confesar o declarar persibir a Dios. El sabe quien es Dios y que quiere. Conocer (perfecto, infinitivo, activo), ellos dicen haber percibido a Dios y aun persibirlo o conocerlo. Esta es su verdad
 
-### Tito 1:16d "*e inútiles para cualquier obra buena....*" Son inutiles o reprobados o descalificados para cualquier buena obra. 2 Timoteo 3:8
+#### pero con sus hechos lo niegan
+
+##### Un pequeño contraste a su confesion, estos que dicen persibir a Dios niegan a Dios con sus aciones, su andar contradice sus palabras. esta es su piedad.
+
+##### Aqui podemos resaltar algo importante "El conocimiento de la verdad es segun piedad" ambos coinciden, hay la verdad que resulta en piedad, y esta misma piedad realza esta verdad y hay entre comillas " verdad pero que resulta en falsa piedad o en inpiedad". Lo unico que puede resultar en piedad real es la verdad biblica tomada por la fe.
+
+##### Veamos a continuacion en que resulta los que dicen conocer a Dios y sus hechos lo niegan o rechazan.
+
+#### siendo abominables y desobedientes
+
+##### Son abominables y desobedientes estos son caracteristicas de ellos.
+
+##### "abominable" es BDELUKTOS quiere decir ser repugnante, detestable o de hedor insoportable, se usaba para calificar a la idoratria como repugnante, 
+
+##### "desobediente" es un rebelde o contumaz, esta caracteristica tine que ver con haber rechazado la verdad.
+
+#### e inútiles para cualquier obra buena
+
+##### Son inutiles o reprobados o descalificados para cualquier buena obra. 2 Timoteo 3:8
 
 # Tito 2:1-15 - Un contraste, lo que esta deacuerdo con la sana doctrina
 
