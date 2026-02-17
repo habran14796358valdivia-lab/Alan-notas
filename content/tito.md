@@ -1229,11 +1229,25 @@ para que justificados por Su gracia fuéramos hechos herederos según la esperan
 
 #### para que justificados por Su gracia
 
-##### Nos salvo... por medio de Jesucristo "para", nuestra salvacion consta de un proposito. Es normal que una pregunta este presente una persona salvada (creyente) ¿Y ahora que? ahora que soy creyente, que mas sigue ¿que debo hacer?, ¿esta bien Dios me salvo por gracia por medio de Cristo? ¿que sigue ahora?. Pues aun hay mucho mas, la gracia de dios no solo fue para nuestra justificacion, la gracia nos enseña a vivir enpoderados en la obra de Cristo con un proposito.
+##### Nos salvo... por medio de Jesucristo "para", nuestra salvacion consta de un proposito. Es normal que una pregunta este presente en una persona salvada (creyente) ¿Y ahora que? ahora que soy creyente, que mas sigue ¿que debo hacer?, ¿esta bien Dios me salvo por gracia por medio de Cristo? ¿que sigue ahora?. Pues aun hay mucho mas, la gracia de Dios no solo fue para nuestra justificacion, la gracia nos enseña a vivir enpoderados en la obra de Cristo con un proposito.
 
 ##### "justificados" es un verbo (aoristo, participio, pasivo) nustra justificacion es completa, nostros no nos declaramos justo, DIos nos declara justos, entonces se puede entende como "habiendo sido declarados justos" este es una posicion o estado permanente en el creyente.
 
 #### fuéramos hechos herederos según la esperanza de la vida eterna
+
+Fueras hechos - GINOMAI
+: SIgnifica "ser" (poseer cierta caracteristica), convertirse, alcanzar o adquirir, llegar a una posicion o estado. Esta palabras nos muestra que nuestra justificacion no es el final. En el andar podemos estar siendo transformados cada momneto a medida que dejamos que la gracia de Dios obre en nosotros.
+ 
+##### Una vez habiendo ya sido declarados justos su gracia tiene proposito para con el creyente para que "lleguemos a ser" este es un verbo (aoristo, subjuntivo, pasivo) "llegar a ser" es una acion completa, no seremos en parte herededos lo seremos completamente, sin embargo el subjuntivo expresa posibilidad y no un hecho ya concretad o, y la voz pasiva nos indica que nosotros no esta la acion de llegar a hacernos herederos, alguien mas nos hara herederos.
+
+##### No debemos asustarnos hermanos, no estamos diciendo qu no somo ya herederos, la realidad es que si, somo herederos juntamente con Cristo eso no esta a discucion, en el momento que recibimos la adopcion como hijos tambien se nos dio una herencia en Cristo reservada en los cielos
+
+kleronomos 2818 base 2819 y 3551
+
+
+
+hechos 20.32 - 26.10 galatas
+ hechas13.19 
 
 ### Tito 3:8 
 Palabra fiel es esta; y en cuanto a estas cosas quiero que hables con firmeza, para que los que han creído en Dios procuren ocuparse en buenas obras. Estas cosas son buenas y útiles para los hombres. 
