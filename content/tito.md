@@ -1236,16 +1236,23 @@ para que justificados por Su gracia fuéramos hechos herederos según la esperan
 #### fuéramos hechos herederos según la esperanza de la vida eterna
 
 Fueras hechos - GINOMAI
-: SIgnifica "ser" (poseer cierta caracteristica), convertirse, alcanzar o adquirir, llegar a una posicion o estado. Esta palabras nos muestra que nuestra justificacion no es el final. En el andar podemos estar siendo transformados cada momneto a medida que dejamos que la gracia de Dios obre en nosotros.
- 
+: SIgnifica "ser" (poseer cierta caracteristica), convertirse, alcanzar o adquirir, llegar a una condicion o estado. Esta palabras nos muestra que nuestra justificacion no es el final. En el andar podemos estar siendo transformados cada momento a medida que dejamos que la gracia de Dios obre en nosotros.
+  observar por no decir corrregir
 ##### Una vez habiendo ya sido declarados justos su gracia tiene proposito para con el creyente para que "lleguemos a ser" este es un verbo (aoristo, subjuntivo, pasivo) "llegar a ser" es una acion completa, no seremos en parte herededos lo seremos completamente, sin embargo el subjuntivo expresa posibilidad y no un hecho ya concretad o, y la voz pasiva nos indica que nosotros no esta la acion de llegar a hacernos herederos, alguien mas nos hara herederos.
 
-##### No debemos asustarnos hermanos, no estamos diciendo qu no somo ya herederos, la realidad es que si, somo herederos juntamente con Cristo eso no esta a discucion, en el momento que recibimos la adopcion como hijos tambien se nos dio una herencia en Cristo reservada en los cielos
+##### No debemos asustarnos hermanos, no estamos diciendo qu no somo ya herederos, la realidad es que si, somo herederos de DIos juntamente con Cristo eso no esta a discucion, en el momento que recibimos la adopcion como hijos tambien fuimos hechos herederos de Dios, Pedro describe que tenemos una herecia reservada en los cielos.
 
+Herencia - KLERONOMOS
+: Esta palabra significa simplemente parte o porcion de algo , asi como una adquisicion, o una participacion de algun bien. Esta palabra no describe que se asigna una porcion, el contexto debera de aclararlo. Ejemplo: El heredero es alguien que recibira una parte de algo, El heredero de la casa, es alguien que recibira un parte o participacion de la casa.
+
+##### Pablo no esta poniendo en tela de duda nuestra justificacion, dice "habiendo sido ya declrados justo" parte desde este hecho. El punto que Pablo describe es que la vida piadosa no es vana, evidentemente tendra una recompensa, el foco no es lo que pueden ganar mas bien que la viva vivida en este mundo en nuestro caminar no es vana sino tiene propositoi, Dios quiee enseñarnos, quiere tranformarnos, Cristo quiere redimirnos, purificarnos como una pocesion preciada. 
+
+##### El texto da ha entender que al dejar que la gracia obre en nuestra vidas, que la gracia sea enpodrandonos en nuestro andar viviendo en piedad podemos llegar a ser participes de una herencia 
+
+ ¿que es ser herederos conforme a la esperanza de vida etena?
+ llegar a ser herederos conformados a la esperaza de vida eterna
+ que es la esperanza de vida eterna?
 kleronomos 2818 base 2819 y 3551
-
-
-
 hechos 20.32 - 26.10 galatas
  hechas13.19 
 
