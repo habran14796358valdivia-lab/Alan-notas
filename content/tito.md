@@ -1229,7 +1229,7 @@ para que justificados por Su gracia fuéramos hechos herederos según la esperan
 
 #### para que justificados por Su gracia
 
-##### Nos salvo... por medio de Jesucristo "para", nuestra salvacion consta de un proposito. Es normal que una pregunta este presente en una persona salvada (creyente) ¿Y ahora que? ahora que soy creyente, que mas sigue ¿que debo hacer?, ¿esta bien Dios me salvo por gracia por medio de Cristo? ¿que sigue ahora?. Pues aun hay mucho mas, la gracia de Dios no solo fue para nuestra justificacion, la gracia nos enseña a vivir enpoderados en la obra de Cristo con un proposito.
+##### Nos salvo... por medio de Jesucristo "para", nuestra salvacion consta de un proposito. Es normal que una pregunta este presente en una persona salvada (creyente) ¿Y ahora que? ahora que soy creyente, que mas sigue ¿que debo hacer?, ¿esta bien Dios me salvo por gracia por medio de Cristo? ¿que sigue ahora?. Pues aun hay mucho mas, la gracia de Dios no solo fue para nuestra justificacion, la gracia nos enseña a vivir enpoderados en la obra de Cristo con un proposito, viviendo conforme a la realidad.
 
 ##### "justificados" es un verbo (aoristo, participio, pasivo) nustra justificacion es completa, nostros no nos declaramos justo, DIos nos declara justos, entonces se puede entende como "habiendo sido declarados justos" este es una posicion o estado permanente en el creyente.
 
@@ -1238,9 +1238,9 @@ para que justificados por Su gracia fuéramos hechos herederos según la esperan
 Fueras hechos - GINOMAI
 : SIgnifica "ser" (poseer cierta caracteristica), convertirse, alcanzar o adquirir, llegar a una condicion o estado. Esta palabras nos muestra que nuestra justificacion no es el final. En el andar podemos estar siendo transformados cada momento a medida que dejamos que la gracia de Dios obre en nosotros.
   observar por no decir corrregir
-##### Una vez habiendo ya sido declarados justos su gracia tiene proposito para con el creyente para que "lleguemos a ser" este es un verbo (aoristo, subjuntivo, pasivo) "llegar a ser" es una acion completa, no seremos en parte herededos lo seremos completamente, sin embargo el subjuntivo expresa posibilidad y no un hecho ya concretad o, y la voz pasiva nos indica que nosotros no esta la acion de llegar a hacernos herederos, alguien mas nos hara herederos.
+##### Una vez habiendo ya sido declarados justos su gracia tiene proposito para con el creyente para que "lleguemos a ser" este es un verbo (aoristo, subjuntivo, pasivo) "llegar a ser" es una acion completa, no seremos en parte, lo seremos completamente, sin embargo el subjuntivo expresa posibilidad y no un hecho ya concretado, y la voz pasiva nos indica que nosotros no esta la acion de llegar a hacernos, alguien mas nos hara.
 
-##### No debemos asustarnos hermanos, no estamos diciendo qu no somo ya herederos, la realidad es que si, somo herederos de DIos juntamente con Cristo eso no esta a discucion, en el momento que recibimos la adopcion como hijos tambien fuimos hechos herederos de Dios, Pedro describe que tenemos una herecia reservada en los cielos.
+##### No debemos asustarnos hermanos, no estamos diciendo que no somo ya herederos, la realidad es que si, somo herederos de DIos juntamente con Cristo eso no esta a discucion, en el momento que recibimos la adopcion como hijos tambien fuimos hechos herederos de Dios, Pedro describe que tenemos una herecia reservada en los cielos.
 
 Herencia - KLERONOMOS
 : Esta palabra significa simplemente parte o porcion de algo , asi como una adquisicion, o una participacion de algun bien. Esta palabra no describe que se asigna una porcion, el contexto debera de aclararlo. Ejemplo: El heredero es alguien que recibira una parte de algo, El heredero de la casa, es alguien que recibira un parte o participacion de la casa.
