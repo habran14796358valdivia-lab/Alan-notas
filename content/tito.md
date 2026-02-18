@@ -1334,15 +1334,45 @@ Al hombre que cause divisiones, después de la primera y segunda amonestación, 
 
 #### Al hombre que cause divisiones
 
+##### Aqui Pablo señala algo muy importante para la salud de una congregacion, se enfatiza a "un hombre" no se decribe mas que una caracteriztica de el y es indiferente si es familiar, com¡nocido, amigo, padre e hijo. Al hombre "que cause division".
+
+Que cause division - JAIRETIKOS
+: Literalmente quiere decir el hombres cismotico, faccionario o hereje, cismotico es alguien que se aparta de la autoridad reconocida (separatista) y un facicionario es alguien que se declara en favor de una facion o bando. Esta palabra se relaciona "hereje" en el sentido de que alguien se aparta de la autoridad reconocidad "La Escritura" y se declara a favor de un grupo que congenia o alinea con una contraria a a loq ue la escritura declara enfeticamente (ideologia).
+
+##### Entonces "al hombre hereje" o "al hombres cismatico" es del cual se hablara. Hermanos esto no debes ser algo que se tome a la ligera, es una situacion muy delicada e importante para ser tratada, la herejia no debe de normalizarse en la iglesia ni debe tomarse a la ligera cuando alguien esta siendo un hereje.
+
 #### después de la primera y segunda amonestación, recházalo
+
+##### Es probable que nos encontremos con alguien que se haya apartado de la verdad d ela escritura e ido tras una doctrina engañosa, primero nunca se busca la descruction de tal persona, es una lastima se haya apartado por un engaño, y es algo que nos puede suceder a todos ninguno esta libre de no ser engañado por tal la importancia de constantemente estar nutriendonos de la verdad de una enseñanza saludable, de discernir todo a la luz de la autoridad "La Escritura" y de afirmarnos en ella.
+
+##### Asi tambien habran aquellos que son los que estan engañando en su propio engaño, se han apartado de la fe y activamnete buscan engañar a otros. Bueno Pablo describe un proceso antes e tomar accion, este proceso no es con la intencion de destruirlo sino mas bien con el bien a que pueda cambiar de mente para ser restaurado, si antes del paso final cambia de mente se detiene el proceso y se pasa una restauracion.
+
+##### PAblo describe despues y pongamos enfasis en esta palabra  "despues" de una primera y una segunda "amonestacion"
+
+Amonestacion - NUTHESIA
+: Se conforma de 2 palabras NOUS (significa mente, en pensamiento o en entendimiento) y TITHEMI ( significa colocar, poner o meter) Literalmente quiere decir "poner en mente" o "traer al pensamiento" tien la connotacion de de instruir o advertir trayendo a la mente algo.
+
+##### Aqui se usa en una connotacion compartida de instruir y advertir trayendo a la mente o conocimiento acerca de su sistorcion y engaño por medio de la verdad de manera que quede convirto de en que esta o con que esta alineando, haciennotar su desvio de la escritura. Si despues de la segun vez no cambia de mente y continua en su desvio, dice "Rechazalo"
+
+##### "Rechazalo" esto es un mandamiento, "despues" de la primera y segunda amonestacion, el rechazo involucra evitarlo, no prestar atencion, no asociarse con el, en otras palabras es sacado de entre nosotros y no teniendo ningun contacto, esto es duro no lo negamos sin embargo si se le permite estar entre nosotro continuara contaminando a otros por engaños y eso es algo no se debe tomar a la ligera.
 
 ### Tito 3:11 
 sabiendo que el tal es perverso y está pecando, habiéndose condenado a sí mismo.
 
 #### sabiendo que el tal es perverso y está pecando
 
+##### Se añade "sabiendo" esto es un verbo (perfecto, participio, activo) quiere decir "habiendo sabido" o sabiendo, esto nos indica que este hombre en algun momento se aparto de la verdad y al dia de hoy aun se mantien asi como apartado de la verdad "hereje" conciderando esto samebos lo siguiente.
+
+##### "perverso" es un verbo (perfecto, indicativo, medio/pasivo) Quiere decir que este hombre fue pervertido en algun momento y al dia de hoy continua siendo pervertido o perverso, con el indicativo nos dice que es un hecho una realidad presente "es un perverso" y la voz medio /pasiva indica que de el mismo vine esta perversion como un auto engaño o hasido engañado por alguien mas.
+
+Perverso - EKSTREFO
+: Quiere decir ser torcido de dentro hacia afuera, eso enfatiza como la verdad esta torcida dentro de el y esto se reflefa en el exterior señalando un acto completro de de perversion en su ser.
+
+##### Este hombre "esta pecando" esto es un verbo (presente, indicativo, activo) es una realida presente este hombre estapecando de manera aciva al estar en esta condicion.
+
 #### habiéndose condenado a sí mismo
 
+#####
 
 ## Instrucción personal, nuestros compañeros.
 
