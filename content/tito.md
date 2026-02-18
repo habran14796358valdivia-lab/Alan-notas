@@ -1240,32 +1240,48 @@ Fueras hechos - GINOMAI
   observar por no decir corrregir
 ##### Una vez habiendo ya sido declarados justos su gracia tiene proposito para con el creyente para que "lleguemos a ser" este es un verbo (aoristo, subjuntivo, pasivo) "llegar a ser" es una acion completa, no seremos en parte, lo seremos completamente, sin embargo el subjuntivo expresa posibilidad y no un hecho ya concretado, y la voz pasiva nos indica que nosotros no esta la acion de llegar a hacernos, alguien mas nos hara.
 
-##### No debemos asustarnos hermanos, no estamos diciendo que no somo ya herederos, la realidad es que si, somo herederos de DIos juntamente con Cristo eso no esta a discucion, en el momento que recibimos la adopcion como hijos tambien fuimos hechos herederos de Dios, Pedro describe que tenemos una herecia reservada en los cielos.
-
 Herencia - KLERONOMOS
 : Esta palabra significa simplemente parte o porcion de algo , asi como una adquisicion, o una participacion de algun bien. Esta palabra no describe que se asigna una porcion, el contexto debera de aclararlo. Ejemplo: El heredero es alguien que recibira una parte de algo, El heredero de la casa, es alguien que recibira un parte o participacion de la casa.
 
-##### Pablo no esta poniendo en tela de duda nuestra justificacion, dice "habiendo sido ya declrados justo" parte desde este hecho. El punto que Pablo describe es que la vida piadosa no es vana, evidentemente tendra una recompensa, el foco no es lo que pueden ganar mas bien que la viva vivida en este mundo en nuestro caminar no es vana sino tiene propositoi, Dios quiee enseñarnos, quiere tranformarnos, Cristo quiere redimirnos, purificarnos como una pocesion preciada. 
+##### Pablo no esta poniendo en tela de duda nuestra justificacion, dice "habiendo sido ya declrados justo" parte desde este hecho. El punto que Pablo describe es que la vida piadosa es Cristo viviendo a traves de nosotros, Dios quiee enseñarnos, quiere tranformarnos, Cristo quiere redimirnos, purificarnos como una pocesion preciada. Dios quiere que vivamos tomando provecho de toda su provision por la fe, que vivamos alineados a la verdad, como "herederos alineados a la esperanza de la vida eterna".
 
-##### El texto da ha entender que al dejar que la gracia obre en nuestra vidas, que la gracia sea enpodrandonos en nuestro andar viviendo en piedad podemos llegar a ser participes de una herencia 
+##### No debemos asustarnos hermanos, no estamos diciendo que no somo ya herederos, la realidad es que si, somo herederos de DIos juntamente con Cristo eso no esta a discucion, en el momento que recibimos la adopcion como hijos tambien fuimos hechos herederos de Dios, Pedro describe que tenemos una herecia reservada en los cielos.
 
- ¿que es ser herederos conforme a la esperanza de vida etena?
- llegar a ser herederos conformados a la esperaza de vida eterna
- que es la esperanza de vida eterna?
-kleronomos 2818 base 2819 y 3551
-hechos 20.32 - 26.10 galatas
- hechas13.19 
+##### El enfasis esta en "llegar a ser herederos **conforme** la esperanza de la vida eterna", pue ser tambien "alineado", "moldeado", "en base de". Aqui herederos es un sustantivo nominativo esto significa que es el sujeto, "para que el sujeto(heredero) llegue a ser conformado a la esperanza de la vida eterna"
+
+##### ¿que es ser herederos conforme a la esperanza de vida etena?, Es un buena pregunta, es un caracteristica o condicion de estado "de estar siendo", por el verbo sabemos que este estado es una posibilidad, podemos llegar a serlo o no, esto se condiciona al rededor de la carta con el desaprovechar la gracia de Dios, con cambiar la verdad del evangelio. Pero Dios no quiere que esa sea nuestra realidad, pues el proposito de que seamos salvados fue para llegar a ser herederos conformes a la esperanza.
+
+##### En ambos Dios es el accionante y nosotros recibimos, Dios quiere que lleguemos a ser conformados a la esperanza, el quiere enseñarnos a vivir piadosamente fundamentados en su verdad con su gracia operante en nosotros.
 
 ### Tito 3:8 
 Palabra fiel es esta; y en cuanto a estas cosas quiero que hables con firmeza, para que los que han creído en Dios procuren ocuparse en buenas obras. Estas cosas son buenas y útiles para los hombres. 
 
 #### Palabra fiel es esta;
 
+##### Pablo trata estas palabras (de como fuimos salvos por medio de Cristo y del proposito que Dios quiere trabajar en nosotros por medio su gracia en Cristo) como fieles, quiere expresar que esto es digno de toda confianza.
+
+##### En este verso el sujeto sera la palabra que se expreso en los anteriores versiculos y de proposito de nuestra salvacion "llegar a ser conforme a la esperanza de vidad eterna".
+
 #### y en cuanto a estas cosas quiero que hables con firmeza
+
+##### Pablo quiere que Tito hable estas cosas, esto no es un mandanto por parte de Pablo es mas bien un hecho en Pablo el "desea" que Tito hable la Verdad del Evangelio, de la gracia de Dios para con los creyentes.
+
+##### Pablo desea que en Tito este la acion de hablar estas cosas con firmeza, esta exprecion indica el deseo de pablo por la acion de hablar en su hijo Tito. 
+
+Hablar con firmeza - DIABEBAOOMAI
+: Significa "afirmar con confianza" o "hablar con confianza", esta palabra no tiene ninguna connotacion negativa de rudeza o fuerza, mas bien en confianza o hablar con seguridad. 
+
+##### Lo que le da valor a esta expresion segura no son las palabras sino la clase de palabra que hablaria Tito "la Gracia de DIos", El Evagngelio y como esto es poder de Dios para la vida del creyente y provechoso para el.
 
 #### para que los que han creído en Dios
 
+##### Podemos observar un proposito aqui "para que", el hecho que tito estuviera hablando estas cosas resultaria no solo en una enseñanza sana proviniente de la verdad sino en Poder de Dios en su gracia para con los creyentes en Vivir vidas piadosas.
+
+##### "los que han creido" se refiere a los creyentes, el proposito de Tito hablar estas cosas y que los creyentes lo adoptaran por la fe  resultari en provecho para los creyentes "para que".
+
 #### procuren ocuparse en buenas obras
+
+
 
 #### Estas cosas son buenas y útiles para los hombres
 
@@ -1350,3 +1366,7 @@ referencias.
 [^1]:Estrabón, Geografía 10.4.16–20
 [^2]:Epiménides, Cretica (fragmento 1)
 [^3]:Polibio, Historias 6.46–47.
+
+
+
+La carta de Tito tiene un enfasis descotrolado en la cunducta del cryente, en una vidad de piedad, sin embargo pablo no trata con la conducta, sino va la raiz de lo cual proviene un andar, al comienzo de su carta estable un punto importante por medio de lo cual fundamentara la carta e ira desarrllando, "el conocimiento de la verdad alineado a la piedad con la esperanza de vida eterna", "el conocimiento de la verdad alinea con una vidad de piedad" en otras parabras armonizan, ademas "una vida piadosa realza la verdad", en otras palabras adorna la doctrina de Dios y por ultimo esta vida piadosa y la verdad contiene en si misma la esperanza de la vida eterna
