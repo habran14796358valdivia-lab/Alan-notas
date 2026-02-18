@@ -1372,7 +1372,7 @@ Perverso - EKSTREFO
 
 #### habiéndose condenado a sí mismo
 
-#####
+##### Este hombre se esta condenado asi mismo a casusa de permanecer su condicion, el mismo incurre en condenacion, el mismo esta caminando en perdicion.
 
 ## Instrucción personal, nuestros compañeros.
 
