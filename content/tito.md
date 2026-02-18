@@ -1284,36 +1284,64 @@ Hablar con firmeza - DIABEBAOOMAI
 Procuren - FRONTIZO
 : Quiere decir "poner atencion", "enfocarse en" o "estar ponienso la mente en", esta palabra enfatiza el hecho de enfocarse de manera ansiosa o anehelando.
 
+##### El resultado seria que los creyentes estarian fijando la mente, aneehelando ocuparse buenas obras. Por lo menos esa podria ser el resultado, "procuren" es un verbo (presente subjuntivo, activo) esto indica que esta acion de procurar podria llegar a estar pasando, la condicion de esta accion se sujeta del proposito "para" en que Tito hablara con firmeza de la palabra del evangelio y la gracia de Dios para con el creyente.
+
+##### El complremnto de procurar es ocupar esto nos indica que los creyentes podrian estar con enfocados anehelosos de ocuparse en buenas obras. las buenas obras son provechos sobre todo entre la familia de creyentes, las buenas obras es el resultado de una fe que es provecho a el y para los creyentes.
+
+##### "ocuparse" es un vebo (presente, infinitivo, medio) Pablo esta describiendo la acion de opuparse como algo en proceso o que se esta desarrolando. Para que los creyentes fijen la mente en la acion de ocuparse en bunas obras.
+
 #### Estas cosas son buenas y útiles para los hombres
+
+##### La enseñanza alinead con la verdad, una enseñanza que trae salus es buena, que la enseñanza cobre efecto enpoderando a los creyentes por la gracia de Dios es bueno, una vidad piadosa es bueno, las bunas obras son buenas. Pablo describe como bueno lo que va alineado con la verdad.
+
+##### pero no solo es bueno, estas cosas tiene provecho, ¿Que quiere decir? Bueno que son utiles, befeficiosas para los hombres, son utiles entre nosotros como cryentes.
+
+##### Esta la conclucion de Pablo como esa vidad piadosa es provechosa, no solamnete en el hecho que Dios quiere que los creyentes vivan vidad empoderads por su gracia, a traves de su gracia el quiere trasfomarnos, quiere conformarnos a ser herederos  que viven alineados a la esperanza de vida eterna, Quiere que vivamos en piedad, sieno participes de buenas obras siendo provechosos.
+
+##### Esto es la exprecion visible de la gracia de Dios tomando accion en la vidad de un creyente.
 
 ## Un contraste, lo que no es bueno, ni útil.
 
 ### Tito 3:9 
 Pero evita controversias necias, genealogías, contiendas y discusiones acerca de la ley, porque son sin provecho y sin valor. 
 
-### Pero evita controversias necias
+#### Pero evita controversias necias
 
-### genealogías
+##### En contraste con lo que es bueno y util Pablo dara una instrucion a Tito "evita" esto es un verbo (presente, imperativo, medio), Tito debia evitar o abstenerse de controversias necias, etc.
 
-### contiendas
+Evitar -PERIISTEMI
+: Quiere decir "estar alrededor" tiene la connotacion de evitar o rodear o ser reservado. Tito no debia mantenerse alejao de toda la siguiente lista.
 
-### y discusiones acerca de la ley
+Controversias - ZETESIS
+: Quiere decir una discusion o una disputa esta palabra involucra el sentido de busqueda, es decir, que busca una discucion o debate. Lo realmente fuerte es como se describe estas discuciones son necias es decir "tontas" o absurdas no tienen nungun provecho.
 
-### porque son sin provecho y sin valor
+#### genealogías, contiendas y discusiones acerca de la ley
+
+genealogías - GENEALOGIA
+: Literalmente quiere decir el estudio de la generacion o edad (periodo de personas).
+
+contiendas - ERIS
+:Quiere decir pleitos, luchas o peleas.
+
+##### Tito debia evitar perder tiempo buscando gnealogias o el registri de familia de la personas asi como las peleas.  El enfasis en discusiones acerca de la ley tiene una connotacion mas fuerte como una batalla en armas, Tito debia eviar esar involucrado en batallas asi.
+
+#### porque son sin provecho y sin valor
+
+##### Ahora se nos muestra la razon del porque evitarlas, no tienen ningun valor o provecho parael o para los creyentes, no es de provecho la los creyentes enfocarnos en discuciones sin sentido o peleas o un registro familiar, la realidad es que al estar en esas cosa nos estamos perdiendo de lo que realmente esprovechoso, estamos ignorando la gracia de Dios y el poder de Dios.
 
 ### Tito 3:10 
 Al hombre que cause divisiones, después de la primera y segunda amonestación, recházalo, 
 
-### Al hombre que cause divisiones
+#### Al hombre que cause divisiones
 
-### después de la primera y segunda amonestación, recházalo
+#### después de la primera y segunda amonestación, recházalo
 
 ### Tito 3:11 
 sabiendo que el tal es perverso y está pecando, habiéndose condenado a sí mismo.
 
-### sabiendo que el tal es perverso y está pecando
+#### sabiendo que el tal es perverso y está pecando
 
-### habiéndose condenado a sí mismo
+#### habiéndose condenado a sí mismo
 
 
 ## Instrucción personal, nuestros compañeros.
@@ -1321,20 +1349,20 @@ sabiendo que el tal es perverso y está pecando, habiéndose condenado a sí mis
 ### Tito 3:12 
 Cuando te envíe a Artemas o a Tíquico, procura venir a verme en Nicópolis, porque he decidido pasar allí el invierno. 
 
-### Cuando te envíe a Artemas o a Tíquico
+#### Cuando te envíe a Artemas o a Tíquico
 
-### procura venir a verme en Nicópolis
+#### procura venir a verme en Nicópolis
 
-### porque he decidido pasar allí el invierno
+#### porque he decidido pasar allí el invierno
 
 ### Tito 3:13 
 Encamina con diligencia a Zenas, intérprete de la ley, y a Apolos, para que nada les falte. 
 
-### Encamina con diligencia a Zenas
+#### Encamina con diligencia a Zenas
 
-### intérprete de la ley, y a Apolos
+#### intérprete de la ley, y a Apolos
 
-### para que nada les falte.
+#### para que nada les falte.
 
 
 ## Ultima petición, los casos de necesidad.
@@ -1342,13 +1370,13 @@ Encamina con diligencia a Zenas, intérprete de la ley, y a Apolos, para que nad
 ### Tito 3:14 
 Y que los nuestros aprendan a ocuparse en buenas obras, atendiendo a las necesidades apremiantes, para que no estén sin fruto.
 
-### Y que los nuestros
+#### Y que los nuestros
 
-### aprendan a ocuparse en buenas obras
+#### aprendan a ocuparse en buenas obras
 
-### atendiendo a las necesidades apremiantes
+#### atendiendo a las necesidades apremiantes
 
-### para que no estén sin fruto
+#### para que no estén sin fruto
 
 
 ## Saludos Finales.
@@ -1356,11 +1384,11 @@ Y que los nuestros aprendan a ocuparse en buenas obras, atendiendo a las necesid
 ### Tito 3:15 
 Todos los que están conmigo te saludan. Saluda a los que nos aman en la fe.
 
-### Todos los que están conmigo te saludan
+#### Todos los que están conmigo te saludan
 
-### Saluda a los que nos aman en la fe
+#### Saluda a los que nos aman en la fe
 
-### La gracia sea con todos ustedes
+#### La gracia sea con todos ustedes
 
 
 referencias.
