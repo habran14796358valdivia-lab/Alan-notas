@@ -1281,7 +1281,8 @@ Hablar con firmeza - DIABEBAOOMAI
 
 #### procuren ocuparse en buenas obras
 
-
+Procuren - FRONTIZO
+: Quiere decir "poner atencion", "enfocarse en" o "estar ponienso la mente en", esta palabra enfatiza el hecho de enfocarse de manera ansiosa o anehelando.
 
 #### Estas cosas son buenas y útiles para los hombres
 
