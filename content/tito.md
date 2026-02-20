@@ -1396,14 +1396,18 @@ Cuando te envíe a Artemas o a Tíquico, procura venir a verme en Nicópolis, po
 ### Tito 3:13 
 Encamina con diligencia a Zenas, intérprete de la ley, y a Apolos, para que nada les falte. 
 
-#### Encamina con diligencia a Zenas
+#### Encamina con diligencia a Zenas intérprete de la ley, y a Apolos
 
-##### 
+##### "Encaminar" es in imperativo hacia Tito, este verbo nos da a entender que Zenas y Apolos estarian en un viaje misionero y pasarian por creta, sin embargo no se quedarian alli sino solo seria una parada. Tito deberia encaminarlos en su viaje
 
-#### intérprete de la ley, y a Apolos
+Encaminar - PROPEMPO
+: Quiere decir "enviar por delante", sin emargo se utiliza en un contexto de viajes en donde se enfatiza el suministrar para un viaje o acompañar.
+
+##### Una carecteristica de Zenas es el ser un experto en la ley o alguein entendido o letrado en la ley mosaica.
 
 #### para que nada les falte.
 
+##### Este mandamiento a Tito tiene un proposito en favor de Zenas y Apolos "que no les falte nada para su viaje", aqui "falte" es un verbo (presente, subjuntivo, activo) indicando que es una posibilidad la acicion de que nada les falte esto esta en condicion al mandamineto, si Tito los encaminaba o no.
 
 ## Ultima petición, los casos de necesidad.
 
@@ -1412,12 +1416,21 @@ Y que los nuestros aprendan a ocuparse en buenas obras, atendiendo a las necesid
 
 #### Y que los nuestros
 
+##### Este verso se conecta ala anterior, si bien Tito debia encaminar a Zenas y Apolos Pablo escribira un "pero" esta preposicion marcara un contraste y añadira un mandamiento mas pero ahora para "los nuestros"
+
 #### aprendan a ocuparse en buenas obras
+
+##### Los nuestros serian los creyentes en creta "pero esten aprendiendo los nuestros" el mandato es aprender y el complemento es "a ocuparse", que ellos aprendan a ponerse al frente cuando se trata de hacer el bien, mas aun con los de la familia de la fe.
+
+##### Esta es una oportunidad genial para los creyentes a aprender a ponerse al frente para suplir a Zenas y Apolos en su viaje.
 
 #### atendiendo a las necesidades apremiantes
 
+##### Esta frase es un complemento de la frase anterior ¿Como estarian aprendiendo? Bueno atendiendo las necesidades presentes, necesidades esta completado por apremiantes, en ese momento habia una necesidad que merecia atencion por pare de los creyentes poder suplir a los hermanos para poder seguir su viaje.
+
 #### para que no estén sin fruto
 
+##### Podemos ver aqui un proposito "para", el hecho que ellos estuviaran aprendiendo a ocuparse en buenas obras el resultado seria para que no esten sin fruto, "esten" es un verbo (presente, subjuntivo, activo) nos indica que estar sin fruto es accion posible y esta condiciponado a proposito en el mandamiento a "aprender", si no aprendian este proposito no se cumpliria y si esraian sin fruto.
 
 ## Saludos Finales.
 
@@ -1426,9 +1439,17 @@ Todos los que están conmigo te saludan. Saluda a los que nos aman en la fe.
 
 #### Todos los que están conmigo te saludan
 
+##### Pablo hace conocer a Tito qye todos los que acompañaban a Pablo en ese momento le envian saludos, esto es una realiadad.
+
 #### Saluda a los que nos aman en la fe
 
+##### El ultimo mandato de Pablo a Tito era dar sus saludos los que son amadores de Pablo y a los que estan con el pero esto no se confina a ellos solamente sino a los creyentes, tambien se puede ver como todos los que les tienen un cariño o aprecio basados en "la Fe"
+
+##### Este afecto es en base al comun evangelio que los une como uno en Cristo.
+
 #### La gracia sea con todos ustedes
+
+##### Pablo se despide marcando no un deseo sino un punto "LA GRACIA " este con ustedes.
 
 
 referencias.
