@@ -50,6 +50,8 @@ La Verdad según Piedad
 
 ### Los cretences eran conciderados desordenados, son como bestias salvajes.... dice Epimanes.
 
+#### Aunque los cretences eran conocidos por esto segun la cultura romano, Pablo no trata nada relacionado a la cultura en su carta, simplementes lo usa para referenciar a un grupo.
+
 ## Contexto historico 
 
 ### Lo primero que podemos notar alrededor de la carta a Tito es el lugar, Creta, si revisamos biblicamente la propagacion del evangelio en creta esto nos llevara al 60-61 d.C.
@@ -96,7 +98,9 @@ La Verdad según Piedad
 
 ### Aunque la verdad segun piedad es solo mensionada una vez en la carta esto sera un tema implicito en la carta, hay un orden que esta alineado a la verdad o mejor dicho esto procede de la verdad, hay una conducta alineada a la verdad, y la verdad esta alineada a una conducta de piedad.
 
-### Dejemos que la escritura nos enseñe en la verdad y la gracia en la piedad, ¿Como debemos conducirnos como iglesia y como individuos?.
+#### La carta de Tito tiene un enfasis descotrolado en la cunducta del cryente, en una vidad de piedad, sin embargo Pablo no trata con la conducta, sino va la raiz de lo cual proviene un andar, al comienzo de su carta estable un punto importante por medio de lo cual fundamentara la carta e ira desarrllando, "el conocimiento de la verdad alineado a la piedad con la esperanza de vida eterna", "el conocimiento de la verdad alinea con una vidad de piedad" en otras parabras armonizan, ademas "una vida piadosa realza la verdad", en otras palabras adorna la doctrina de Dios y por ultimo esta vida piadosa y la verdad contiene en si misma la esperanza de la vida eterna
+
+### Dejemos que la escritura nos enseñe en la verdad y la gracia en la piedad, ¿Como debemos conducirnos como iglesia y como individuos?. La cartaq parece responder no solo con que la verdad alinea con la piedad sino que al hecho de permanecer firmes en la verdad y que solo de la verdad puede provenir una enseñanza saludable asi tambien que la Gracia de Dios es la que nos enseña a vivir piasosamente y como la Gracia de Dios no es en vano paranuestras vidad sino su provivion para conformanos a la esperanza de la vida eterna.
 
 ### Las iglesia en creta parecen ser iglesias en la cuales faltaba instrucion (enseñar), Pablo dejo a Tito para que se hiciera cargo de completar la enseñanza, en la carta vemos especial enfasis en lo que esta deacuerdo con el conocimiento de la verdad y como está alinea con una vida de piedad, esto es tanto como individuos y como iglesia
 
@@ -1476,7 +1480,3 @@ referencias.
 [^1]:Estrabón, Geografía 10.4.16–20
 [^2]:Epiménides, Cretica (fragmento 1)
 [^3]:Polibio, Historias 6.46–47.
-
-
-
-La carta de Tito tiene un enfasis descotrolado en la cunducta del cryente, en una vidad de piedad, sin embargo pablo no trata con la conducta, sino va la raiz de lo cual proviene un andar, al comienzo de su carta estable un punto importante por medio de lo cual fundamentara la carta e ira desarrllando, "el conocimiento de la verdad alineado a la piedad con la esperanza de vida eterna", "el conocimiento de la verdad alinea con una vidad de piedad" en otras parabras armonizan, ademas "una vida piadosa realza la verdad", en otras palabras adorna la doctrina de Dios y por ultimo esta vida piadosa y la verdad contiene en si misma la esperanza de la vida eterna
