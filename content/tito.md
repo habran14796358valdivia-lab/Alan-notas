@@ -1,7 +1,11 @@
 ---
 Title: Tito
+subtitle: "La verdad segun piedad"
+author: "CGV"
+cover: "images/tapa.png"
+version: "0.6"
+date: "2026-02-20"
 ---
-
 # TITO
 
 ## La Verdad según Piedad
