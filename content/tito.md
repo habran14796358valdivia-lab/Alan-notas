@@ -30,79 +30,79 @@ La Verdad según Piedad
 
 ## Contexto cultural
 
-### La isla de creta muy famosa en la historia se forjo un estereotipo dentro del mundo antiguo (greco-romano), lo cual definio su cultura.
+La isla de creta muy famosa en la historia se forjo un estereotipo dentro del mundo antiguo (greco-romano), lo cual definio su cultura.
 
-### Creta se se carectizo por la pirateria, al ser un punto dentro de la ruta maritima de comercio, los cretences constantemente asaltaban los cargamnetos de los barcos.
+Creta se se carectizo por la pirateria, al ser un punto dentro de la ruta maritima de comercio, los cretences constantemente asaltaban los cargamnetos de los barcos.
 
-### Los cretenses habian afirmado que la tumba de zeus (jupiter) se encontraba en su isla, esto hizo estallar al mundo conocido debido a la adoracion del panteon de los dioses, para ellos zeus era el dios eterno e inmortal.
+Los cretenses habian afirmado que la tumba de zeus (jupiter) se encontraba en su isla, esto hizo estallar al mundo conocido debido a la adoracion del panteon de los dioses, para ellos zeus era el dios eterno e inmortal.
 
-#### Los antiguos eruditos se referian a creta de una manera despectiva, Estrabon, dice: "Los cetenses están envueltos en constantes disputas civiles y prácticas de piratería."[^1]
+Los antiguos eruditos se referian a creta de una manera despectiva, Estrabon, dice: "Los cetenses están envueltos en constantes disputas civiles y prácticas de piratería."[^1]
 
-#### Epimenes, dice: "Κρῆτες ἀεὶ ψεῦσται, κακὰ θηρία, γαστέρες ἀργαί" "Los cretenses siempre mentirosos, malas bestias, barrigas ociosas.”[^2]
+- Epimenes, dice: "Κρῆτες ἀεὶ ψεῦσται, κακὰ θηρία, γαστέρες ἀργαί" "Los cretenses siempre mentirosos, malas bestias, barrigas ociosas.”[^2]
 
-#### Polibio, dice: “Creta ha adoptado un sistema de vida que es el único sin excepción en el mundo que carece de moral y lo considera una virtud.”[^3]
+- Polibio, dice: “Creta ha adoptado un sistema de vida que es el único sin excepción en el mundo que carece de moral y lo considera una virtud.”[^3]
 
-#### Platon, aunque este mismo no se refiere de manera despectiva de creta si enfatiza asperctos de su cultura, organizacion y educacion, que despues seria utilizado para referise a los cretences como glotones ociosos.
+- Platon, aunque este mismo no se refiere de manera despectiva de creta si enfatiza asperctos de su cultura, organizacion y educacion, que despues seria utilizado para referise a los cretences como glotones ociosos.
 
-##### En creta existia el "andreida" un comedor publico, para ellos fomentaba la igualdad social y  reforzaba la disciplina. Los demas griegos considerarían esta costumbre como exceso de festividad, ocio o glotonería.
+En creta existia el "andreida" un comedor publico, para ellos fomentaba la igualdad social y  reforzaba la disciplina. Los demas griegos considerarían esta costumbre como exceso de festividad, ocio o glotonería.
 
-### Los cretenses eran conocidos por ser mentiroso compulsivos, mentian sin necesidad de hacerlo, "cretenizar" era usado para las mentiras.
+- Los cretenses eran conocidos por ser mentiroso compulsivos, mentian sin necesidad de hacerlo, "cretenizar" era usado para las mentiras.
 
-### Los cretences eran conciderados desordenados, son como bestias salvajes.... dice Epimanes.
+- Los cretences eran conciderados desordenados, son como bestias salvajes.... dice Epimanes.
 
-#### Aunque los cretences eran conocidos por esto segun la cultura romano, Pablo no trata nada relacionado a la cultura en su carta, simplementes lo usa para referenciar a un grupo.
+Aunque los cretences eran conocidos por esto segun la cultura romano, Pablo no trata nada relacionado a la cultura en su carta, simplementes lo usa para referenciar a un grupo.
 
 ## Contexto historico 
 
-### Lo primero que podemos notar alrededor de la carta a Tito es el lugar, Creta, si revisamos biblicamente la propagacion del evangelio en creta esto nos llevara al 60-61 d.C.
+Lo primero que podemos notar alrededor de la carta a Tito es el lugar, Creta, si revisamos biblicamente la propagacion del evangelio en creta esto nos llevara al 60-61 d.C.
 
-### Esto seria mientras Pablo se encuentra rumbo a Roma en calidad de prisionero. Hechos 27:1, 7-8
+Esto seria mientras Pablo se encuentra rumbo a Roma en calidad de prisionero. Hechos 27:1, 7-8
 
-### En Hechos 27:9 Lucas decribe que paso mucho tiempo, en el contexto vemos que Pablo y los tripulantes habian permanecido en creta por un tiempo. Hechos 27:7-12
+En Hechos 27:9 Lucas decribe que paso mucho tiempo, en el contexto vemos que Pablo y los tripulantes habian permanecido en creta por un tiempo. Hechos 27:7-12
 
-#### Aunque no se nos dice el tiempo, Pablo pudo haber estado aununciando y enseñando el evangelio, como lo haria posteriormente en la isla de malta. Hechos 28:7-10
+Aunque no se nos dice el tiempo, Pablo pudo haber estado aununciando y enseñando el evangelio, como lo haria posteriormente en la isla de malta. Hechos 28:7-10
 
-### Despues de esto Pablo llegaria a Roma como pricionero, donde permaneceria por dos años en una casa. Hechos 28:16, 30-31
+Despues de esto Pablo llegaria a Roma como pricionero, donde permaneceria por dos años en una casa. Hechos 28:16, 30-31
 
-#### Pablo habria permanecido en prision domiciliaria hasta el 63 d.C. Lucas no nos relata de lo que sucedio despues, segun la tradicion Pablo habria sido liberado o habria tenido libertal de viajar.
+- Pablo habria permanecido en prision domiciliaria hasta el 63 d.C. Lucas no nos relata de lo que sucedio despues, segun la tradicion Pablo habria sido liberado o habria tenido libertal de viajar.
 
-#### Pablo habria escrito la carta a los Efesios, Filipenses, Colosenses y Filemon durante este encarcelamiento, todas fechadas entre el 61-62 d.C. o inicios del 63 d.C
+- Pablo habria escrito la carta a los Efesios, Filipenses, Colosenses y Filemon durante este encarcelamiento, todas fechadas entre el 61-62 d.C. o inicios del 63 d.C
 
-#### En estas cartas Pablo menciona su encarcelamiento o espera a ser liberado. Efesios 6:19-20; Filipenses 1:12-14, 19-20; Colosenses 4:3-4, 10, 18; FIlemon 1:1, 22, 23
+- En estas cartas Pablo menciona su encarcelamiento o espera a ser liberado. Efesios 6:19-20; Filipenses 1:12-14, 19-20; Colosenses 4:3-4, 10, 18; FIlemon 1:1, 22, 23
 
-### Tras su liberacion Pablo habria emprendido otro viaje a macedocia, asia menor(efeso, donde dejo a Timoteo), creta(donde dejo a Tito). 1 Timoteo 1:3, 3:14-15; Tito 1:5, 12
+Tras su liberacion Pablo habria emprendido otro viaje a macedocia, asia menor(efeso, donde dejo a Timoteo), creta(donde dejo a Tito). 1 Timoteo 1:3, 3:14-15; Tito 1:5, 12
 
-### Despues veriamos en 2 Timoteo 4:10 que Tito fue a Dalmacia, esto despues de Creta y Nicopolis.
+Despues veriamos en 2 Timoteo 4:10 que Tito fue a Dalmacia, esto despues de Creta y Nicopolis.
 
-### Segun la tradicion despues de esto, Pablo volveria a ser llevado a prision desde el 64-67 d.C. donde moriria a manos de Neron en Roma.
+Segun la tradicion despues de esto, Pablo volveria a ser llevado a prision desde el 64-67 d.C. donde moriria a manos de Neron en Roma.
 
 ## Autor y fecha
 
-### Vemos que el autor se identifica como Pablo, siervo de Dios y apostol de Jesucristo. Tito 1:1
+Vemos que el autor se identifica como Pablo, siervo de Dios y apostol de Jesucristo. Tito 1:1
 
-### Al igual que en muchas otras cartas vemos que el autor es Pablo antes conocido como Saulo, asi mismo vemos menciones de Pablo en la escritura de Pablo y Tito estado juntos como compañeros. 2 Corintios 7:6, 13, 8:6, 16, 23; Galatas 2:1, 3
+Al igual que en muchas otras cartas vemos que el autor es Pablo antes conocido como Saulo, asi mismo vemos menciones de Pablo en la escritura de Pablo y Tito estado juntos como compañeros. 2 Corintios 7:6, 13, 8:6, 16, 23; Galatas 2:1, 3
 
-### Esta carta podria haber sido escrita entre el 63-64 d.C. al igual que la primera carta a Timoteo en las mismas fechas.
+Esta carta podria haber sido escrita entre el 63-64 d.C. al igual que la primera carta a Timoteo en las mismas fechas.
 
 ## Receptor de la carta.
 
-### La carta a Tito comunmente es llamada una carta pastoral al igual que 1 y 2 Timoteo, por bastante tiempo se a enfocado que la carta esta dirigida a los pastores, ancianos o lideres de las iglesias locales.
+La carta a Tito comunmente es llamada una carta pastoral al igual que 1 y 2 Timoteo, por bastante tiempo se a enfocado que la carta esta dirigida a los pastores, ancianos o lideres de las iglesias locales.
 
-### Sin embargo, podremos ver a lo largo de la carta que no solo habla a los ancianos, sino tambien habla a los hombres mayores, mujeres mayores, a las mujeres jovenes, a los varones jovenes y los siervos. Tito 1:4, 5, 13, 2:2, 3, 6, 9, 3:1, 14
+Sin embargo, podremos ver a lo largo de la carta que no solo habla a los ancianos, sino tambien habla a los hombres mayores, mujeres mayores, a las mujeres jovenes, a los varones jovenes y los siervos. Tito 1:4, 5, 13, 2:2, 3, 6, 9, 3:1, 14
 
-### Esta carta abarca a una audiencia grande, es decir, no solamente a Tito o los ancianos, sino a toda la iglesia local.
+Esta carta abarca a una audiencia grande, es decir, no solamente a Tito o los ancianos, sino a toda la iglesia local.
 
-### Aunque Tito es el encargado de enseñar a la iglesia, la enzeñanza de la carta es para todos y no solo para algunos.
+Aunque Tito es el encargado de enseñar a la iglesia, la enzeñanza de la carta es para todos y no solo para algunos.
 
 ## Antes de comenzar
 
-### Aunque la verdad segun piedad es solo mensionada una vez en la carta esto sera un tema implicito en la carta, hay un orden que esta alineado a la verdad o mejor dicho esto procede de la verdad, hay una conducta alineada a la verdad, y la verdad esta alineada a una conducta de piedad.
+Aunque la verdad segun piedad es solo mensionada una vez en la carta esto sera un tema implicito en la carta, hay un orden que esta alineado a la verdad o mejor dicho esto procede de la verdad, hay una conducta alineada a la verdad, y la verdad esta alineada a una conducta de piedad.
 
-#### La carta de Tito tiene un enfasis descotrolado en la cunducta del cryente, en una vidad de piedad, sin embargo Pablo no trata con la conducta, sino va la raiz de lo cual proviene un andar, al comienzo de su carta estable un punto importante por medio de lo cual fundamentara la carta e ira desarrllando, "el conocimiento de la verdad alineado a la piedad con la esperanza de vida eterna", "el conocimiento de la verdad alinea con una vidad de piedad" en otras parabras armonizan, ademas "una vida piadosa realza la verdad", en otras palabras adorna la doctrina de Dios y por ultimo esta vida piadosa y la verdad contiene en si misma la esperanza de la vida eterna
+La carta de Tito tiene un enfasis descotrolado en la cunducta del cryente, en una vidad de piedad, sin embargo Pablo no trata con la conducta, sino va la raiz de lo cual proviene un andar, al comienzo de su carta estable un punto importante por medio de lo cual fundamentara la carta e ira desarrllando, "el conocimiento de la verdad alineado a la piedad con la esperanza de vida eterna", "el conocimiento de la verdad alinea con una vidad de piedad" en otras parabras armonizan, ademas "una vida piadosa realza la verdad", en otras palabras adorna la doctrina de Dios y por ultimo esta vida piadosa y la verdad contiene en si misma la esperanza de la vida eterna
 
-### Dejemos que la escritura nos enseñe en la verdad y la gracia en la piedad, ¿Como debemos conducirnos como iglesia y como individuos?. La cartaq parece responder no solo con que la verdad alinea con la piedad sino que al hecho de permanecer firmes en la verdad y que solo de la verdad puede provenir una enseñanza saludable asi tambien que la Gracia de Dios es la que nos enseña a vivir piasosamente y como la Gracia de Dios no es en vano paranuestras vidad sino su provivion para conformanos a la esperanza de la vida eterna.
+Dejemos que la escritura nos enseñe en la verdad y la gracia en la piedad, ¿Como debemos conducirnos como iglesia y como individuos?. La cartaq parece responder no solo con que la verdad alinea con la piedad sino que al hecho de permanecer firmes en la verdad y que solo de la verdad puede provenir una enseñanza saludable asi tambien que la Gracia de Dios es la que nos enseña a vivir piasosamente y como la Gracia de Dios no es en vano paranuestras vidad sino su provivion para conformanos a la esperanza de la vida eterna.
 
-### Las iglesia en creta parecen ser iglesias en la cuales faltaba instrucion (enseñar), Pablo dejo a Tito para que se hiciera cargo de completar la enseñanza, en la carta vemos especial enfasis en lo que esta deacuerdo con el conocimiento de la verdad y como está alinea con una vida de piedad, esto es tanto como individuos y como iglesia.
+Las iglesia en creta parecen ser iglesias en la cuales faltaba instrucion (enseñar), Pablo dejo a Tito para que se hiciera cargo de completar la enseñanza, en la carta vemos especial enfasis en lo que esta deacuerdo con el conocimiento de la verdad y como está alinea con una vida de piedad, esto es tanto como individuos y como iglesia.
 
 # Tito 1:1-16 Orden en la verdad que es segun la piedad.
 
