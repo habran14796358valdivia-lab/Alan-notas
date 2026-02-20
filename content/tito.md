@@ -115,7 +115,8 @@ Pablo, siervo de Dios y apóstol de Jesucristo, conforme a la fe de los escogido
 
 ##### Pablo, un antiguo preseguidor de la iglesia ahora se presenta y considera como un siervo.
 
-##### Siervo, DULOS de Dios, esto quiere decir un esclavo de Dios, esto no era una condicion obligada, el se concideraba al servicio de Dios. Romanos 1:1; Filipenses 1:1; Tito 1:1
+Siervo - DULOS 
+: Siervo de Dios, esto quiere decir un esclavo de Dios, esto no era una condicion obligada, el se concideraba al servicio de Dios. Romanos 1:1; Filipenses 1:1; Tito 1:1
 
 ##### El siervo no hace lo que quiere o parezca, el esta a la disposicion de su amo, hace lo que el amo le indica, Pablo esta sujeto a lo que Dios le mando a hacer. Hechos 9:15-16; Gálatas 1:15-16; 1 Corintios 1:1; 1 Timoteo 1:12
 
