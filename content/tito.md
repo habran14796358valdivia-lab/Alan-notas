@@ -6,10 +6,25 @@ cover: "images/tapa.png"
 version: "0.6"
 date: "2026-02-20"
 ---
+**TABLA DE CONTENIDOS**
 
-# TITO
+INTRODUCCIÓN
 
-## La Verdad según Piedad
+ROMANOS 1:1–17 – Introducción y tesis del evangelio
+
+Romanos 1:18–3:20 – La revelación de la ira y la responsabilidad universal
+
+ROMANOS 3:21–4:25 – La justicia revelada y confirmada
+
+ROMANOS 5:1-8:39 La nueva realidad y sus implicaciones
+-----
+:::title
+TITO
+:::
+
+:::subtitle
+La Verdad según Piedad
+:::
 
 # Introdución
 
