@@ -155,7 +155,7 @@ Conocimiento - EPIGNOSIS
 
 ##### La piedad es una conducta externa expresada que esta realzando la verdad, la verdad alinea con la piedad, esto no es cualquier verdad entre comillas, dice un conocimiento acertado de la verdad, el texto la muestra como unica. Juan 1:14, 17, 3:21, 4:23-24, 8:32, 40, 45-46, 14:6, 17, 16:13, 17:17, 19; Romanos 1:25; 1 Corintios 13:6; 2 Corintios 4:2, 6:7, 13:7-8; Gálatas 2:5, 14, 5:7; Efesios 1:13, 4:20-22
 
-##### Esto es algo que veremos implicito a lo largo de todad la carta, el conocimiento de la verdad que es segun la piedad y a raiz de esto que es lo deficiente. 
+##### Esto es algo que veremos implicito a lo largo de todad la carta, el conocimiento de la verdad que es segun la piedad y a raiz de esto que es lo deficiente en contraste a la verdad y piedad.
 
 ##### El constante de la carta es la piedad, mas es especificamente la vida piadosa en conducta externa alineada de la verdad.
 
