@@ -1372,7 +1372,7 @@ Perverso - EKSTREFO
 
 #### habiéndose condenado a sí mismo
 
-##### Este hombre se esta condenado asi mismo a casusa de permanecer su condicion, el mismo incurre en condenacion, el mismo esta caminando en perdicion.
+##### Este hombre se esta condenado asi mismo a casusa de permanecer en su condicion, otra manera de decirlo es que este hombre se ha sentenciado a si mismo ¿ como sucede esto? Bueno al noquerer cambiar de mente el mismo se sentencio al resultado ser desechado.
 
 ## Instrucción personal, nuestros compañeros.
 
@@ -1381,14 +1381,24 @@ Cuando te envíe a Artemas o a Tíquico, procura venir a verme en Nicópolis, po
 
 #### Cuando te envíe a Artemas o a Tíquico
 
-#### procura venir a verme en Nicópolis
+##### Pablo le comunica a Tito la posibilidad de enviar a alguien mas a creta Titico o Artemas, decimos que es una posibilidad ya que el verbo enviar es (aoristo, subjuntivo, activo) sin embarbo si esto se vuelve real y Pablo envia a alguien Tito debia realizar lo siguiente.
+
+#### procura venir a verme en NIcopolis
+
+##### "procurar" es un impeativo, cuando Pablo enviara a alguien TIto debia darse prisa en ir a Pablo, esto cambio es curioso, no significa que el trabajo en creta haya terminado, al parecer Pablo enviaria a alguien para remplaza a Tito, no se nos dice cual seria el motivo pero esto se puede entender por el mandamiento de ir a el cuando envie a alguien.
+
+##### Nicopolisis seria el punto de encuentro con Pablo, para el momento de la escritura de la carta Pablo se encontraria en esta ciudad  o muy cerca a llegar. El texto no nos da ninguna afirmacion de esto.
 
 #### porque he decidido pasar allí el invierno
+
+##### Pablo manda a Tito a ir a Nicopolis por que ya habia decidido para el invierno o invernar en en aquella ciudad.
 
 ### Tito 3:13 
 Encamina con diligencia a Zenas, intérprete de la ley, y a Apolos, para que nada les falte. 
 
 #### Encamina con diligencia a Zenas
+
+##### 
 
 #### intérprete de la ley, y a Apolos
 
