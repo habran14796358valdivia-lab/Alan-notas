@@ -102,7 +102,7 @@ La Verdad según Piedad
 
 ### Dejemos que la escritura nos enseñe en la verdad y la gracia en la piedad, ¿Como debemos conducirnos como iglesia y como individuos?. La cartaq parece responder no solo con que la verdad alinea con la piedad sino que al hecho de permanecer firmes en la verdad y que solo de la verdad puede provenir una enseñanza saludable asi tambien que la Gracia de Dios es la que nos enseña a vivir piasosamente y como la Gracia de Dios no es en vano paranuestras vidad sino su provivion para conformanos a la esperanza de la vida eterna.
 
-### Las iglesia en creta parecen ser iglesias en la cuales faltaba instrucion (enseñar), Pablo dejo a Tito para que se hiciera cargo de completar la enseñanza, en la carta vemos especial enfasis en lo que esta deacuerdo con el conocimiento de la verdad y como está alinea con una vida de piedad, esto es tanto como individuos y como iglesia
+### Las iglesia en creta parecen ser iglesias en la cuales faltaba instrucion (enseñar), Pablo dejo a Tito para que se hiciera cargo de completar la enseñanza, en la carta vemos especial enfasis en lo que esta deacuerdo con el conocimiento de la verdad y como está alinea con una vida de piedad, esto es tanto como individuos y como iglesia.
 
 # Tito 1:1-16 Orden en la verdad que es segun la piedad.
 
