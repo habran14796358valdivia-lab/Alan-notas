@@ -16,7 +16,7 @@ Yo haré una obra
 
 Cómo leer Habacuc verso por verso
 
-¿Porqué Dios habla antes de explicar?
+¿Por qué Dios habla antes de explicar?
 
 La diferencia entre describir la realidad y comprenderla
 
@@ -162,7 +162,7 @@ Este libro no fue escrito para negar la realidad de Judá, sino para confrontar 
 
 Cuando Dios responde, no comienza validando el análisis del profeta. No empieza justificando Su proceder. No entra en diálogo moral. Dios declara: “*Yo haré una obra*.”
 
-Esa frase no tranquiliza. Descoloca. Interrumpe. Antes de explicar *por qué*, Dios afirma *qué* hará. Antes de responder a la justicia humana, Dios establece Su soberanía.
+Esa frase no tranquiliza. Descoloca. Interrumpe. Antes de explicar *¿por qué?*, Dios afirma *qué* hará. Antes de responder a la justicia humana, Dios establece Su soberanía.
 
 Este manual se rige por ese orden. El error no está en ver, sino en medir.  Habacuc ve correctamente la violencia en Judá. Pero **mide a Dios** usando esa violencia como punto de referencia.
 
@@ -176,13 +176,11 @@ Este manual se rige por ese orden. El error no está en ver, sino en medir.  Hab
 
 - ### Por eso, este estudio: no apresura conclusiones, no suaviza el escándalo del texto, no convierte la fe en comprensión, La fe que emerge en Habacuc no es fe en un sistema explicado, sino **confianza en Dios sin resolución moral completa**.
 
-
 ## Cómo leer Habacuc verso por verso
 
 Este manual sigue el texto: verso por verso, frase por frase cuando sea necesario. No busca defender a Habacuc. Tampoco busca justificar a Dios. Busca permitir que el texto haga lo que fue escrito para hacer: **confrontar al lector**.
 
 Porque el lector moderno suele repetir el mismo error: medir a Dios con su propia justicia.
-
 
 ## La diferencia entre describir la realidad y comprenderla
 
@@ -253,7 +251,7 @@ Cuando Dios menciona a Babilonia: no la presenta como justa, no la limpia moralm
 
 La sorpresa del libro no es que Babilonia sea mala. La sorpresa es que **Dios se atribuya la acción histórica** sin explicarse.
 
-## Por qué este contexto es indispensable
+## ¿Por qué este contexto es indispensable?
 
 Sin este marco histórico: Habacuc parece solo emocional, Dios parece arbitrario, la fe parece ciega.
 
