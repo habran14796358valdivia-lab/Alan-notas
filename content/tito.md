@@ -113,10 +113,10 @@ Pablo, siervo de Dios y apóstol de Jesucristo, conforme a la fe de los escogido
 
 #### Pablo, siervo de Dios
 
-##### Pablo, un antiguo preseguidor de la iglesia ahora se presenta y considera como un siervo.
+##### Pablo, un antiguo preseguidor de la iglesia ahora se presenta y considera como un siervo. Romanos 1:1; Filipenses 1:1; Tito 1:1
 
 Siervo - DULOS 
-: Siervo de Dios, esto quiere decir un esclavo de Dios, esto no era una condicion obligada, el se concideraba al servicio de Dios. Romanos 1:1; Filipenses 1:1; Tito 1:1
+: Siervo de Dios, esto quiere decir un esclavo de Dios, esto no era una condicion obligada, el se concideraba al servicio de Dios. 
 
 ##### El siervo no hace lo que quiere o parezca, el esta a la disposicion de su amo, hace lo que el amo le indica, Pablo esta sujeto a lo que Dios le mando a hacer. Hechos 9:15-16; Gálatas 1:15-16; 1 Corintios 1:1; 1 Timoteo 1:12
 
@@ -124,7 +124,8 @@ Siervo - DULOS
 
 ##### Pablo tambien es un apóstol de Cristo.
 
-##### Ser apóstol, APOSTOLOS quiere decir ser un mensajero o emisario, alguien que lleva un mensaje. En si la palabra apóstol no es especial, era comunmente usada en el primer siglo para denotar a un mensajero.
+Apóstol - APOSTOLOS 
+: Quiere decir ser un mensajero o emisario, alguien que lleva un mensaje. En si la palabra apóstol no es especial, era comunmente usada en el primer siglo para denotar a un mensajero.
 
 ##### La difencia esta en el que te envia, Cristo solo comisiono a 12 apóstoles, 12 persononas enviadas persolmente por Cristo con un mensaje. 1 Corintios 1:1; 2 Corintios 1:1; Gálatas 1:1; Efesios 1:1; Colosenses 1:1; 1 Timoteo 1:!; 2 Timoteo 1:1; Apocalipsis 21:14
 
@@ -134,7 +135,7 @@ Siervo - DULOS
 
 #### conforme a la fe de los escogidos de Dios
 
-##### Pablo es siervo y apostol conforme a la fe o de acuerdo a la fe.
+##### Pablo es siervo y apostol conforme a la fe o alineado a la fe.
 
 ##### Esta expresion es interesante, el servicio y apóstolado de Pablo esta alineado con la fe (conjunto de enseñanza) de este grupo (los escogido) de Dios.
 
@@ -142,15 +143,17 @@ Siervo - DULOS
 
 ##### El servicio y apostolado de Pablo estaba alineado al pleno conocimiento de la verdad, la verdad que es según piedad.
 
-##### La palabra pleno no se encuentra en el griego, "y al conocimiento de la verdad"
+##### La palabra pleno no se encuentra en el griego "y al conocimiento de la verdad"
 
-##### ¿Que es el conocimiento de la verdad?, Conocimiento es EPIGNOSIS esto se refiere a un conocimiento acertado o preciso de algo, en este caso es de la verdad. La carta a tito no nos dice que es la verdad, asume ser ya conocida por los creyentes, sin embargo tenemos una pauta importante, la verdad se alinea a la piedad.
+##### ¿Que es el conocimiento de la verdad?,
+Conocimiento - EPIGNOSIS
+: Esto se refiere a un conocimiento acertado o preciso de algo, en este caso es de la verdad. 
 
-##### De igual manera Pablo mismo esta alineado con la fe, la verdad y como sabemos esto, pues la piedad es una conducta externa expresada que evidencia o realza la verdad, esto no es solamente todo el conjunto de la enzeñanza que temnemos sino en el fundamneto, EL Evangelio.
+##### La carta a Tito no nos dice que es la verdad, asume ser ya conocida por los creyentes, sin embargo tenemos una pauta importante, la verdad se alinea a la piedad.
 
-##### La piedad esta realzando la verdad, la verdad alinea con la piedad, esto no es cualquier verdad entre comillas, dice un conocimiento acertado de la verdad, el texto la muestra como unica. Juan 1:14, 17, 3:21, 4:23-24, 8:32, 40, 45-46, 14:6, 17, 16:13, 17:17, 19; Romanos 1:25; 1 Corintios 13:6; 2 Corintios 4:2, 6:7, 13:7-8; Gálatas 2:5, 14, 5:7; Efesios 1:13, 4:20-22
+##### De igual manera Pablo mismo esta alineado con la fe y la verdad, esto no es solamente todo el conjunto de la enzeñanza que temnemos sino en el fundamneto, EL Evangelio.
 
-##### EL servicio, apostolado y Pablo mismo estaba alineado no solo con la fe sino con el conocimiento de la verdad que es segun piedad.
+##### La piedad es una conducta externa expresada que esta realzando la verdad, la verdad alinea con la piedad, esto no es cualquier verdad entre comillas, dice un conocimiento acertado de la verdad, el texto la muestra como unica. Juan 1:14, 17, 3:21, 4:23-24, 8:32, 40, 45-46, 14:6, 17, 16:13, 17:17, 19; Romanos 1:25; 1 Corintios 13:6; 2 Corintios 4:2, 6:7, 13:7-8; Gálatas 2:5, 14, 5:7; Efesios 1:13, 4:20-22
 
 ##### Esto es algo que veremos implicito a lo largo de todad la carta, el conocimiento de la verdad que es segun la piedad y a raiz de esto que es lo deficiente. 
 
