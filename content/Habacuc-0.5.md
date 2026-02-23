@@ -434,7 +434,7 @@ Por eso no se cumple la ley Y nunca prevalece la justicia. Porque el impío ased
 ####  no se cumple la ley
 ##### Habacuc no afirma que la ley haya desaparecido. Afirma que ha sido **debilitada**, no se cumple.
 
-##### Esto implica que la ley existe, la ley es conocida pero la ley carece de fuerza operativa. El problema no es ignorancia, sino **ineficacia**.
+##### Esto implica que la ley existe, la ley es conocida pero la ley carece de fuerza operativa. El problema no es ignorancia, sino **ineficacia**. Ezequiel 9:9
 
 #### Y nunca prevalece la justicia.
 ##### La justicia es presentada como algo que debería manifestarse, debería hacerse visible y producir resultados concretos. 
@@ -444,13 +444,13 @@ Por eso no se cumple la ley Y nunca prevalece la justicia. Porque el impío ased
 ##### Aquí se introduce una presuposición importante: si la justicia no es visible, entonces no está funcionando. La justicia queda definida por **resultados observables**.
 
 ####  Porque el impío asedia al justo
-##### Habacuc identifica la causa inmediata:
+##### Habacuc identifica la csausa inmediata:
 
 - El impío rodea
 - El justo queda cercado
 - La balanza de poder está invertida
 
-##### Este es un diagnóstico social. No niega que existan justos pero afirma que están estructuralmente superados. 
+##### Este es un diagnóstico social. No niega que existan justos pero afirma que están estructuralmente superados. Salmos 22:12-13
 
 #### Por eso sale pervertida la justicia.
 ##### La conclusión se repite y se intensifica.
@@ -483,7 +483,7 @@ Habacuc denuncia violencia, injusticia y distorsión del derecho.
 
 La queja surge de una percepción prolongada, no momentánea.
 
-Dios es interpelado directamente por su aparente inacción.
+Dios es interpretado directamente por su aparente inacción.
 
 La ley existe, pero no produce justicia.
 
