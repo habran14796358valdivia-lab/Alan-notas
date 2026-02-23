@@ -630,7 +630,7 @@ Imponente y temible es; De él mismo proceden su justicia y su grandeza.
 
 ##### Su justicia se origina en sí misma. Se valida a sí misma, se impone por poder.
 
-##### Esto confirma que Babilonia **no es justa**, solo es un instrumento utilizado para la obra del Señor. No debemos pensar que Dios necesita u origina la maldad. Más bien, lo que muestra es que ni siquiera la maldad del hombre (en este caso la de los caldeos) afectan quien es el Señor y Su obra, es más, Él puede llevarlo para Sus propósitos.
+##### Esto confirma que Babilonia **no es justa**, solo es un instrumento utilizado para la obra del Señor. No debemos pensar que Dios necesita u origina la maldad. Más bien, lo que muestra es que ni siquiera la maldad del hombre (en este caso la de los caldeos) afectan quien es el Señor y Su obra, es más, Él puede usarla para Sus propósitos.
 
 #### y su grandeza.
 
