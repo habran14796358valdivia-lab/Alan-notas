@@ -500,16 +500,16 @@ El problema no es ausencia de religión, sino su ineficacia.
 #### Mirad…¡Observen!
 ##### Dios comienza Su respuesta **ordenando a mirar**.
 
-##### Esto es significativo porque Habacuc ya ha insistido, *me haces ver iniquidad*.  Dios no corrige la vista del profeta;  **corrige el campo de visión**, la manera en la cual Habacuc estaba mirando.
+##### Esto es significativo porque Habacuc ya ha insistido, *me haces ver iniquidad*.  Dios no corrige la vista del profeta; **corrige el campo de visión**, la manera en la cual Habacuc estaba mirando.
 
-##### La implicación es clara: el problema no es que Habacuc no vea, sino **qué tan lejos está mirando**.
+##### La implicación es clara: el problema no es que Habacuc no vea, sino **qué tan lejos está mirando**. Hechos 13:41
 
 #### ...entre las naciones
 ##### Aquí ocurre un desplazamiento decisivo.
 
 ##### Habacuc ha estado observando Judá, la injusticia interna y la ley dentro del pacto. 
 
-##### Dios lo dirige fuera de ese marco a mirar a las naciones, a la historia y al escenario internacional.  La justicia de Dios no será tratada **localmente primero**,  sino **históricamente**. Esto ya pone en tensión la conclusión de 1:4.
+##### Dios lo dirige fuera de ese marco a mirar a las naciones, a la historia y al escenario internacional. La justicia de Dios no será tratada **localmente primero**, sino **históricamente**. Esto ya pone en tensión la conclusión de 1:4.
 
 ## Habacuc 1:5 Anuncio de una obra futura
 
@@ -523,7 +523,7 @@ El problema no es ausencia de religión, sino su ineficacia.
 ## Habacuc 1:5 Declaración de incredulidad anticipada
 
 #### Porque haré una obra
-##### Esta es la **declaración central del libro**. El sujeto es **yo**. La acción es **haré**, pero  la obra no se define.  Dios no promete explicación. Promete **acción soberana**. Esta frase **no responde** a la queja de Habacuc; la **interrumpe**.
+##### Esta es la **declaración central del libro**. El sujeto es **yo**. La acción es **haré**, pero la obra no se define. Dios no promete explicación. Promete **acción soberana**. Esta frase **no responde** a la queja de Habacuc; la **interrumpe**. Isaias 29:14; Jeremias 9:25-26
 
 ##### Habacuc a estado basando su pensamiento en base a lo que a estado viendo, esto lo llevo a unas concluciones equivocadas de Dios y cómo el actua, Habacuc incluso llegó a concluir en cómo Dios debería actuar.
 
@@ -543,7 +543,7 @@ El problema no es ausencia de religión, sino su ineficacia.
 
 ##### Este versículo rompe la lógica humana, desplaza el marco de justicia, introduce acción sin defensa y prepara al lector para el escándalo. A partir de aquí, el libro ya no trata de: ¿por qué Dios no actúa? sino, **¿qué hace Dios cuando actúa de una manera que no aceptamos?**
 
-- Después de declarar "Yo haré una obra", Dios ahora revelará **cuál es esa obra**. Y será exactamente lo que Habacuc no considera compatible con la justicia, su justicia.
+- Después de declarar "Yo haré una obra", Dios ahora revelará **cuál es esa obra**. Y será exactamente lo que Habacuc no considera compatible con la justicia, **su justicia**.
 
 ## En Síntesis (Habacuc 1:5)
 
