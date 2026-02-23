@@ -570,23 +570,23 @@ Porque voy a levantar a los caldeos, Pueblo feroz e impetuoso, Que marcha por la
 
 ####  voy a levantar
 
-##### El verbo es decisivo. Dios no dice: “permito”, o “tolero” o “uso lo que ya existe”.  Dice: *voy a levantar*.
+##### El verbo es decisivo. Dios no dice: “permito”, o “tolero” o “uso lo que ya existe”.  Dice: *voy a levantar*. 
 
-##### Esto atribuye a Dios: iniciativa histórica, dirección soberana, control del proceso. La obra no es reactiva. Es **intencional**.
+##### Esto atribuye a Dios: iniciativa histórica, dirección soberana, control del proceso. La obra no es reactiva. Es **intencional**. Isaias 23:13; Jeremias 5:15
 
 #### a los caldeos...
 ##### Aquí aparece el elemento más ofensivo del texto. Dios no introduce una reforma interna, un avivamiento, un juez justo o una corrección gradual. 
 
-##### Introduce a **los caldeos (Babilonia)**. Esto confronta directamente la conclusión de Habacuc en 1:4: "*el impío asedia al justo*". La respuesta de Dios es, en efecto: "sí — y yo estoy actuando por medio de ello". 
+##### Introduce a **los caldeos (Babilonia)**. Esto confronta directamente la conclusión de Habacuc en 1:4: "*el impío asedia al justo*". La respuesta de Dios es, en efecto: "sí — y yo estoy actuando por medio de ello". 2 Reyes 24:2; 2 Cronicas 36:17; Deutoronomio 28:52
 
 #### Pueblo feroz e impetuoso
 
-##### Dios **no moraliza positivamente** su instrumento (los caldeos - babilonios). Lo describe como: cruel, violento, impetuoso.
+##### Dios **no moraliza positivamente** su instrumento (los caldeos - babilonios). Lo describe como: cruel, violento, impetuoso. Jeremias 6:22-23
 
-- Esto es crucial: Dios no redefine el mal como bien, Dios no niega la injusticia del instrumento.  El medio no es justificado para los fines de Dios.
+- Esto es crucial: Dios no redefine el mal como bien, Dios no niega la injusticia del instrumento. El medio no es justificado para los fines de Dios.
 - El Señor es tan soberano, que incluso Él utilizará una nación despiadada cómo Babilonia para mostrar Su obra, no solo a Su pueblo Israel, sino al mundo. 
 - Los caldeos pensarían en el poder que tenían, sin considerar que eso es provisto por medio del Señor de señores.
-- ¿Cómo? ¿Porqué? Es algo que Habacuc e Israel estará preguntándose, y veremos cómo el Señor continuará mostrándose.
+- ¿Cómo?, ¿Por qué? Es algo que Habacuc e Israel estará preguntándose, y veremos cómo el Señor continuará mostrándose.
 
 ##### El problema no es que Habacuc se equivoque sobre Babilonia.  El problema es que **no acepta que Dios pueda actuar mediante ella**.
 
@@ -596,7 +596,7 @@ Porque voy a levantar a los caldeos, Pueblo feroz e impetuoso, Que marcha por la
 
 ##### La justicia de Dios **no está limitada** a las fronteras del pacto, esta es la manera en la que Dios obra, va conectada a Su capacidad, Omnipotente.
 
-#### Para apoderarse de moradas ajenas.
+#### Para apoderarse de moradas ajenas. 
 
 ##### Aquí se describe el carácter injusto del instrumento. Babilonia toma lo que no le pertenece, invade, despoja. 
 
