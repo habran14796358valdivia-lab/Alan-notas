@@ -656,9 +656,9 @@ Imponente y temible es; De él mismo proceden su justicia y su grandeza.
 
 Sus caballos son más veloces que leopardos Y más astutos que lobos al anochecer. Al galope vienen sus jinetes, Sus jinetes vienen de lejos, Vuelan como águila que se precipita a devorar.
 
-Aquí vemos imágenes de velocidad y ferocidad. Dios describe a Babilonia usando **comparaciones animales**, no morales. Empieza con *leopardos* (velocidad súbita), *lobos al anochecer* (ferocidad hambrienta) y el *águila* (dominio desde lo alto, ataque inevitable). 
+##### Aquí vemos imágenes de velocidad y ferocidad. Dios describe a Babilonia usando **comparaciones animales**, no morales. Empieza con *leopardos* (velocidad súbita), *lobos al anochecer* (ferocidad hambrienta) y el *águila* (dominio desde lo alto, ataque inevitable). 
 
-Estas imágenes no apelan a ética, apelan a **eficacia violenta**. La fuerza de Babilonia no es reflexiva ni deliberada. Es **rápida, instintiva y devastadora**.
+##### Estas imágenes no apelan a ética, apelan a **eficacia violenta**. La fuerza de Babilonia no es reflexiva ni deliberada. Es **rápida, instintiva y devastadora**.
 
 #### Sus caballos… sus jinetes
 
@@ -680,7 +680,7 @@ Estas imágenes no apelan a ética, apelan a **eficacia violenta**. La fuerza de
 
 #### Vuelan como águila que se precipita a devorar.
 
-##### La imagen final une dos ideas: rapidez y propósito destructivo.  No es movimiento sin dirección. Es avance **con intención de consumir**.
+##### La imagen final une dos ideas: rapidez y propósito destructivo. No es movimiento sin dirección. Es avance **con intención de consumir**.
 
 ##### La violencia no es accidental. 
 
