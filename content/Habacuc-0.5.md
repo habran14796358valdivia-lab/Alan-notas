@@ -272,7 +272,7 @@ Con este marco: la violencia es real, la crisis es concreta, la confrontación e
 Oráculo que tuvo en visión el profeta Habacuc.
 
 #### Oráculo [La carga - RV09]
-##### El libro no comienza con una visión de esperanza ni con una promesa. Comienza con una **carga**.
+##### El libro no comienza con una visión de esperanza ni con una promesa. Comienza con una **carga**. Nahúm 1:1; Zacarias 9:1, 12:1; Isaias 17:1; Malaquías 1:1
 
 - El término introduce: peso, presión y gravedad,  algo que debe ser llevado, no resuelto de inmediato. 
 - Desde la primera palabra, el lector es advertido: lo que sigue **no será ligero**, ni rápido, ni tranquilizador.
@@ -289,7 +289,7 @@ Oráculo que tuvo en visión el profeta Habacuc.
 #### el profeta
 ##### El texto identifica a Habacuc por su función, no por su historia personal. No se menciona: su familia, su ciudad, su autoridad social, solo *el profeta.*
 
-##### Esto indica que: su carga no es privada, su diálogo con Dios no es trivial, su dirá a continuación ocurre dentro de una relación legítima con Dios.  Habacuc no habla en ignorancia, habla como alguien que conoce a Dios y espera coherencia.
+##### Esto indica que: su carga no es privada, su diálogo con Dios no es trivial, su decir a continuación ocurre dentro de una relación legítima con Dios.  Habacuc no habla en ignorancia, habla como alguien que conoce a Dios y espera coherencia.
 
 #### Habacuc
 ##### El nombre se presenta sin explicación, como si el lector ya debiera escucharlo.
@@ -329,7 +329,7 @@ La tensión del libro queda legitimada como palabra revelada.
 #### ¿Hasta cuándo…
 ##### La primera palabra hablada en el libro es una **pregunta de duración**. Habacuc no pregunta: *si* Dios actúa, *si* Dios es justo, *si* Dios existe.
 
-##### Pregunta **cuánto tiempo**. Esto presupone algo importante: Habacuc **espera** que Dios actúe. Habacuc **asume** que la situación ya ha excedido un límite aceptable. La pregunta no es neutral, es una **acusación implícita de demora**.
+##### Pregunta **¿cuánto tiempo?**. Esto presupone algo importante: Habacuc **espera** que Dios actúe. Habacuc **asume** que la situación ya ha excedido un límite aceptable. La pregunta no es neutral, es una **acusación implícita de demora**. Salmos 13:1-2; Apocalipsis 6:10
 
 #### oh SEÑOR
 ##### Habacuc dirige su queja al **SEÑOR** (YHWH), no a una fuerza abstracta. Esto indica una relación de pacto, confianza previa y conocimiento del carácter de Dios de parte del profeta. 
@@ -337,20 +337,20 @@ La tensión del libro queda legitimada como palabra revelada.
 ##### La queja **no es incrédula**. Es **teológicamente informada**. Eso hará la confrontación más seria, no menos.
 
 #### pediré ayuda
-##### El verbo indica repetición, insistencia y persistencia en el tiempo.  Habacuc no ha orado una vez. Ha clamado **muchas veces**.
+##### El verbo indica repetición, insistencia y persistencia en el tiempo. Habacuc no ha orado una vez. Ha clamado **muchas veces**.
 
 ##### Esto introduce una tensión importante: el silencio de Dios **no es momentáneo**, la frustración ha sido acumulada. 
 
 #### ¿...Y no escucharás?
 
-##### Aquí aparece la primera afirmación fuerte del libro. Habacuc no dice: “parece que no oyes” o “no entiendo si escuchas”.
+##### Aquí aparece la primera afirmación fuerte del libro. Habacuc no dice: “parece que no oyes” o “no entiendo si escuchas”. Salmos 22:1-2; Lamentaciones 3:8
 
 ##### Dice: *Y no escucharás*.
 
 - Desde su perspectiva el clamor incesante no ha producido respuesta de parte del Señor. Dios ha permanecido pasivo. Este es el primer punto donde la percepción de Habacuc lo lleva a una **interpretación**.
 
 #### Clamo a Ti: «¡Violencia!».
-##### Habacuc especifica el motivo de su clamor: violencia. No habla de: idolatría, apostasía, pecado ritual. Habla de algo **visible, social, tangible**. ¡Violencia!
+##### Habacuc especifica el motivo de su clamor: violencia. No habla de: idolatría, apostasía, pecado ritual. Habla de algo **visible, social, tangible**. ¡Violencia! Salmos 94:3; Jeremias 20:6
 
 - Esto ancla su queja en la realidad histórica: la violencia no es doctrinal, es experimentada, es pública. Hasta aquí, el texto **no cuestiona** esta observación.
 
@@ -361,7 +361,7 @@ La tensión del libro queda legitimada como palabra revelada.
 
 ##### Habacuc 1:2 tiene una forma muy definida: pregunta → acusación, clamor → silencio, violencia → ausencia de salvación. 
 
-##### El versículo no explica, no defiende, no resuelve. Solo expone lo que Habacuc llega a persivir.
+##### El versículo no explica, no defiende, no resuelve. Solo expone lo que Habacuc llega a percibir.
 
 ##### Tensión introducida por el versículo. Este versículo establece el problema que gobernará todo el capítulo: Si Dios es justo, ¿por qué permite que la violencia continúe sin intervención visible? 
 
@@ -390,7 +390,7 @@ La tensión del libro queda legitimada como palabra revelada.
 #### me haces ver iniquidad
 ##### El término *iniquidad* no apunta solo a violencia externa, sino a **distorsión moral**, **culpa** y **perversión**. Habacuc no ve simples fallas sociales. Ve algo **fundamentalmente torcido**.
 
-##### Hasta aquí el texto no niega esta observación. La carga se intensifica, no se corrige.
+##### Hasta aquí el texto no niega esta observación. La carga se intensifica, no se corrige. Eclesiastes 4:1, 5:8
 
 #### y haces que mire la opresión
 ##### El paralelismo refuerza la acusación, “*me haces ver*”.  “*haces que mire*” hace entender que no hay escape visual. Habacuc se siente **forzado a contemplar** la injusticia y es el Señor el autor de aquello.
@@ -403,13 +403,13 @@ La tensión del libro queda legitimada como palabra revelada.
 ##### Habacuc no describe una crisis futura. Describe un **presente continuo**.
 
 #### hay contienda y se levanta pleito
-##### Aquí aparece el efecto social: conflicto constante, litigio sin resolución, relaciones desgastadas, justicia reducida a disputa
+##### Aquí aparece el efecto social: conflicto constante, litigio sin resolución, relaciones desgastadas, justicia reducida a disputa Jeremias 20:6
 
 ##### Esto prepara el terreno para 1:4, donde la ley y la justicia serán directamente nombradas.
 
 ##### En Habacuc 1:3 ocurre algo decisivo: Habacuc comienza a **atribuir su experiencia del mal a Dios**.
 
-##### No acusa a Dios de causar la iniquidad, pero sí de obligarlo a verla, sostenerla en su campo visual y no intervenir mientras lo expone a ella.  Este es el punto donde la queja **cruza de descripción a imputación**.
+##### No acusa a Dios de causar la iniquidad, pero sí de obligarlo a verla, sostenerla en su campo visual y no intervenir mientras lo expone a ella. Este es el punto donde la queja **cruza de descripción a imputación**.
 
 ##### Habacuc 1:3: intensifica la queja, reduce la distancia entre Dios y la crisis, prepara la acusación sobre la ley y la justicia. 
 
