@@ -662,13 +662,13 @@ Sus caballos son más veloces que leopardos Y más astutos que lobos al anochece
 
 #### Sus caballos… sus jinetes
 
-##### El énfasis se repite: caballos, jinetes, multiplicación, movimiento constante. Esto subraya su capacidad militar organizada, su superioridad táctica e imposibilidad de contención. 
+##### El énfasis se repite: caballos, jinetes, multiplicación, movimiento constante. Esto subraya su capacidad militar organizada, su superioridad táctica e imposibilidad de contención. Jerenias 5:6
 
 ##### La amenaza no es simbólica. Es literal, **operativa y concreta**.
 
 #### Al galope vienen sus jinetes
 
-##### El texto señala **crecimiento**, no estancamiento. Babilonia no es una fuerza momentánea. Está en **expansión activa**. Esto elimina cualquier expectativa de que el problema se resolverá solo. 
+##### El texto señala **crecimiento**, no estancamiento. Babilonia no es una fuerza momentánea. Está en **expansión activa**. Esto elimina cualquier expectativa de que el problema se resolverá solo. Jeremias 4:13
 
 ##### La violencia no se agotará rápidamente, es una amenaza que estará en crecimiento constante.
 
@@ -680,7 +680,7 @@ Sus caballos son más veloces que leopardos Y más astutos que lobos al anochece
 
 #### Vuelan como águila que se precipita a devorar.
 
-##### La imagen final une dos ideas: rapidez y propósito destructivo. No es movimiento sin dirección. Es avance **con intención de consumir**.
+##### La imagen final une dos ideas: rapidez y propósito destructivo. No es movimiento sin dirección. Es avance **con intención de consumir**. Deuteronomio 28:49; Lamentaciones 4:19
 
 ##### La violencia no es accidental. 
 
@@ -701,13 +701,13 @@ Vienen todos ellos para hacer violencia, Su horda de rostros avanza, Recoge caut
 
 #### Vienen todos ellos para hacer violencia
 
-##### La frase es totalizante. No dice que “algunos vendrán con violencia” o “en ciertos casos habrá violencia”.  Dice "*todos ellos*". 
+##### La frase es totalizante. No dice que “algunos vendrán con violencia” o “en ciertos casos habrá violencia”. Dice "*todos ellos*". 
 
-##### La violencia no es ocasional. El **propósito dominante y único** del avance es la violencia. Esto confirma que Babilonia no es un instrumento correctivo de un solo momento.  No operará con moderación, su actuar será completamente violento.
+##### La violencia no es ocasional. El **propósito dominante y único** del avance es la violencia. Esto confirma que Babilonia no es un instrumento correctivo de un solo momento. No operará con moderación, su actuar será completamente violento.
 
 #### para hacer violencia
 
-##### La violencia no es un efecto secundario. Es el **fin**. El movimiento tiene dirección clara: no viene a administrar justicia, no viene a restaurar orden, viene **para violencia**.
+##### La violencia no es un efecto secundario. Es el **fin**. El movimiento tiene dirección clara: no viene a administrar justicia, no viene a restaurar orden, viene **para violencia**. Jeremias 15:8, 25:9
 
 - Esto intensifica la confrontación: Dios no solo levanta un instrumento injusto, sino uno cuya finalidad es destructiva. Recordemos que Israel no estará excluida de esto, es parte de la violencia que vendrá por parte de los caldeos.
 
