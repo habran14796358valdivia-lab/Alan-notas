@@ -773,7 +773,7 @@ Se burla de los reyes, Y los gobernantes le son motivo de risa; Se ríe de toda 
 
 ###### Esto intensifica la tensión: si la justicia ya estaba torcida, ahora está completamente desarmada.
 
-##### Este versículo desmonta la confianza en líderes, desacraliza el poder político y elimina cualquier ilusión de control humano.  El lector queda sin refugio: ni moral, ni legal, ni militar.
+##### Este versículo desmonta la confianza en líderes, desacraliza el poder político y elimina cualquier ilusión de control humano. El lector queda sin refugio: ni moral, ni legal, ni militar.
 
 ##### Después de describir el poder absoluto del instrumento, el texto ahora mostrará **el límite moral** que Babilonia cruza.
 
@@ -789,7 +789,7 @@ Entonces pasará como el viento y seguirá, Y se le tendrá por culpable, Porque
 
 #### Y se le tendrá por culpable
 
-##### Aquí el texto cruza una línea. El verbo indica **culpabilidad**, no simplemente violencia. Hasta este punto se describió la crueldad. Se detalló el terror y se observó la dominación.  Ahora Babilonia **incurre en infracción**.
+##### Aquí el texto cruza una línea. El verbo indica **culpabilidad**, no simplemente violencia. Hasta este punto se describió la crueldad. Se detalló el terror y se observó la dominación. Ahora Babilonia **incurre en infracción**.
 
 - Esto marca el momento en el que la acción se vuelve culpable, la violencia se convierte en transgresión. Describe el paso de instrumento a delincuente. 
 
@@ -800,6 +800,7 @@ Esto evita un peligroso malentendido que aunque Babilonia sea usado como instrum
 #### Porque hace de su poder su dios
 
 ##### Aquí se especifica el delito. Babilonia no sólo actúa violentamente; **reinterpreta su éxito religiosamente**. Su lógica es, somos fuertes, por lo tanto nuestro dios es supremo, por lo tanto nuestro poder está justificado.
+
 - Esto no es ignorancia. Es **arrogancia religiosa**. Esta cláusula establece un límite. Dios puede usar soberanamente a Babilonia, pero Babilonia todavía es **responsable**. La soberanía divina no equivale a aprobación moral o ignorar el pecado.
 
 ##### Esta distinción es esencial para todo lo que sigue, especialmente los ***cinco ayes*** del capítulo 2.
@@ -807,7 +808,9 @@ Esto evita un peligroso malentendido que aunque Babilonia sea usado como instrum
 ##### Habacuc 1:11 hace realidad dos cosas **al mismo tiempo**: Dios gobierna la historia y Babilonia es moralmente culpable.
 
 - Este verso: cierra la primera respuesta de Dios, previene la confusión moral y prepara segunda denuncia de Habacuc.  
+
 - Habacuc no puede decir, “Entonces Babilonia debe ser justa”. Pero tampoco puede decir, “Entonces Dios está inactivo”. La tensión persiste, **intencionalmente**.
+
 - Ahora que Dios ha terminado de hablar, Habacuc responderá nuevamente. Pero su segunda queja será **más aguda**, más teológicamente razonada y más perturbadora que la primera.
 
 ## En Síntesis (Habacuc 1:6–11)
