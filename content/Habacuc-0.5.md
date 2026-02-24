@@ -743,7 +743,8 @@ Se burla de los reyes, Y los gobernantes le son motivo de risa; Se ríe de toda 
 
 ##### La violencia de Babilonia no se limita al pueblo común. Se dirige **directamente contra la autoridad**.
 
-- Los reyes, símbolos de orden, continuidad y poder—no solo son derrotados, sino **ridiculizados**.
+- Los reyes, símbolos de orden, continuidad y poder solo son derrotados, sino **ridiculizados**
+
 - Esto implica: humillación pública, colapso de legitimidad, desmantelamiento del honor político
 
 #### Y los gobernantes le son motivo de risa
@@ -762,8 +763,9 @@ Se burla de los reyes, Y los gobernantes le son motivo de risa; Se ríe de toda 
 
 ##### La descripción es práctica, no poética. No es magia. Es técnica militar efectiva.
 
-##### Esto comunica determinación, método e inevitabilidad.  La fortaleza no cae por accidente.  Cae porque Babilonia **sabe cómo tomarla**.
-##### Habacuc 1:10 muestra que ninguna autoridad humana es intocable.  Ningún sistema es suficientemente fuerte. Ningún poder ofrece refugio seguro.
+##### Esto comunica determinación, método e inevitabilidad. La fortaleza no cae por accidente. Cae porque Babilonia **sabe cómo tomarla**.
+
+##### Habacuc 1:10 muestra que ninguna autoridad humana es intocable. Ningún sistema es suficientemente fuerte. Ningún poder ofrece refugio seguro.
 
 ##### La justicia humana, incluso organizada, no puede detener el avance descrito.
 
