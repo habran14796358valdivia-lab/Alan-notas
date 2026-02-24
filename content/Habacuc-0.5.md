@@ -144,7 +144,7 @@ Habacuc 3:19 — Fortaleza y seguridad en el Señor
 
 ## **Yo haré una obra**
 
-El libro de **Habacuc** no comienza con una respuesta de Dios, sino con una queja del profeta. Tampoco comienza con una explicación divina, sino con una descripción humana de la realidad.
+El libro de **Habacuc** no comienza con una <u>respuesta</u> de Dios, sino con una queja del profeta. Tampoco comienza con una explicación divina, sino con una descripción humana de la realidad.
 
 Habacuc ve violencia.
 
@@ -154,71 +154,69 @@ Ve una ley debilitada y una justicia torcida.
 
 Su diagnóstico no es superficial.
 
-El problema no es que Habacuc esté inventando una crisis, sino que **está interpretando esa crisis desde una justicia humana**.
+El problema no es que Habacuc esté <u>inventando</u> una crisis, sino que **está interpretando esa crisis desde una justicia humana**.
 
-Este libro no fue escrito para negar la realidad de Judá, sino para confrontar **la manera en que esa realidad es evaluada**.
+Este libro no fue escrito para negar la realidad de Judá, sino para <u>confrontar</u> **la manera en que esa realidad es evaluada**.
 
 ## ¿Porqué Dios habla antes de explicar?
 
-Cuando Dios responde, no comienza validando el análisis del profeta. No empieza justificando Su proceder. No entra en diálogo moral. Dios declara: “*Yo haré una obra*.”
+Cuando Dios responde, no comienza <u>validando</u> el análisis del profeta. No empieza justificando Su proceder. No entra en diálogo moral. Dios declara: “*Yo haré una obra*.”
 
-Esa frase no tranquiliza. Descoloca. Interrumpe. Antes de explicar *¿por qué?*, Dios afirma *qué* hará. Antes de responder a la justicia humana, Dios establece Su soberanía.
+Esa frase no tranquiliza. Descoloca. Interrumpe. Antes de explicar *¿por qué?*, Dios <u>afirma</u> *qué* hará. Antes de responder a la justicia humana, Dios establece Su soberanía.
 
-Este manual se rige por ese orden. El error no está en ver, sino en medir.  Habacuc ve correctamente la violencia en Judá. Pero **mide a Dios** usando esa violencia como punto de referencia.
+Este manual se rige por ese orden. El error no está en ver, sino en medir.  Habacuc ve correctamente la violencia en Judá. Pero **mide a Dios** usando esa <u>violencia</u> como punto de referencia.
 
-- Su lógica es comparativa: Judá es injusta, Babilonia es más injusta, Por lo tanto, Judá debería ser tratada con mayor indulgencia, Ese razonamiento no niega el pecado. Lo **gradúa**.
+- Su lógica es comparativa: Judá es injusta, <u>Babilonia</u> es más injusta, Por lo tanto, Judá debería ser tratada con mayor indulgencia, Ese razonamiento no niega el pecado. Lo **gradúa**.
 
-- ### Aquí comienza el conflicto central del libro: no entre justicia e injusticia, sino entre **justicia humana y justicia divina**.
+- ### Aquí comienza el <u>conflicto</u> central del libro: no entre justicia e injusticia, sino entre **justicia humana y justicia divina**.
 
+- ### Este libro no resuelve la tensión ,  la sostiene. Habacuc no recibe una explicación que <u>armonice</u> todo. Recibe una redefinición de cómo se vive **cuando la justicia no se entiende**.
 
-- ### Este libro no resuelve la tensión — la sostiene. Habacuc no recibe una explicación que armonice todo. Recibe una redefinición de cómo se vive **cuando la justicia no se entiende**.
-
-
-- ### Por eso, este estudio: no apresura conclusiones, no suaviza el escándalo del texto, no convierte la fe en comprensión, La fe que emerge en Habacuc no es fe en un sistema explicado, sino **confianza en Dios sin resolución moral completa**.
+- ### Por eso, este estudio: no apresura conclusiones, no suaviza el escándalo del texto, no <u>convierte</u> la fe en comprensión, La fe que emerge en Habacuc no es fe en un sistema explicado, sino **confianza en Dios sin resolución moral completa**.
 
 ## Cómo leer Habacuc verso por verso
 
-Este manual sigue el texto: verso por verso, frase por frase cuando sea necesario. No busca defender a Habacuc. Tampoco busca justificar a Dios. Busca permitir que el texto haga lo que fue escrito para hacer: **confrontar al lector**.
+Este manual sigue el texto: verso por verso, frase por frase cuando sea necesario. No busca defender a Habacuc. Tampoco busca <u>justificar</u> a Dios. Busca permitir que el texto haga lo que fue escrito para hacer: **confrontar al lector**.
 
-Porque el lector moderno suele repetir el mismo error: medir a Dios con su propia justicia.
+Porque el lector moderno suele repetir el mismo error: medir a Dios con su <u>propia</u> justicia.
 
 ## La diferencia entre describir la realidad y comprenderla
 
-Habacuc comienza midiendo a Dios según su sentido de justicia. Y termina confiándose a Dios a pesar de una justicia no resuelta. Entre esos dos puntos, ocurre la confrontación. Y es ahí donde este estudio invita al lector a permanecer.
+Habacuc comienza midiendo a Dios según su sentido de justicia. Y termina confiándose a Dios a pesar de una justicia no resuelta. Entre esos dos puntos, ocurre la <u>confrontación</u>. Y es ahí donde este estudio invita al lector a permanecer.
 
 # **MARCO HISTÓRICO Y CONTEXTO**
 
 ## El libro y su carácter
 
-El libro de **Habacuc** es distinto a la mayoría de los profetas.
+El libro de **Habacuc** es distinto a la <u>mayoría</u> de los profetas.
 
-Aquí: el profeta **no habla al pueblo** de parte de Dios, sino que **habla con Dios** en medio de una crisis histórica real. El texto conserva ese diálogo sin suavizarlo.
+Aquí: el profeta **no habla al pueblo** de parte de Dios, sino que **habla con Dios** en medio de una crisis histórica real. El texto <u>conserva</u> ese diálogo sin suavizarlo.
 
-No edita la incomodidad del profeta ni justifica de inmediato las acciones divinas.
+No edita la incomodidad del profeta ni <u>justifica</u> de inmediato las acciones divinas.
 
 ## El autor: Habacuc
 
-Poco se nos dice de Habacuc fuera de este libro.
+Poco se nos dice de <u>Habacuc</u> fuera de este libro.
 
-No se menciona: su linaje, su ciudad, su oficio específico (sacerdote, profeta de corte, etc.).
+No se menciona: su linaje, su ciudad, su oficio <u>específico</u> (sacerdote, profeta de corte, etc.).
 
-Esto no es una carencia, sino una señal literaria importante: El peso del libro no recae en quién es Habacuc, sino en cómo responde a Dios. Habacuc representa al creyente que: conoce el carácter de Dios, reconoce la corrupción a su alrededor, pero **evalúa la obra divina desde un marco humano de justicia**.
+Esto no es una carencia, sino una señal literaria importante: El peso del libro no recae en quién es Habacuc, sino en cómo responde a Dios. Habacuc <u>representa</u> al creyente que: conoce el carácter de Dios, reconoce la corrupción a su alrededor, pero **evalúa la obra divina desde un marco humano de justicia**.
 
 ## Marco histórico general
 
-El libro se sitúa **a finales del siglo VII a.C.**, aproximadamente entre **609 y 605 a.C.**
+El libro se sitúa **a finales del siglo VII a.C.**, <u>aproximadamente</u> entre **609 y 605 a.C.**
 
-Este es un período de **transición violenta** en el Cercano Oriente:
+Este es un período de **transición <u>violenta</u>** en el Cercano Oriente:
 
-- Asiria está colapsando
+- Asiria está <u>colapsando</u>
 - Nínive cae en el año 612 a.C.
-- Babilonia emerge rápidamente como potencia dominante
-- Egipto intenta mantener influencia en Judá
-- Judá se encuentra políticamente vulnerable y espiritualmente deteriorada.
+- Babilonia emerge rápidamente como <u>potencia</u> dominante
+- Egipto intenta <u>mantener</u> influencia en Judá
+- Judá se encuentra políticamente vulnerable y <u>espiritualmente</u> deteriorada.
 
 ## Judá bajo el rey Joacim
 
-El reinado de **Joacim (609–598 a.C.)** es clave para entender Habacuc.
+El reinado de **Joacim (609–598 a.C.)** es <u>clave</u> para entender Habacuc.
 
 Características del período:
 
@@ -228,38 +226,38 @@ Características del período:
 - Desprecio por la ley de Dios
 - Represión de los profetas
 
-Otros profetas contemporáneos (como Jeremías) describen este tiempo como uno de: corrupción abierta, liderazgo explotador, falsa seguridad religiosa, Habacuc **no exagera** cuando habla de violencia.
+Otros profetas contemporáneos (como Jeremías) <u>describen</u> este tiempo como uno de: corrupción abierta, liderazgo explotador, falsa seguridad religiosa, Habacuc **no exagera** cuando habla de violencia.
 
-Su descripción de la realidad es históricamente creíble.
+Su descripción de la <u>realidad</u> es históricamente creíble.
 
 ## El problema no es la violencia — es la interpretación
 
-Este punto es crucial para todo el manual: El libro **no cuestiona si Judá es culpable**. Eso está fuera de discusión.
+Este punto es crucial para todo el manual: El libro **no cuestiona si Judá es <u>culpable</u>**. Eso está fuera de discusión.
 
-La tensión surge cuando Habacuc **interpreta** esa culpa y **evalúa la respuesta de Dios**.
+La tensión surge cuando Habacuc **<u>interpreta</u>** esa culpa y **evalúa la respuesta de Dios**.
 
 Su marco implícito es:
 
-- Dios debería actuar según **comparación moral**
-- Dios debería castigar al más malo primero
-- Dios debería explicar Su justicia antes de ejercerla
-- Ese marco no es pagano. Es **religioso**.
+- Dios <u>debería</u> actuar según **comparación moral**
+- Dios debería <u>castigar</u> al más malo primero
+- Dios debería explicar Su <u>justicia</u> antes de ejercerla
+- Ese marco no es <u>pagano</u>. Es **religioso**.
 
 ## Babilonia como instrumento histórico
 
-Cuando Dios menciona a Babilonia: no la presenta como justa, no la limpia moralmente, no la convierte en modelo. La describe tal como es: violenta, arrogante, auto-legitimada con una justicia que “procede de sí misma”.
+Cuando Dios menciona a Babilonia: no la presenta como justa, no la limpia moralmente, no la convierte en modelo. La describe tal como es: violenta, <u>arrogante</u>, auto-legitimada con una justicia que “procede de sí misma”.
 
-La sorpresa del libro no es que Babilonia sea mala. La sorpresa es que **Dios se atribuya la acción histórica** sin explicarse.
+La sorpresa del libro no es que <u>Babilonia</u> sea mala. La sorpresa es que **Dios se atribuya la acción histórica** sin explicarse.
 
 ## ¿Por qué este contexto es indispensable?
 
-Sin este marco histórico: Habacuc parece solo emocional, Dios parece arbitrario, la fe parece ciega.
+Sin este marco histórico: Habacuc parece solo <u>emocional</u>, Dios parece arbitrario, la fe parece ciega.
 
-Con este marco: la violencia es real, la crisis es concreta, la confrontación es inevitable. El lector queda preparado para leer el texto **sin domesticarlo**.
+Con este marco: la violencia es real, la crisis es concreta, la confrontación es <u>inevitable</u>. El lector queda preparado para leer el texto **sin domesticarlo**.
 
 **Puente hacia el estudio textual**
 
-###### Con el contexto establecido, el lector ahora está listo para entrar al texto y enfrentar la primera pregunta real del libro: ¿La realidad de las circunstancias pueden llevar una conclusión correcta sobre Dios?
+###### Con el contexto establecido, el lector ahora está listo para entrar al texto y enfrentar la primera pregunta real del libro: ¿La realidad de las <u>circunstancias</u> pueden llevar una conclusión correcta sobre Dios?
 
 ###### Esa pregunta gobierna Habacuc 1:1–4.
 
@@ -272,41 +270,42 @@ Con este marco: la violencia es real, la crisis es concreta, la confrontación e
 Oráculo que tuvo en visión el profeta Habacuc.
 
 #### Oráculo [La carga - RV09]
-##### El libro no comienza con una visión de esperanza ni con una promesa. Comienza con una **carga**. Nahúm 1:1; Zacarias 9:1, 12:1; Isaias 17:1; Malaquías 1:1
 
-- El término introduce: peso, presión y gravedad,  algo que debe ser llevado, no resuelto de inmediato. 
-- Desde la primera palabra, el lector es advertido: lo que sigue **no será ligero**, ni rápido, ni tranquilizador.
-- La carga no es definida todavía. Solo se declara su existencia.
+##### El libro no comienza con una visión de <u>esperanza</u> ni con una promesa. Comienza con una **carga**. Nahúm 1:1; Zacarias 9:1, 12:1; Isaías 17:1; Malaquías 1:1
+
+- El término introduce: peso, presión y <u>gravedad</u>,  algo que debe ser llevado, no resuelto de inmediato. 
+- Desde la primera palabra, el lector es advertido: lo que sigue **no será ligero**, ni <u>rápido</u>, ni tranquilizador.
+- La carga no es <u>definida</u> todavía. Solo se declara su existencia.
 
 #### que tuvo en visión
 
-##### Habacuc no dice: “lo que sintió”, “lo que pensó”, “lo que imaginó”. Dice: *que tuvo*.
+##### Habacuc no dice: “lo que sintió”, “lo que pensó”, “lo que <u>imaginó</u>”. Dice: *que tuvo*.
 
 ##### Esto establece algo importante desde el inicio: Habacuc no presenta una reacción emocional aislada, presenta una percepción de la realidad. El conflicto del libro no nace de ignorancia, sino de observación.
 
-##### Esto será clave más adelante: el problema de Habacuc no es que no vea, sino cómo interpreta lo que ve.
+##### Esto será clave más adelante: el problema de Habacuc no es que no vea, sino cómo <u>interpreta</u> lo que ve.
 
 #### el profeta
-##### El texto identifica a Habacuc por su función, no por su historia personal. No se menciona: su familia, su ciudad, su autoridad social, solo *el profeta.*
+##### El texto identifica a Habacuc por su <u>función</u>, no por su historia personal. No se menciona: su familia, su ciudad, su autoridad social, solo *el profeta.*
 
-##### Esto indica que: su carga no es privada, su diálogo con Dios no es trivial, su decir a continuación ocurre dentro de una relación legítima con Dios.  Habacuc no habla en ignorancia, habla como alguien que conoce a Dios y espera coherencia.
+##### Esto indica que: su carga no es privada, su diálogo con Dios no es trivial, su decir a continuación ocurre dentro de una relación <u>legítima</u> con Dios.  Habacuc no habla en ignorancia, habla como alguien que conoce a Dios y espera coherencia.
 
 #### Habacuc
-##### El nombre se presenta sin explicación, como si el lector ya debiera escucharlo.
+##### El nombre se presenta sin explicación, como si el <u>lector</u> ya debiera escucharlo.
 
-##### El libro no intenta: defender a Habacuc, justificar su postura, advertir que está equivocado, simplemente lo deja hablar.
+##### El libro no intenta: defender a Habacuc, <u>justificar</u> su postura, advertir que está equivocado, simplemente lo deja hablar.
 
-##### Eso es importante: el texto **no edita al profeta** para protegerlo.
+##### Eso es importante: el texto **no edita al <u>profeta</u>** para protegerlo.
 
-##### Habacuc 1:1 establece el marco de todo el libro: hay un peso, hay una visión, hay un profeta, hay una realidad observada. 
+##### Habacuc 1:1 establece el marco de todo el libro: hay un peso, hay una visión, hay un <u>profeta</u>, hay una realidad observada. 
 
-##### El conflicto **aún no ha comenzado**. Solo ha sido cargado sobre el lector.
+##### El conflicto **aún no ha <u>comenzado</u>**. Solo ha sido cargado sobre el lector.
 
-##### Este versículo hace tres cosas fundamentales: Autoriza la queja, No es un arrebato impulsivo. Ancla el libro en la realidad. Lo que sigue no es abstracto.
+##### Este versículo hace tres cosas fundamentales: Autoriza la queja, No es un <u>arrebato</u> impulsivo. Ancla el libro en la realidad. Lo que sigue no es abstracto.
 
-- Con el peso establecido, el texto ahora permite que el profeta **hable**. 
+- Con el peso establecido, el texto ahora <u>permite</u> que el profeta **hable**. 
 
-- La pregunta que abre el libro no será,  “¿Existe la injusticia?” sino, "¿Qué hace Dios con ella?". 
+- La pregunta que abre el libro no será,  “¿Existe la <u>injusticia</u>?” sino, "¿Qué hace Dios con ella?". 
 
 ## En Síntesis (Habacuc 1:1)
 
@@ -327,47 +326,47 @@ La tensión del libro queda legitimada como palabra revelada.
 ¿Hasta cuándo, oh SEÑOR, pediré ayuda, Y no escucharás? Clamo a Ti: «¡Violencia!». Sin embargo, Tú no salvas.
 
 #### ¿Hasta cuándo…
-##### La primera palabra hablada en el libro es una **pregunta de duración**. Habacuc no pregunta: *si* Dios actúa, *si* Dios es justo, *si* Dios existe.
+##### La primera palabra hablada en el libro es una **pregunta de duración**. Habacuc no pregunta: *si* Dios actúa, *si* Dios es <u>justo</u>, *si* Dios existe.
 
-##### Pregunta **¿cuánto tiempo?**. Esto presupone algo importante: Habacuc **espera** que Dios actúe. Habacuc **asume** que la situación ya ha excedido un límite aceptable. La pregunta no es neutral, es una **acusación implícita de demora**. Salmos 13:1-2; Apocalipsis 6:10
+##### Pregunta **¿cuánto tiempo?**. Esto presupone algo importante: Habacuc **espera** que Dios actúe. Habacuc **asume** que la situación ya ha <u>excedido</u> un límite aceptable. La pregunta no es neutral, es una **acusación implícita de demora**. Salmos 13:1-2; Apocalipsis 6:10
 
 #### oh SEÑOR
-##### Habacuc dirige su queja al **SEÑOR** (YHWH), no a una fuerza abstracta. Esto indica una relación de pacto, confianza previa y conocimiento del carácter de Dios de parte del profeta. 
+##### Habacuc dirige su queja al **SEÑOR** (YHWH), no a una fuerza abstracta. Esto indica una relación de pacto, confianza previa y <u>conocimiento</u> del carácter de Dios de parte del profeta. 
 
-##### La queja **no es incrédula**. Es **teológicamente informada**. Eso hará la confrontación más seria, no menos.
+##### La queja **no es incrédula**. Es **<u>teológicamente</u> informada**. Eso hará la confrontación más seria, no menos.
 
 #### pediré ayuda
-##### El verbo indica repetición, insistencia y persistencia en el tiempo. Habacuc no ha orado una vez. Ha clamado **muchas veces**.
+##### El verbo indica repetición, insistencia y <u>persistencia</u> en el tiempo. Habacuc no ha orado una vez. Ha clamado **muchas veces**.
 
-##### Esto introduce una tensión importante: el silencio de Dios **no es momentáneo**, la frustración ha sido acumulada. 
+##### Esto introduce una tensión importante: el <u>silencio</u> de Dios **no es momentáneo**, la frustración ha sido acumulada. 
 
 #### ¿...Y no escucharás?
 
-##### Aquí aparece la primera afirmación fuerte del libro. Habacuc no dice: “parece que no oyes” o “no entiendo si escuchas”. Salmos 22:1-2; Lamentaciones 3:8
+##### Aquí aparece la primera afirmación <u>fuerte</u> del libro. Habacuc no dice: “parece que no oyes” o “no entiendo si escuchas”. Salmos 22:1-2; Lamentaciones 3:8
 
 ##### Dice: *Y no escucharás*.
 
-- Desde su perspectiva el clamor incesante no ha producido respuesta de parte del Señor. Dios ha permanecido pasivo. Este es el primer punto donde la percepción de Habacuc lo lleva a una **interpretación**.
+- Desde su perspectiva el clamor <u>incesante</u> no ha producido respuesta de parte del Señor. Dios ha permanecido pasivo. Este es el primer punto donde la percepción de Habacuc lo lleva a una **interpretación**.
 
 #### Clamo a Ti: «¡Violencia!».
-##### Habacuc especifica el motivo de su clamor: violencia. No habla de: idolatría, apostasía, pecado ritual. Habla de algo **visible, social, tangible**. ¡Violencia! Salmos 94:3; Jeremias 20:6
+##### Habacuc especifica el motivo de su clamor: <u>violencia</u>. No habla de: idolatría, apostasía, pecado ritual. Habla de algo **visible, social, tangible**. ¡Violencia! Salmos 94:3; Jeremías 20:6
 
-- Esto ancla su queja en la realidad histórica: la violencia no es doctrinal, es experimentada, es pública. Hasta aquí, el texto **no cuestiona** esta observación.
+- Esto ancla su queja en la realidad histórica: la violencia no es <u>doctrinal</u>, es experimentada, es pública. Hasta aquí, el texto **no cuestiona** esta <u>observación</u>.
 
 #### Sin embargo, Tú no salvas. 
-##### El paralelismo intensifica la acusación: “no oirás”, “no salvarás”. Habacuc no solo acusa a Dios de **no escuchar**, sino de **no intervenir**. La salvación aquí es: concreta, histórica, inmediata. 
+##### El paralelismo intensifica la <u>acusación</u>: “no oirás”, “no salvarás”. Habacuc no solo acusa a Dios de **no escuchar**, sino de **no intervenir**. La salvación aquí es: concreta, histórica, inmediata. 
 
 ##### Habacuc espera **acción visible**, no consuelo interno.
 
-##### Habacuc 1:2 tiene una forma muy definida: pregunta → acusación, clamor → silencio, violencia → ausencia de salvación. 
+##### Habacuc 1:2 tiene una forma muy definida: pregunta → <u>acusación</u>, clamor → silencio, violencia → ausencia de salvación. 
 
-##### El versículo no explica, no defiende, no resuelve. Solo expone lo que Habacuc llega a percibir.
+##### El versículo no explica, no defiende, no resuelve. Solo <u>expone</u> lo que Habacuc llega a percibir.
 
-##### Tensión introducida por el versículo. Este versículo establece el problema que gobernará todo el capítulo: Si Dios es justo, ¿por qué permite que la violencia continúe sin intervención visible? 
+##### Tensión introducida por el versículo. Este versículo establece el problema que gobernará todo el capítulo: Si Dios es justo, ¿por qué <u>permite</u> que la violencia continúe sin intervención visible? 
 
-- Esa pregunta no será respondida de la manera que Habacuc espera. Pero todavía no lo sabemos.
+- Esa pregunta no será respondida de la <u>manera</u> que Habacuc espera. Pero todavía no lo sabemos.
 
-##### En 1:2, Habacuc acusa a Dios de no oír y no salvar. En 1:3, la queja se intensificará: no solo Dios no actúa, sino que Dios lo obliga a ver. Ahí la tensión aumenta.
+##### En 1:2, Habacuc acusa a Dios de no oír y no salvar. En 1:3, la queja se <u>intensificará</u>: no solo Dios no actúa, sino que Dios lo obliga a ver. Ahí la tensión aumenta.
 
 ## Habacuc 1:3 Descripción de lo que el profeta ve
 
@@ -376,48 +375,48 @@ La tensión del libro queda legitimada como palabra revelada.
 ¿Por qué me haces ver la iniquidad, Y me haces mirar la opresión? La destrucción y la violencia están delante de mí, Hay rencilla y surge la discordia. 
 
 #### ¿Por qué…
-##### Habacuc pasa de *¿Hasta cuándo?* (tiempo) a *¿Por qué?* (causa). Esto marca una escalada clara. Habacuc ya no solo cuestiona la demora del Señor, ahora le atribuye la **responsabilidad** de las circunstancias.
+##### Habacuc pasa de *¿Hasta cuándo?* (tiempo) a *¿Por qué?* (causa). Esto marca una escalada clara. Habacuc ya no solo cuestiona la <u>demora</u> del Señor, ahora le atribuye la **responsabilidad** de las circunstancias.
 
-##### Habacuc no pregunta por el origen del mal en abstracto. Él pregunta por **el papel de Dios en su experiencia del mal**.
+##### Habacuc no pregunta por el <u>origen</u> del mal en abstracto. Él pregunta por **el papel de Dios en su experiencia del mal**.
 
 #### me haces ver
-##### Este es un giro crítico. Habacuc no dice “veo iniquidad” o “hay iniquidad”. 
+##### Este es un giro crítico. Habacuc no dice “veo <u>iniquidad</u>” o “hay iniquidad”. 
 
 ##### Dice: *me haces ver.*
 
-##### Esto implica que Dios no solo permite la situación, Dios expone activamente al profeta a ella. La percepción deja de ser pasiva. Dios es presentado como **agente** de la exposición.
+##### Esto implica que Dios no solo permite la situación, Dios expone activamente al profeta a ella. La percepción deja de ser pasiva. Dios es <u>presentado</u> como **agente** de la exposición.
 
 #### me haces ver iniquidad
-##### El término *iniquidad* no apunta solo a violencia externa, sino a **distorsión moral**, **culpa** y **perversión**. Habacuc no ve simples fallas sociales. Ve algo **fundamentalmente torcido**.
+##### El término *iniquidad* no apunta solo a violencia <u>externa</u>, sino a **distorsión moral**, **culpa** y **perversión**. Habacuc no ve simples fallas sociales. Ve algo **fundamentalmente torcido**.
 
-##### Hasta aquí el texto no niega esta observación. La carga se intensifica, no se corrige. Eclesiastes 4:1, 5:8
+##### Hasta aquí el texto no niega esta observación. La carga se <u>intensifica</u>, no se corrige. Eclesiastés 4:1, 5:8
 
 #### y haces que mire la opresión
-##### El paralelismo refuerza la acusación, “*me haces ver*”.  “*haces que mire*” hace entender que no hay escape visual. Habacuc se siente **forzado a contemplar** la injusticia y es el Señor el autor de aquello.
+##### El paralelismo refuerza la acusación, “*me haces ver*”.  “*haces que mire*” hace entender que no hay escape visual. Habacuc se siente **<u>forzado</u> a contemplar** la injusticia y es el Señor el autor de aquello.
 
-##### Esto sugiere agotamiento, saturación y una carga que no se puede dejar de cargar. 
+##### Esto sugiere agotamiento, <u>saturación</u> y una carga que no se puede dejar de cargar. 
 
 #### La destrucción y la violencia están delante de mí
-##### La injusticia no es ocasional. Está *delante de mí*. Es constante, es pública, es visible.
+##### La injusticia no es ocasional. Está *delante de mí*. Es <u>constante</u>, es pública, es visible.
 
-##### Habacuc no describe una crisis futura. Describe un **presente continuo**.
+##### Habacuc no describe una crisis futura. <u>Describe</u> un **presente continuo**.
 
 #### hay contienda y se levanta pleito
-##### Aquí aparece el efecto social: conflicto constante, litigio sin resolución, relaciones desgastadas, justicia reducida a disputa Jeremias 20:6
+##### Aquí aparece el efecto social: conflicto constante, litigio sin <u>resolución</u>, relaciones desgastadas, justicia reducida a disputa Jeremías 20:6
 
-##### Esto prepara el terreno para 1:4, donde la ley y la justicia serán directamente nombradas.
+##### Esto prepara el terreno para 1:4, donde la ley y la <u>justicia</u> serán directamente nombradas.
 
-##### En Habacuc 1:3 ocurre algo decisivo: Habacuc comienza a **atribuir su experiencia del mal a Dios**.
+##### En Habacuc 1:3 ocurre algo decisivo: Habacuc <u>comienza</u> a **atribuir su experiencia del mal a Dios**.
 
-##### No acusa a Dios de causar la iniquidad, pero sí de obligarlo a verla, sostenerla en su campo visual y no intervenir mientras lo expone a ella. Este es el punto donde la queja **cruza de descripción a imputación**.
+##### No acusa a Dios de causar la iniquidad, pero sí de <u>obligarlo</u> a verla, sostenerla en su campo visual y no intervenir mientras lo expone a ella. Este es el punto donde la queja **cruza de descripción a imputación**.
 
-##### Habacuc 1:3: intensifica la queja, reduce la distancia entre Dios y la crisis, prepara la acusación sobre la ley y la justicia. 
+##### Habacuc 1:3: intensifica la queja, reduce la <u>distancia</u> entre Dios y la crisis, prepara la acusación sobre la ley y la justicia. 
 
-##### La pregunta implícita ahora es: **Si Dios es santo, ¿por qué me mantiene expuesto a una realidad que no corrige?**
+##### La pregunta implícita ahora es: **Si Dios es santo, ¿por qué me <u>mantiene</u> expuesto a una realidad que no corrige?**
 
-##### Esa pregunta **no será respondida directamente**.
+##### Esa pregunta **no será <u>respondida</u> directamente**.
 
-##### Después de acusar a Dios de: no oír (1:2), no salvar (1:2), hacerlo ver iniquidad (1:3), Habacuc ahora sacará una **conclusión estructural**: la ley no funciona y la justicia está torcida.
+##### Después de acusar a Dios de: no oír (1:2), no salvar (1:2), hacerlo ver iniquidad (1:3), Habacuc ahora sacará una **conclusión estructural**: la ley no <u>funciona</u> y la justicia está torcida.
 
 ## Habacuc 1:4  Declaración sobre la ley y la justicia
 
@@ -427,55 +426,55 @@ Por eso no se cumple la ley Y nunca prevalece la justicia. Porque el impío ased
 
 #### Por eso
 
-##### Esta expresión marca una **conclusión lógica**. Habacuc no está añadiendo información nueva. Está **interpretando** en base a lo que ya ha descrito en 1:2–3.
+##### Esta expresión marca una **conclusión lógica**. <u>Habacuc</u> no está añadiendo información nueva. Está **interpretando** en base a lo que ya ha descrito en 1:2–3.
 
-##### La frase indica, "dado lo que veo, esta es la conclusión correcta". Aquí la queja deja de ser descriptiva y se vuelve **evaluativa**.
+##### La frase indica, "dado lo que veo, esta es la <u>conclusión</u> correcta". Aquí la queja deja de ser descriptiva y se vuelve **evaluativa**.
 
 ####  no se cumple la ley
-##### Habacuc no afirma que la ley haya desaparecido. Afirma que ha sido **debilitada**, no se cumple.
+##### Habacuc no afirma que la ley haya desaparecido. <u>Afirma</u> que ha sido **debilitada**, no se cumple.
 
-##### Esto implica que la ley existe, la ley es conocida pero la ley carece de fuerza operativa. El problema no es ignorancia, sino **ineficacia**. Ezequiel 9:9
+##### Esto implica que la ley existe, la ley es <u>conocida</u> pero la ley carece de fuerza operativa. El problema no es ignorancia, sino **ineficacia**. Ezequiel 9:9
 
 #### Y nunca prevalece la justicia.
-##### La justicia es presentada como algo que debería manifestarse, debería hacerse visible y producir resultados concretos. 
+##### La justicia es presentada como algo que <u>debería</u> manifestarse, debería hacerse visible y producir resultados concretos. 
 
-##### Pero, según Habacuc, **nunca emerge**.
+##### Pero, según Habacuc, **nunca <u>emerge</u>**.
 
-##### Aquí se introduce una presuposición importante: si la justicia no es visible, entonces no está funcionando. La justicia queda definida por **resultados observables**.
+##### Aquí se introduce una presuposición importante: si la justicia no es <u>visible</u>, entonces no está funcionando. La justicia queda definida por **resultados observables**.
 
 ####  Porque el impío asedia al justo
-##### Habacuc identifica la csausa inmediata:
+##### Habacuc identifica la <u>causa</u> inmediata:
 
-- El impío rodea
-- El justo queda cercado
-- La balanza de poder está invertida
+- El impío <u>rodea</u>.
+- El justo <u>queda</u> cercado.
+- La balanza de poder está <u>invertida</u>.
 
-##### Este es un diagnóstico social. No niega que existan justos pero afirma que están estructuralmente superados. Salmos 22:12-13
+##### Este es un diagnóstico social. No niega que <u>existan</u> justos pero afirma que están estructuralmente superados. Salmos 22:12-13
 
 #### Por eso sale pervertida la justicia.
-##### La conclusión se repite y se intensifica.
+##### La conclusión se repite y se <u>intensifica</u>.
 
-##### La justicia no solo tarda y no solo se oculta sino cuando aparece, aparece **distorsionada, pervertida**. 
+##### La justicia no solo tarda y no solo se oculta sino cuando <u>aparece</u>, aparece **distorsionada, pervertida**. 
 
-##### Esto sugiere decisiones injustas, veredictos sesgados y un sistema judicial moralmente deformado. 
+##### Esto sugiere decisiones injustas, veredictos sesgados y un sistema <u>judicial</u> moralmente deformado. 
 
-##### Habacuc 1:4 completa un razonamiento cerrado: 
+##### Habacuc 1:4 completa un <u>razonamiento</u> cerrado: 
 
-- La violencia persistente
-- El silencio de Dios
-- La injusticia social estructural
+- La violencia <u>persistente</u>.
+- El <u>silencio</u> de Dios.
+- La injusticia social <u>estructural</u>.
 
-##### **Conclusión de Habacuc:** la ley es ineficaz y la justicia está torcida
+##### **Conclusión de Habacuc:** la ley es <u>ineficaz</u> y la justicia está torcida
 
-##### Este razonamiento es **coherente desde una lógica humana**. Eso lo hace peligroso. Este versículo responde implícitamente a la pregunta: *¿Cómo debería verse la justicia si Dios estuviera actuando correctamente?*
+##### Este razonamiento es **<u>coherente</u> desde una lógica humana**. Eso lo hace peligroso. Este versículo responde implícitamente a la pregunta: *¿Cómo debería verse la justicia si Dios estuviera actuando correctamente?*
 
-##### Respuesta de Habacuc es que la ley tendría fuerza, el justo no estaría cercado y la justicia produciría resultados claros. 
+##### Respuesta de Habacuc es que la ley tendría <u>fuerza</u>, el justo no estaría cercado y la justicia produciría resultados claros. 
 
-- Tal vez el problema no sea que Dios esté inactivo, sino que Habacuc está confiando en lo equivocado para producir justicia.
+- Tal vez el problema no sea que Dios esté <u>inactivo</u>, sino que Habacuc está confiando en lo equivocado para producir justicia.
 
-##### Este marco será **confrontado**, no afirmado, en 1:5. Después de declarar su conclusión, Habacuc **deja de hablar**.
+##### Este marco será **confrontado**, no afirmado, en 1:5. Después de declarar su <u>conclusión</u>, Habacuc **deja de hablar**.
 
-##### Ahora es Dios quien responde —no corrigiendo la lógica, sino **redefiniendo la realidad**.
+##### Ahora es Dios quien responde, no <u>corrigiendo</u> la lógica, sino **redefiniendo la realidad**.
 
 ## En Síntesis (Habacuc 1:2–4)
 
@@ -498,52 +497,52 @@ El problema no es ausencia de religión, sino su ineficacia.
 «¡Miren entre las naciones! ¡Observen! ¡Asómbrense, quédense atónitos! Porque haré una obra en sus días Que ustedes no la creerían si alguien se la contara.
 
 #### Mirad…¡Observen!
-##### Dios comienza Su respuesta **ordenando a mirar**.
+##### Dios comienza Su <u>respuesta</u> **ordenando a mirar**.
 
-##### Esto es significativo porque Habacuc ya ha insistido, *me haces ver iniquidad*.  Dios no corrige la vista del profeta; **corrige el campo de visión**, la manera en la cual Habacuc estaba mirando.
+##### Esto es significativo porque Habacuc ya ha <u>insistido</u>, *me haces ver iniquidad*.  Dios no corrige la vista del profeta; **corrige el campo de visión**, la manera en la cual Habacuc estaba mirando.
 
-##### La implicación es clara: el problema no es que Habacuc no vea, sino **qué tan lejos está mirando**. Hechos 13:41
+##### La implicación es clara: el <u>problema</u> no es que Habacuc no vea, sino **qué tan lejos está mirando**. Hechos 13:41
 
 #### ...entre las naciones
-##### Aquí ocurre un desplazamiento decisivo.
+##### Aquí ocurre un <u>desplazamiento</u> decisivo.
 
-##### Habacuc ha estado observando Judá, la injusticia interna y la ley dentro del pacto. 
+##### Habacuc ha estado observando Judá, la <u>injusticia</u> interna y la ley dentro del pacto. 
 
-##### Dios lo dirige fuera de ese marco a mirar a las naciones, a la historia y al escenario internacional. La justicia de Dios no será tratada **localmente primero**, sino **históricamente**. Esto ya pone en tensión la conclusión de 1:4.
+##### Dios lo dirige fuera de ese marco a mirar a las naciones, a la historia y al escenario <u>internacional</u>. La justicia de Dios no será tratada **localmente primero**, sino **históricamente**. Esto ya pone en tensión la conclusión de 1:4.
 
 ## Habacuc 1:5 Anuncio de una obra futura
 
 #### ¡Asómbrense, quédense atónitos!
-##### La repetición intensifica el efecto. Dios no dice “comprended”, “razonad” o “entended”. 
+##### La <u>repetición</u> intensifica el efecto. Dios no dice “comprended”, “razonad” o “entended”. 
 
-##### Ordena **asombro**.
+##### <u>Ordena</u> **asombro**.
 
-##### Esto prepara al profeta — y al lector — no para claridad, sino para **desconcierto**. Lo que Dios hará **no encajará** en el marco de justicia humana.
+##### Esto prepara al profeta — y al lector — no para claridad, sino para **desconcierto**. Lo que Dios hará **no encajará** en el <u>marco</u> de justicia humana.
 
 ## Habacuc 1:5 Declaración de incredulidad anticipada
 
 #### Porque haré una obra
-##### Esta es la **declaración central del libro**. El sujeto es **yo**. La acción es **haré**, pero la obra no se define. Dios no promete explicación. Promete **acción soberana**. Esta frase **no responde** a la queja de Habacuc; la **interrumpe**. Isaias 29:14; Jeremias 9:25-26
+##### Esta es la **declaración central del libro**. El sujeto es **yo**. La acción es **haré**, pero la obra no se define. Dios no promete <u>explicación</u>. Promete **acción soberana**. Esta frase **no responde** a la queja de Habacuc; la **interrumpe**. Isaías 29:14; Jeremías 9:25-26
 
-##### Habacuc a estado basando su pensamiento en base a lo que a estado viendo, esto lo llevo a unas concluciones equivocadas de Dios y cómo el actua, Habacuc incluso llegó a concluir en cómo Dios debería actuar.
+##### Habacuc a estado basando su <u>pensamiento</u> en base a lo que a estado viendo, esto lo llevo a unas conclusiones equivocadas de Dios y cómo el actúa, Habacuc incluso llegó a concluir en cómo Dios debería actuar.
 
-##### Ahora Dios estará mostrándose a Habacuc, no por medio de lo que Habacuc piensa que es lo importante, sino a través de ver lo que Dios hará, y desde ahí verá quien es Dios y cómo el actúa entonces.
+##### Ahora Dios estará mostrándose a Habacuc, no por medio de lo que Habacuc <u>piensa</u> que es lo importante, sino a través de ver lo que Dios hará, y desde ahí verá quien es Dios y cómo el actúa entonces.
 
 #### en sus días
-##### La obra no es teórica ni distante. Es contemporánea, inminente, históricamente concreta. Dios no calma la crisis descrita por Habacuc. La **intensifica**. La violencia que preocupa al profeta no desaparecerá antes de que la obra comience.
+##### La obra no es teórica ni distante. Es contemporánea, inminente, históricamente concreta. Dios no calma la crisis descrita por Habacuc. La **intensifica**. La violencia que <u>preocupa</u> al profeta no desaparecerá antes de que la obra comience.
 
-##### Dios no actuará como Habacuc piensa que el Señor debería actuar, Él obrará cómo quien es Él no en base al pensamiento de Habacuc o de las circunstancias.
+##### Dios no actuará como Habacuc piensa que el Señor debería actuar, Él <u>obrará</u> cómo quien es Él no en base al pensamiento de Habacuc o de las circunstancias.
 
 #### Que ustedes no la creerían si alguien se la contara.
-##### Esta cláusula es crucial. Dios declara de antemano: que la explicación no producirá aceptación.  La información no resolverá el conflicto. El problema no es ignorancia.  Incluso con explicación, la obra seguirá siendo **increíble** para el pensamiento humano.
+##### Esta cláusula es crucial. Dios declara de antemano: que la explicación no producirá aceptación.  La información no resolverá el conflicto. El <u>problema</u> no es ignorancia.  Incluso con explicación, la obra seguirá siendo **increíble** para el pensamiento humano.
 
-##### Habacuc 1:5 **no valida** la conclusión de 1:4 ni la refuta explícitamente. La **ignora**. No se trata del pensamiento del "justo" Habacuc o la situación de la injusticia en Israel o la opresión que experimentaba. Se trata de Dios siendo el Señor y obrando.
+##### Habacuc 1:5 **no valida** la conclusión de 1:4 ni la refuta explícitamente. La **ignora**. No se trata del pensamiento del "justo" Habacuc o la situación de la injusticia en <u>Israel</u> o la opresión que experimentaba. Se trata de Dios siendo el Señor y obrando.
 
-##### Dios no entra en el razonamiento del profeta. Establece una nueva realidad desde Su soberanía.
+##### Dios no entra en el razonamiento del profeta. Establece una nueva <u>realidad</u> desde Su soberanía.
 
-##### Este versículo rompe la lógica humana, desplaza el marco de justicia, introduce acción sin defensa y prepara al lector para el escándalo. A partir de aquí, el libro ya no trata de: ¿por qué Dios no actúa? sino, **¿qué hace Dios cuando actúa de una manera que no aceptamos?**
+##### Este versículo rompe la lógica humana, desplaza el marco de justicia, introduce acción sin defensa y prepara al lector para el escándalo. A partir de aquí, el libro ya no trata de: ¿por qué Dios no actúa? sino, **¿qué hace Dios cuando actúa de una <u>manera</u> que no aceptamos?**
 
-- Después de declarar "Yo haré una obra", Dios ahora revelará **cuál es esa obra**. Y será exactamente lo que Habacuc no considera compatible con la justicia, **su justicia**.
+- Después de declarar "Yo haré una obra", Dios ahora revelará **cuál es esa obra**. Y será <u>exactamente</u> lo que Habacuc no considera compatible con la justicia, **su justicia**.
 
 ## En Síntesis (Habacuc 1:5)
 
@@ -564,51 +563,51 @@ La respuesta no explica el mal, anuncia una acción inesperada.
 Porque voy a levantar a los caldeos, Pueblo feroz e impetuoso, Que marcha por la anchura de la tierra Para apoderarse de moradas ajenas.
 
 #### Porque
-##### Esta expresión introduce **explicación**, pero no una justificación. Dios conecta el versículo directamente con 1:5: "*Yo haré una obra*, *Porque…*"
+##### Esta expresión introduce **explicación**, pero no una <u>justificación</u>. Dios conecta el versículo directamente con 1:5: "*Yo haré una obra*, *Porque…*"
 
-##### El *porque* no significa "esto te convencerá". Sino: "esto es lo que estoy haciendo". La lógica sigue siendo **divina**, la iniciativa viene solo de Dios, no de Dios y el hombre.
+##### El *porque* no significa "esto te convencerá". Sino: "esto es lo que estoy <u>haciendo</u>". La lógica sigue siendo **divina**, la iniciativa viene solo de Dios, no de Dios y el hombre.
 
 ####  voy a levantar
 
-##### El verbo es decisivo. Dios no dice: “permito”, o “tolero” o “uso lo que ya existe”.  Dice: *voy a levantar*. 
+##### El verbo es <u>decisivo</u>. Dios no dice: “permito”, o “tolero” o “uso lo que ya existe”.  Dice: *voy a levantar*. 
 
-##### Esto atribuye a Dios: iniciativa histórica, dirección soberana, control del proceso. La obra no es reactiva. Es **intencional**. Isaias 23:13; Jeremias 5:15
+##### Esto atribuye a Dios: iniciativa histórica, dirección <u>soberana</u>, control del proceso. La obra no es reactiva. Es **intencional**. Isaías 23:13; Jeremías 5:15
 
 #### a los caldeos...
-##### Aquí aparece el elemento más ofensivo del texto. Dios no introduce una reforma interna, un avivamiento, un juez justo o una corrección gradual. 
+##### Aquí aparece el elemento más ofensivo del <u>texto</u>. Dios no introduce una reforma interna, un avivamiento, un juez justo o una corrección gradual. 
 
-##### Introduce a **los caldeos (Babilonia)**. Esto confronta directamente la conclusión de Habacuc en 1:4: "*el impío asedia al justo*". La respuesta de Dios es, en efecto: "sí — y yo estoy actuando por medio de ello". 2 Reyes 24:2; 2 Cronicas 36:17; Deutoronomio 28:52
+##### Introduce a **los caldeos (Babilonia)**. Esto confronta <u>directamente</u> la conclusión de Habacuc en 1:4: "*el impío asedia al justo*". La respuesta de Dios es, en efecto: "sí,  y yo estoy actuando por medio de ello". 2 Reyes 24:2; 2 Crónicas 36:17; Deuteronomio 28:52
 
 #### Pueblo feroz e impetuoso
 
-##### Dios **no moraliza positivamente** su instrumento (los caldeos - babilonios). Lo describe como: cruel, violento, impetuoso. Jeremias 6:22-23
+##### Dios **no moraliza positivamente** su <u>instrumento</u> (los caldeos - babilonios). Lo describe como: cruel, violento, impetuoso. Jeremías 6:22-23
 
-- Esto es crucial: Dios no redefine el mal como bien, Dios no niega la injusticia del instrumento. El medio no es justificado para los fines de Dios.
-- El Señor es tan soberano, que incluso Él utilizará una nación despiadada cómo Babilonia para mostrar Su obra, no solo a Su pueblo Israel, sino al mundo. 
-- Los caldeos pensarían en el poder que tenían, sin considerar que eso es provisto por medio del Señor de señores.
-- ¿Cómo?, ¿Por qué? Es algo que Habacuc e Israel estará preguntándose, y veremos cómo el Señor continuará mostrándose.
+- Esto es crucial: Dios no redefine el mal como bien, Dios no niega la <u>injusticia</u> del instrumento. El medio no es justificado para los fines de Dios.
+- El Señor es tan soberano, que incluso Él utilizará una nación <u>despiadada</u> cómo Babilonia para mostrar Su obra, no solo a Su pueblo Israel, sino al mundo. 
+- Los caldeos pensarían en el poder que tenían, sin <u>considerar</u> que eso es provisto por medio del Señor de señores.
+- ¿Cómo?, ¿Por qué? Es algo que Habacuc e Israel estará <u>preguntándose</u>, y veremos cómo el Señor continuará mostrándose.
 
-##### El problema no es que Habacuc se equivoque sobre Babilonia.  El problema es que **no acepta que Dios pueda actuar mediante ella**.
+##### El problema no es que Habacuc se equivoque sobre <u>Babilonia</u>.  El problema es que **no acepta que Dios pueda actuar mediante ella**.
 
 #### Que marcha por la anchura de la tierra
 
-##### La escala se amplía. Habacuc ha pensado en: Judá, la ley, la justicia local.  Dios introduce expansión, alcance global, historia internacional.  
+##### La escala se amplía. Habacuc ha pensado en: Judá, la ley, la <u>justicia</u> local.  Dios introduce expansión, alcance global, historia internacional.  
 
-##### La justicia de Dios **no está limitada** a las fronteras del pacto, esta es la manera en la que Dios obra, va conectada a Su capacidad, Omnipotente.
+##### La justicia de Dios **no está limitada** a las <u>fronteras</u> del pacto, esta es la manera en la que Dios obra, va conectada a Su capacidad, Omnipotente.
 
 #### Para apoderarse de moradas ajenas. 
 
-##### Aquí se describe el carácter injusto del instrumento. Babilonia toma lo que no le pertenece, invade, despoja. 
+##### Aquí se describe el carácter injusto del instrumento. Babilonia toma lo que no le <u>pertenece</u>, invade, despoja. 
 
-##### Dios no lo suaviza. Lo declara abiertamente. Esto elimina cualquier intento de justificar a Babilonia.
+##### Dios no lo suaviza. Lo declara abiertamente. Esto <u>elimina</u> cualquier intento de justificar a Babilonia.
 
-##### Habacuc 1:6 hace algo muy importante: **Confirma el diagnóstico de Habacuc sobre la injusticia, pero niega su conclusión sobre cómo debe actuar Dios.** La violencia es real. La injusticia es real. El instrumento es injusto.
+##### Habacuc 1:6 hace algo muy importante: **Confirma el <u>diagnóstico</u> de Habacuc sobre la injusticia, pero niega su conclusión sobre cómo debe actuar Dios.** La violencia es real. La injusticia es real. El instrumento es injusto.
 
-##### Y aun así Dios dice: “*yo levanto*." Este versículo introduce la pregunta que dominará el resto del capítulo: **¿Puede Dios ser justo mientras actúa por medio de un instrumento injusto?**
+##### Y aun así Dios dice: “*yo levanto*." Este <u>versículo</u> introduce la pregunta que dominará el resto del capítulo: **¿Puede Dios ser justo mientras actúa por medio de un instrumento injusto?**
 
-##### Habacuc responderá con una **segunda queja**, no porque no entienda los datos, sino porque **los datos ofenden su sentido de justicia**. Dentro del pensamiento humano Habacuc esta en lo correcto, pero cómo lo ve el Señor.
+##### Habacuc responderá con una **segunda queja**, no porque no entienda los datos, sino porque **los datos ofenden su sentido de justicia**. Dentro del <u>pensamiento</u> humano Habacuc esta en lo correcto, pero cómo lo ve el Señor.
 
-##### En 1:6, Dios nombra al instrumento.  En **1:7–11**, Dios lo **describe en detalle**, sin disculpa alguna. Y esa descripción hará la tensión **aún mayor**.
+##### En 1:6, Dios nombra al instrumento.  En **1:7–11**, Dios lo **describe en detalle**, sin <u>disculpa</u> alguna. Y esa descripción hará la tensión **aún mayor**.
 
 ## Habacuc 1:7 Descripción de su autoridad
 
@@ -618,37 +617,37 @@ Imponente y temible es; De él mismo proceden su justicia y su grandeza.
 
 #### Imponente y temible es;
 
-##### Dios describe a los caldeos **sin atenuantes**. No los presenta como disciplinadores justos, correctores necesarios ni instrumentos moralmente neutrales.
+##### Dios describe a los caldeos **sin atenuantes**. No los presenta como <u>disciplinadores</u> justos, correctores necesarios ni instrumentos moralmente neutrales.
 
-##### Es interesante el uso del verbo *es*. El texto no dice: “actúan de manera terrible”, sino: "*Imponente y temible es*".  Esto señala identidad, no solo conducta. Babilonia no ocasionalmente produce terror — **lo encarna**.
+##### Es interesante el uso del verbo *es*. El texto no dice: “actúan de manera terrible”, sino: "*Imponente y temible es*".  Esto señala identidad, no solo conducta. Babilonia no <u>ocasionalmente</u> produce terror —**lo encarna**.
 
-##### Lo define por lo que es: *Imponente y temible*. El énfasis no está en una acción aislada, sino en su **identidad permanente**. La amenaza no es solo una acción que realizarán, la amenaza viene de lo que son, una nación terrible y espantosa, todo lo que hagan, su andar, será acorde a eso.
+##### Lo define por lo que es: *Imponente y temible*. El énfasis no está en una acción aislada, sino en su **identidad permanente**. La amenaza no es solo una acción que <u>realizarán</u>, la amenaza viene de lo que son, una nación terrible y espantosa, todo lo que hagan, su andar, será acorde a eso.
 
 #### De él mismo proceden su justicia
 
-##### Esta frase es central para todo el libro. Dios afirma explícitamente que la justicia de Babilonia no proviene de Dios.  No se somete a una ley superior. No responde a un estándar externo.
+##### Esta frase es central para todo el libro. Dios afirma <u>explícitamente</u> que la justicia de Babilonia no proviene de Dios.  No se somete a una ley superior. No responde a un estándar externo.
 
 ##### Su justicia se origina en sí misma. Se valida a sí misma, se impone por poder.
 
-##### Esto confirma que Babilonia **no es justa**, solo es un instrumento utilizado para la obra del Señor. No debemos pensar que Dios necesita u origina la maldad. Más bien, lo que muestra es que ni siquiera la maldad del hombre (en este caso la de los caldeos) afectan quien es el Señor y Su obra, es más, Él puede usarla para Sus propósitos.
+##### Esto confirma que Babilonia **no es justa**, solo es un instrumento utilizado para la obra del Señor. No debemos pensar que Dios necesita u origina la <u>maldad</u>. Más bien, lo que muestra es que ni siquiera la maldad del hombre (en este caso la de los caldeos) afectan quien es el Señor y Su obra, es más, Él puede usarla para Sus propósitos.
 
 #### y su grandeza.
 
-##### La grandeza (autoridad, honor, legitimidad) sigue la misma lógica.  No le es otorgada. No le es conferida. No le es reconocida desde fuera. Procede de sí misma.
+##### La grandeza (autoridad, honor, legitimidad) sigue la misma <u>lógica</u>.  No le es otorgada. No le es conferida. No le es reconocida desde fuera. Procede de sí misma.
 
-##### Esto describe un sistema donde el poder humano define lo correcto, la fuerza humana se convierte en legitimidad, la victoria sustituye al derecho.
+##### Esto describe un sistema donde el poder humano define lo <u>correcto</u>, la fuerza humana se convierte en legitimidad, la victoria sustituye al derecho.
 
-- Elimina cualquier posible confusión: **Dios no está delegando Su justicia a Babilonia.** **Está actuando por medio de un poder cuya justicia es falsa, ya que no proviene de Dios.**
+- Elimina cualquier posible confusión: **Dios no está delegando Su <u>justicia</u> a Babilonia.** **Está actuando por medio de un poder cuya justicia es falsa, ya que no proviene de Dios.**
 
-##### Esto hace la obra de Dios **más ofensiva** para el pensamiento del "justo" Habacuc, no menos. En 1:4, Habacuc concluyó: “*Por eso sale pervertida la justicia*”*. En 1:7, Dios confirma implícitamente, sí, y estoy actuando dentro de sistemas donde la justicia nace torcida.
+##### Esto hace la obra de Dios **más ofensiva** para el pensamiento del "justo" Habacuc, no menos. En 1:4, Habacuc concluyó: “*Por eso sale <u>pervertida</u> la justicia*”*. En 1:7, Dios confirma implícitamente, sí, y estoy actuando dentro de sistemas donde la justicia nace torcida.
 
-##### La diferencia es crucial: Habacuc ve torcedura y concluye que es porque Dios no esta interviniendo. Pero Dios ve torcedura y afirma **acción soberana**, pero no acorde a la justicia de Habacuc.
+##### La diferencia es crucial: Habacuc ve torcedura y concluye que es porque Dios no esta <u>interviniendo</u>. Pero Dios ve torcedura y afirma **acción soberana**, pero no acorde a la justicia de Habacuc.
 
-##### Este versículo descarta toda idealización del instrumento (Babilonia). Bloquea cualquier intento de justificar a Babilonia y prepara el terreno para la segunda queja del profeta. 
+##### Este versículo descarta toda idealización del instrumento (Babilonia). Bloquea cualquier <u>intento</u> de justificar a Babilonia y prepara el terreno para la segunda queja del profeta. 
 
-##### Habacuc no podrá decir: “no sabía cuán injustos eran”. Dios mismo lo ha dicho.
+##### Habacuc no podrá decir: “no sabía cuán <u>injustos</u> eran”. Dios mismo lo ha dicho.
 
-- Después de definir el **carácter moral** de Babilonia, Dios ahora describirá su **velocidad y fuerza militar**. La amenaza que Dios levanta no solo es injusta — es **imparable**.
+- Después de definir el **carácter moral** de Babilonia, Dios ahora describirá su **velocidad y fuerza militar**. La amenaza que Dios <u>levanta</u> no solo es injusta — es **imparable**.
 
 ## Habacuc 1:8 Comparaciones sobre su rapidez
 
@@ -656,42 +655,42 @@ Imponente y temible es; De él mismo proceden su justicia y su grandeza.
 
 Sus caballos son más veloces que leopardos Y más astutos que lobos al anochecer. Al galope vienen sus jinetes, Sus jinetes vienen de lejos, Vuelan como águila que se precipita a devorar.
 
-##### Aquí vemos imágenes de velocidad y ferocidad. Dios describe a Babilonia usando **comparaciones animales**, no morales. Empieza con *leopardos* (velocidad súbita), *lobos al anochecer* (ferocidad hambrienta) y el *águila* (dominio desde lo alto, ataque inevitable). 
+##### Aquí vemos imágenes de velocidad y <u>ferocidad</u>. Dios describe a Babilonia usando **comparaciones animales**, no morales. Empieza con *leopardos* (velocidad súbita), *lobos al anochecer* (ferocidad hambrienta) y el *águila* (dominio desde lo alto, ataque inevitable). 
 
-##### Estas imágenes no apelan a ética, apelan a **eficacia violenta**. La fuerza de Babilonia no es reflexiva ni deliberada. Es **rápida, instintiva y devastadora**.
+##### Estas imágenes no apelan a ética, apelan a **eficacia violenta**. La <u>fuerza</u> de Babilonia no es reflexiva ni deliberada. Es **rápida, instintiva y devastadora**.
 
 #### Sus caballos… sus jinetes
 
-##### El énfasis se repite: caballos, jinetes, multiplicación, movimiento constante. Esto subraya su capacidad militar organizada, su superioridad táctica e imposibilidad de contención. Jerenias 5:6
+##### El énfasis se repite: caballos, jinetes, multiplicación, <u>movimiento</u> constante. Esto subraya su capacidad militar organizada, su superioridad táctica e imposibilidad de contención. Jeremías 5:6
 
-##### La amenaza no es simbólica. Es literal, **operativa y concreta**.
+##### La amenaza no es <u>simbólica</u>. Es literal, **operativa y concreta**.
 
 #### Al galope vienen sus jinetes
 
-##### El texto señala **crecimiento**, no estancamiento. Babilonia no es una fuerza momentánea. Está en **expansión activa**. Esto elimina cualquier expectativa de que el problema se resolverá solo. Jeremias 4:13
+##### El texto señala **crecimiento**, no estancamiento. Babilonia no es una fuerza <u>momentánea</u>. Está en **expansión activa**. Esto elimina cualquier expectativa de que el problema se resolverá solo. Jeremías 4:13
 
-##### La violencia no se agotará rápidamente, es una amenaza que estará en crecimiento constante.
+##### La violencia no se agotará rápidamente, es una <u>amenaza</u> que estará en crecimiento constante.
 
 #### Sus jinetes vienen de lejos
 
-##### La distancia no limita su alcance. Esto comunica proyección de poder, ausencia de fronteras seguras, inevitabilidad del contacto. Judá no está aislada por estar alejada. Está **expuesta**.
+##### La distancia no limita su alcance. Esto comunica <u>proyección</u> de poder, ausencia de fronteras seguras, inevitabilidad del contacto. Judá no está aislada por estar alejada. Está **expuesta**.
 
-##### Es importante ponernos a meditar, porqué Dios esta revelando esto a Habacuc y en ultima instancia a Israel. ¿Qué necesitan comprender?
+##### Es importante ponernos a meditar, porqué Dios esta <u>revelando</u> esto a Habacuc y en ultima instancia a Israel. ¿Qué necesitan comprender?
 
 #### Vuelan como águila que se precipita a devorar.
 
-##### La imagen final une dos ideas: rapidez y propósito destructivo. No es movimiento sin dirección. Es avance **con intención de consumir**. Deuteronomio 28:49; Lamentaciones 4:19
+##### La imagen final une dos ideas: rapidez y propósito <u>destructivo</u>. No es movimiento sin dirección. Es avance **con intención de consumir**. Deuteronomio 28:49; Lamentaciones 4:19
 
 ##### La violencia no es accidental. 
 
-- Habacuc 1:8 no añade juicio moral nuevo. Añade **escala y urgencia**. Después de decir que "son injustos" (1:7), Dios ahora añade, "y son imparables".
+- Habacuc 1:8 no añade juicio moral nuevo. Añade **escala y urgencia**. <u>Después</u> de decir que "son injustos" (1:7), Dios ahora añade, "y son imparables".
 
-- Esto intensifica el problema para Habacuc: no solo Dios usa un instrumento injusto, sino uno **que nadie puede detener**.
+- Esto intensifica el problema para Habacuc: no solo Dios usa un <u>instrumento</u> injusto, sino uno **que nadie puede detener**.
 
-  - Este versículo elimina toda esperanza de fortaleza humana para Israel y las demás naciones. Dios aclara aún más la diferencia de poder Babilónico con las demás naciones (Israel incluida).
-  - También prepara la reacción emocional y conocimiento de Dios del profeta Habacuc. Habacuc no está siendo consolado. Está siendo **desarmado**, Dios actuará, pero de una manera completamente diferente a lo que el profeta esperaría.
+  - Este versículo elimina toda esperanza de <u>fortaleza</u> humana para Israel y las demás naciones. Dios aclara aún más la diferencia de poder Babilónico con las demás naciones (Israel incluida).
+  - También prepara la reacción emocional y <u>conocimiento</u> de Dios del profeta Habacuc. Habacuc no está siendo consolado. Está siendo **desarmado**, Dios actuará, pero de una manera completamente diferente a lo que el profeta esperaría.
 
-  - En 1:8, la violencia avanza con rapidez. En **1:9**, se nos dirá **qué produce ese avance**: No solo es una conquista inevitable, también va acompañada de un **terror colectivo**.
+  - En 1:8, la violencia avanza con rapidez. En **1:9**, se nos dirá **qué produce ese avance**: No solo es una conquista <u>inevitable</u>, también va acompañada de un **terror colectivo**.
 
 ## Habacuc 1:9 Dirección de su avance
 
@@ -701,37 +700,37 @@ Vienen todos ellos para hacer violencia, Su horda de rostros avanza, Recoge caut
 
 #### Vienen todos ellos para hacer violencia
 
-##### La frase es totalizante. No dice que “algunos vendrán con violencia” o “en ciertos casos habrá violencia”. Dice "*todos ellos*". 
+##### La frase es totalizante. No dice que “algunos <u>vendrán</u> con violencia” o “en ciertos casos habrá violencia”. Dice "*todos ellos*". 
 
-##### La violencia no es ocasional. El **propósito dominante y único** del avance es la violencia. Esto confirma que Babilonia no es un instrumento correctivo de un solo momento. No operará con moderación, su actuar será completamente violento.
+##### La violencia no es ocasional. El **propósito dominante y único** del avance es la violencia. Esto confirma que Babilonia no es un instrumento <u>correctivo</u> de un solo momento. No operará con moderación, su actuar será completamente violento.
 
 #### para hacer violencia
 
-##### La violencia no es un efecto secundario. Es el **fin**. El movimiento tiene dirección clara: no viene a administrar justicia, no viene a restaurar orden, viene **para violencia**. Jeremias 15:8, 25:9
+##### La violencia no es un efecto secundario. Es el **fin**. El <u>movimiento</u> tiene dirección clara: no viene a administrar justicia, no viene a restaurar orden, viene **para violencia**. Jeremías 15:8, 25:9
 
-- Esto intensifica la confrontación: Dios no solo levanta un instrumento injusto, sino uno cuya finalidad es destructiva. Recordemos que Israel no estará excluida de esto, es parte de la violencia que vendrá por parte de los caldeos.
+- Esto intensifica la confrontación: Dios no solo levanta un instrumento injusto, sino uno cuya finalidad es destructiva. Recordemos que Israel no estará <u>excluida</u> de esto, es parte de la violencia que vendrá por parte de los caldeos.
 
 #### Su horda de rostros avanza
 
-##### Aquí la violencia se vuelve **psicológica**. No es solo lo que hacen, sino lo que **producen al aparecer**.
+##### Aquí la violencia se vuelve **psicológica**. No es solo lo que <u>hacen</u>, sino lo que **producen al aparecer**.
 
-- El terror precede a la acción. Paraliza antes del golpe - domina incluso antes del contacto. La conquista comienza **en la mirada**, no en la espada.
+- El terror precede a la acción. Paraliza antes del golpe - domina <u>incluso</u> antes del contacto. La conquista comienza **en la mirada**, no en la espada.
 
 #### avanza
 
-##### Nada los detiene. El terror no retrocede, no se repliega, no se contiene. Esto refuerza el futuro inevitable para Israel introducida en 1:8.
+##### Nada los detiene. El terror no retrocede, no se repliega, no se <u>contiene</u>. Esto refuerza el futuro inevitable para Israel introducida en 1:8.
 
 #### Recoge cautivos como arena.
 
-##### La imagen final comunica **cantidad y facilidad**: *arena* (incontable), *recoge* (sin esfuerzo). 
+##### La imagen final <u>comunica</u> **cantidad y facilidad**: *arena* (incontable), *recoge* (sin esfuerzo). 
 
-##### Los cautivos no son casos excepcionales. Son **resultado masivo y rutinario**. La vida humana queda reducida a un número.
+##### Los cautivos no son casos excepcionales. Son **resultado masivo y rutinario**. La vida <u>humana</u> queda reducida a un número.
 
-##### Habacuc 1:9 elimina cualquier lectura defensiva: La obra de Dios incluye violencia real, terror real, y sufrimiento humano masivo. El texto **no lo justifica**. Tampoco lo minimiza. Simplemente lo afirma.
+##### Habacuc 1:9 elimina cualquier lectura defensiva: La obra de Dios incluye violencia real, terror real, y sufrimiento humano masivo. El texto **no lo justifica**. <u>Tampoco</u> lo minimiza. Simplemente lo afirma.
 
-- Este versículo profundiza el escándalo moral. Hace insostenible cualquier consuelo superficial y prepara el terreno para la segunda queja del profeta. Si Habacuc tenía dificultades en 1:6–7, aquí el problema se vuelve **intolerable** para su pensamiento de justicia.
+- Este versículo profundiza el escándalo moral. Hace insostenible cualquier consuelo superficial y prepara el terreno para la segunda queja del <u>profeta</u>. Si Habacuc tenía dificultades en 1:6–7, aquí el problema se vuelve **intolerable** para su pensamiento de justicia.
 
-- En **1:10**, Dios mostrará cómo esta violencia se expresa frente a **autoridades y estructuras de poder**. Los Caldeos no solo dominan pueblos, se burlan de reyes.
+- En **1:10**, Dios mostrará cómo esta <u>violencia</u> se expresa frente a **autoridades y estructuras de poder**. Los Caldeos no solo dominan pueblos, se burlan de reyes.
 
 ## Habacuc 1:10 Actitud frente a reyes y fortalezas
 
@@ -741,41 +740,41 @@ Se burla de los reyes, Y los gobernantes le son motivo de risa; Se ríe de toda 
 
 #### Se burla de los reyes
 
-##### La violencia de Babilonia no se limita al pueblo común. Se dirige **directamente contra la autoridad**.
+##### La violencia de Babilonia no se <u>limita</u> al pueblo común. Se dirige **directamente contra la autoridad**.
 
-- Los reyes, símbolos de orden, continuidad y poder solo son derrotados, sino **ridiculizados**
+- Los reyes, símbolos de orden, <u>continuidad</u> y poder solo son derrotados, sino **ridiculizados**
 
-- Esto implica: humillación pública, colapso de legitimidad, desmantelamiento del honor político
+- Esto implica: humillación pública, colapso de legitimidad, <u>desmantelamiento</u> del honor político
 
 #### Y los gobernantes le son motivo de risa
 
-##### La burla intensifica el desprecio. No hay reconocimiento de jerarquía. No hay respeto por rango o dignidad. Las estructuras que deberían contener el mal, administrar justicia y proteger al pueblo, son tratadas como **irrelevantes**.
+##### La burla intensifica el desprecio. No hay <u>reconocimiento</u> de jerarquía. No hay respeto por rango o dignidad. Las estructuras que deberían contener el mal, administrar justicia y proteger al pueblo, son tratadas como **irrelevantes**.
 
 #### Se ríe de toda fortaleza
 
-##### Las defensas humanas quedan expuestas como insuficientes. Las murallas, los ejércitos, los sistemas de seguridad, no generan temor en Babilonia. Le provocan **risa**.
+##### Las defensas humanas quedan expuestas como <u>insuficientes</u>. Las murallas, los ejércitos, los sistemas de seguridad, no generan temor en Babilonia. Le provocan **risa**.
 
-- Esto subraya la **futilidad de la seguridad humana** cuando se enfrenta a una fuerza históricamente dominante. 
-- No importará la fortaleza de cualquier reino que se encuentre delante de los caldeos, será insignificante ante su poder.
-- Esto traería una mayor angustia al Israel ya debilitada. Ahora vendría una nación como Babilonia con un poder superior nunca antes visto, donde no solo ellos serían afectados, sino todos los reinos conocidos de ese tiempo.
+- Esto subraya la **futilidad de la seguridad humana** cuando se <u>enfrenta</u> a una fuerza históricamente dominante. 
+- No importará la fortaleza de cualquier reino que se <u>encuentre</u> delante de los caldeos, será insignificante ante su poder.
+- Esto traería una mayor <u>angustia</u> al Israel ya debilitada. Ahora vendría una nación como Babilonia con un poder superior nunca antes visto, donde no solo ellos serían afectados, sino todos los reinos conocidos de ese tiempo.
 
 #### Amontona escombros para tomarla
 
-##### La descripción es práctica, no poética. No es magia. Es técnica militar efectiva.
+##### La descripción es práctica, no poética. No es <u>magia</u>. Es técnica militar efectiva.
 
 ##### Esto comunica determinación, método e inevitabilidad. La fortaleza no cae por accidente. Cae porque Babilonia **sabe cómo tomarla**.
 
-##### Habacuc 1:10 muestra que ninguna autoridad humana es intocable. Ningún sistema es suficientemente fuerte. Ningún poder ofrece refugio seguro.
+##### Habacuc 1:10 muestra que ninguna <u>autoridad</u> humana es intocable. Ningún sistema es suficientemente fuerte. Ningún poder ofrece refugio seguro.
 
-##### La justicia humana, incluso organizada, no puede detener el avance descrito.
+##### La justicia humana, incluso organizada, no puede <u>detener</u> el avance descrito.
 
-##### Habacuc se quejó de que: *el impío asedia al justo*. Aquí Dios muestra que: el impío no solo cerca, **domina completamente**.
+##### Habacuc se quejó de que: *el impío asedia al justo*. Aquí Dios <u>muestra</u> que: el impío no solo cerca, **domina completamente**.
 
-###### Esto intensifica la tensión: si la justicia ya estaba torcida, ahora está completamente desarmada.
+###### Esto intensifica la tensión: si la justicia ya estaba <u>torcida</u>, ahora está completamente desarmada.
 
-##### Este versículo desmonta la confianza en líderes, desacraliza el poder político y elimina cualquier ilusión de control humano. El lector queda sin refugio: ni moral, ni legal, ni militar.
+##### Este versículo desmonta la confianza en líderes, <u>desacraliza</u> el poder político y elimina cualquier ilusión de control humano. El lector queda sin refugio: ni moral, ni legal, ni militar.
 
-##### Después de describir el poder absoluto del instrumento, el texto ahora mostrará **el límite moral** que Babilonia cruza.
+##### Después de describir el poder <u>absoluto</u> del instrumento, el texto ahora mostrará **el límite moral** que Babilonia cruza.
 
 ## Habacuc 1:11 Declaración final sobre su proceder
 
@@ -785,33 +784,33 @@ Entonces pasará como el viento y seguirá, Y se le tendrá por culpable, Porque
 
 #### Entonces pasará como el viento [huracán - RV09] y seguirá
 
-##### La imagen enfatiza **velocidad y fugacidad**. Un huracán se mueve rápidamente, devasta, no permanece. Esto introduce un matiz importante: el dominio de Babilonia, aunque abrumador, **no es permanente**. El poder es real, pero **temporal**.
+##### La imagen enfatiza **velocidad y fugacidad**. Un <u>huracán</u> se mueve rápidamente, devasta, no permanece. Esto introduce un matiz importante: el dominio de Babilonia, aunque abrumador, **no es permanente**. El poder es real, pero **temporal**.
 
 #### Y se le tendrá por culpable
 
-##### Aquí el texto cruza una línea. El verbo indica **culpabilidad**, no simplemente violencia. Hasta este punto se describió la crueldad. Se detalló el terror y se observó la dominación. Ahora Babilonia **incurre en infracción**.
+##### Aquí el texto cruza una línea. El verbo indica **culpabilidad**, no simplemente violencia. Hasta este punto se describió la crueldad. Se <u>detalló</u> el terror y se observó la dominación. Ahora Babilonia **incurre en infracción**.
 
-- Esto marca el momento en el que la acción se vuelve culpable, la violencia se convierte en transgresión. Describe el paso de instrumento a delincuente. 
+- Esto marca el momento en el que la <u>acción</u> se vuelve culpable, la violencia se convierte en transgresión. Describe el paso de instrumento a delincuente. 
 
-- Este versículo es crucial porque muestra que Dios *usa* Babilonia (1:6), Dios *describe* Babilonia honestamente (1:7–10), Dios ahora **nombra la culpa de Babilonia** (1:11). 
+- Este versículo es <u>crucial</u> porque muestra que Dios *usa* Babilonia (1:6), Dios *describe* Babilonia honestamente (1:7–10), Dios ahora **nombra la culpa de Babilonia** (1:11). 
 
-Esto evita un peligroso malentendido que aunque Babilonia sea usado como instrumento, nunca es moralmente neutral. Dios no pasará por alto la transgresión de Babilonia, cada obra será pagada debidamente por Él, nunca ignorará el pecado.
+Esto evita un peligroso malentendido que aunque Babilonia sea usado como instrumento, nunca es moralmente neutral. Dios no pasará por alto la <u>transgresión</u> de Babilonia, cada obra será pagada debidamente por Él, nunca ignorará el pecado.
 
 #### Porque hace de su poder su dios
 
-##### Aquí se especifica el delito. Babilonia no sólo actúa violentamente; **reinterpreta su éxito religiosamente**. Su lógica es, somos fuertes, por lo tanto nuestro dios es supremo, por lo tanto nuestro poder está justificado.
+##### Aquí se especifica el delito. Babilonia no sólo actúa <u>violentamente</u>; **reinterpreta su éxito religiosamente**. Su lógica es, somos fuertes, por lo tanto nuestro dios es supremo, por lo tanto nuestro poder está justificado.
 
-- Esto no es ignorancia. Es **arrogancia religiosa**. Esta cláusula establece un límite. Dios puede usar soberanamente a Babilonia, pero Babilonia todavía es **responsable**. La soberanía divina no equivale a aprobación moral o ignorar el pecado.
+- Esto no es ignorancia. Es **arrogancia religiosa**. Esta <u>cláusula</u> establece un límite. Dios puede usar soberanamente a Babilonia, pero Babilonia todavía es **responsable**. La soberanía divina no equivale a aprobación moral o ignorar el pecado.
 
-##### Esta distinción es esencial para todo lo que sigue, especialmente los ***cinco ayes*** del capítulo 2.
+##### Esta distinción es esencial para todo lo que sigue, <u>especialmente</u> los ***cinco ayes*** del capítulo 2.
 
-##### Habacuc 1:11 hace realidad dos cosas **al mismo tiempo**: Dios gobierna la historia y Babilonia es moralmente culpable.
+##### Habacuc 1:11 hace realidad dos cosas **al mismo tiempo**: Dios <u>gobierna</u> la historia y Babilonia es moralmente culpable.
 
-- Este verso: cierra la primera respuesta de Dios, previene la confusión moral y prepara segunda denuncia de Habacuc.  
+- Este verso: cierra la primera respuesta de Dios, <u>previene</u> la confusión moral y prepara segunda denuncia de Habacuc.  
 
-- Habacuc no puede decir, “Entonces Babilonia debe ser justa”. Pero tampoco puede decir, “Entonces Dios está inactivo”. La tensión persiste, **intencionalmente**.
+- Habacuc no puede decir, “Entonces Babilonia debe ser justa”. Pero <u>tampoco</u> puede decir, “Entonces Dios está inactivo”. La tensión persiste, **intencionalmente**.
 
-- Ahora que Dios ha terminado de hablar, Habacuc responderá nuevamente. Pero su segunda queja será **más aguda**, más teológicamente razonada y más perturbadora que la primera.
+- Ahora que Dios ha terminado de hablar, Habacuc <u>responderá</u> nuevamente. Pero su segunda queja será **más aguda**, más teológicamente razonada y más perturbadora que la primera.
 
 ## En Síntesis (Habacuc 1:6–11)
 
