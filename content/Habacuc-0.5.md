@@ -740,7 +740,7 @@ Se burla de los reyes, Y los gobernantes le son motivo de risa; Se ríe de toda 
 
 #### Se burla de los reyes
 
-##### La violencia de Babilonia no se <u>limita</u> al pueblo común. Se dirige **directamente contra la autoridad**.
+##### La violencia de Babilonia no se <u>limita</u> al pueblo común. Se dirige **directamente contra la autoridad**. 2 Reyes 24:12
 
 - Los reyes, símbolos de orden, <u>continuidad</u> y poder solo son derrotados, sino **ridiculizados**
 
@@ -748,7 +748,7 @@ Se burla de los reyes, Y los gobernantes le son motivo de risa; Se ríe de toda 
 
 #### Y los gobernantes le son motivo de risa
 
-##### La burla intensifica el desprecio. No hay <u>reconocimiento</u> de jerarquía. No hay respeto por rango o dignidad. Las estructuras que deberían contener el mal, administrar justicia y proteger al pueblo, son tratadas como **irrelevantes**.
+##### La burla intensifica el desprecio. No hay <u>reconocimiento</u> de jerarquía. No hay respeto por rango o dignidad. Las estructuras que deberían contener el mal, administrar justicia y proteger al pueblo, son tratadas como **irrelevantes**. 2 Reyes 25:6-7; 2Crónicas 36:6
 
 #### Se ríe de toda fortaleza
 
@@ -784,11 +784,11 @@ Entonces pasará como el viento y seguirá, Y se le tendrá por culpable, Porque
 
 #### Entonces pasará como el viento [huracán - RV09] y seguirá
 
-##### La imagen enfatiza **velocidad y fugacidad**. Un <u>huracán</u> se mueve rápidamente, devasta, no permanece. Esto introduce un matiz importante: el dominio de Babilonia, aunque abrumador, **no es permanente**. El poder es real, pero **temporal**.
+##### La imagen enfatiza **velocidad y fugacidad**. Un <u>huracán</u> se mueve rápidamente, devasta, no permanece. Esto introduce un matiz importante: el dominio de Babilonia, aunque abrumador, **no es permanente**. El poder es real, pero **temporal**. Jeremías4:11-12
 
 #### Y se le tendrá por culpable
 
-##### Aquí el texto cruza una línea. El verbo indica **culpabilidad**, no simplemente violencia. Hasta este punto se describió la crueldad. Se <u>detalló</u> el terror y se observó la dominación. Ahora Babilonia **incurre en infracción**.
+##### Aquí el texto cruza una línea. El verbo indica **culpabilidad**, no simplemente violencia. Hasta este punto se describió la crueldad. Se <u>detalló</u> el terror y se observó la dominación. Ahora Babilonia **incurre en infracción**. Isaías 14:4-19
 
 - Esto marca el momento en el que la <u>acción</u> se vuelve culpable, la violencia se convierte en transgresión. Describe el paso de instrumento a delincuente. 
 
@@ -798,7 +798,7 @@ Esto evita un peligroso malentendido que aunque Babilonia sea usado como instrum
 
 #### Porque hace de su poder su dios
 
-##### Aquí se especifica el delito. Babilonia no sólo actúa <u>violentamente</u>; **reinterpreta su éxito religiosamente**. Su lógica es, somos fuertes, por lo tanto nuestro dios es supremo, por lo tanto nuestro poder está justificado.
+##### Aquí se especifica el delito. Babilonia no sólo actúa <u>violentamente</u>; **reinterpreta su éxito religiosamente**. Su lógica es, somos fuertes, por lo tanto nuestro dios es supremo, por lo tanto nuestro poder está justificado. Daniel 4:30-34, 5:20
 
 - Esto no es ignorancia. Es **arrogancia religiosa**. Esta <u>cláusula</u> establece un límite. Dios puede usar soberanamente a Babilonia, pero Babilonia todavía es **responsable**. La soberanía divina no equivale a aprobación moral o ignorar el pecado.
 
@@ -834,13 +834,13 @@ El poder humano es presentado como transitorio y arrogante.
 
 #### ¿No eres Tú desde el principio…?
 
-##### Habacuc comienza con un clamor dirigido a Dios. Esto ya no es un grito de frustración (1:2), sino un **argumento basado en quién es Dios**.
+##### Habacuc comienza con un clamor dirigido a Dios. Esto ya no es un grito de frustración (1:2), sino un **argumento basado en quién es Dios**. Deuteronomio 33:27
 - Habacuc apela a la eternidad de Dios, la identidad de Dios y la relación del pacto de Dios. 
 - Esto indica un cambio: Habacuc ahora cree que el problema reside **no en la manera en la cual Dios ve las cosas**, sino en **el resultado de la acción de Dios**.
 
 #### oh SEÑOR, Dios mío, Santo mío
 
-##### La acumulación de títulos es intencionada. Habacuc invoca al **SEÑOR** (nombre del pacto), **Dios mío** (relación personal) y **Santo mío** (pureza moral).  Esto no es un halago. 
+##### La acumulación de títulos es intencionada. Habacuc invoca al **SEÑOR** (nombre del pacto), **Dios mío** (relación personal) y **Santo mío** (pureza moral).  Esto no es un halago. Isaías 43:15, 49:7
 
 ##### Lo que Habacuc esta haciendo es un **apalancamiento**, inicia su argumento en base a recordar la santidad de Dios.
 
@@ -853,15 +853,15 @@ El poder humano es presentado como transitorio y arrogante.
 
 #### Oh SEÑOR, para juicio lo has puesto
 
-##### Aquí Habacuc **acepta parte de la explicación de Dios**. Él reconoce que Babilonia es designada y que la acción tiene un propósito, y finalmente, el juicio está destinado. 
+##### Aquí Habacuc **acepta parte de la explicación de Dios**. Él reconoce que Babilonia es designada y que la acción tiene un propósito, y finalmente, el juicio está destinado. Jeremías 4:27, 5:18, 25:9-14
 
-##### Esto muestra un crecimiento en la comprensión de Dios.  Habacuc ya no niega la acción divina. Pero la aceptación es **parcial**, no completa.
+##### Esto muestra un crecimiento de la comprensión de Dios.  Habacuc ya no niega la acción divina. Pero la aceptación es **parcial**, no completa.
 
 ##### Nótese que este progreso de conocer a Dios por parte de Habacuc vino después de que el Señor habló. Podemos ver los versículos 1:5-11 como simplemente "advertencias" de juicio por parte de Dios, pero realmente era el Señor revelándose a Habacuc en base a la obra que anunció que haría.
 
 #### Tú, oh Roca, lo has establecido para corrección.
 
-##### Habacuc refuerza la idea: Dios es el iniciador, Dios es el establecedor, Dios es quien puso esto en marcha.  Llamar a Dios "Roca" enfatiza: estabilidad, confiabilidad, coherencia moral. 
+##### Habacuc refuerza la idea: Dios es el iniciador, Dios es el establecedor, Dios es quien puso esto en marcha.  Llamar a Dios "Roca" enfatiza: estabilidad, confiabilidad, coherencia moral. Deuteronomio 32:4, 30-31;  Isaías 10: 5
 
 ##### Esto intensifica la tensión: *Si Dios es una Roca, ¿Cómo puede sostenerse este método? ¿Cual es el fin de esta obra que hará?*
 
