@@ -1006,7 +1006,7 @@ A todos los saca con anzuelo el pueblo invasor, Los arrastra con su red Y los ju
 
 #### A todos los saca con anzuelo el pueblo invasor
 
-##### Habacuc retoma y desarrolla la imagen iniciada en 1:14. "*todos*" (totalidad, sin excepción), "*anzuelo*" (captura individual, deliberada).  La <u>violencia</u> no es caótica. Es **selectiva, intencional y eficaz**. Los hombres no caen por accidente. Son **pescados**.
+##### Habacuc retoma y desarrolla la imagen iniciada en 1:14. "*todos*" (totalidad, sin excepción), "*anzuelo*" (captura individual, deliberada).  La <u>violencia</u> no es caótica. Es **selectiva, intencional y eficaz**. Los hombres no caen por accidente. Son **pescados**. Jeremías 16:16
 
 #### Los arrastra con su red
 
@@ -1016,21 +1016,21 @@ La imagen se amplía. El anzuelo captura uno por uno. Pero la red captura en mas
 
 ##### La progresión continúa: captura -> recolección -> acumulación. Las <u>personas</u> dejan de ser sujetos. Se convierten en **posesión**.
 
-##### Aquí la deshumanización es total: no hay nombre, no hay rostro, no hay distinción moral.
+##### Aquí la deshumanización es total: no hay nombre, no hay rostro, no hay <u>distinción</u> moral.
 
-##### Habacuc esta profetizando todo lo que el Imperio Babilónico será y la forma en la cual actuará ante cualquiera que este en su camino.
+##### Habacuc esta <u>profetizando</u> todo lo que el Imperio Babilónico será y la forma en la cual actuará ante cualquiera que este en su camino.
 
 #### Por eso se alegra y se regocija
 
-##### Este es uno de los detalles más ofensivos del pasaje. La violencia no produce remordimiento, cansancio o límite. Produce **gozo**, "*se regocija*". 
+##### Este es uno de los detalles más ofensivos del pasaje. La violencia no produce <u>remordimiento</u>, cansancio o límite. Produce **gozo**, "*se regocija*". 
 
-##### La alegría de Babilonia: nace del dominio, se alimenta del éxito violento, se refuerza con cada captura. Esto no es solo crueldad. Es **celebración del poder** y el abuso al ser humano.
+##### La alegría de Babilonia: nace del dominio, se alimenta del éxito violento, se refuerza con cada captura. Esto no es solo <u>crueldad</u>. Es **celebración del poder** y el abuso al ser humano.
 
-- Habacuc 1:15 presenta a Babilonia como: eficaz, sistemática, y **emocionalmente satisfecha** con su violencia. Esto intensifica el problema moral: no solo destruye...¡**disfruta destruir**!.
-- Habacuc había llegado a entender que Dios ve, Dios calla y Dios usa este instrumento. 
-- Pero ahora muestra **qué produce ese uso**: deshumanización total, violencia normalizada, gozo en la opresión. 
-- El contraste con la santidad de Dios (1:13) es deliberado. Si Babilonia se alegra en esto, ¿cómo puede Dios permanecer en silencio?
-- En **1:16**, Habacuc dará el paso final: no solo describirá violencia, sino **idolatría**. La red no solo captura hombres. Se convierte en objeto de adoración.
+- Habacuc 1:15 presenta a Babilonia como: eficaz, <u>sistemática</u>, y **emocionalmente satisfecha** con su violencia. Esto intensifica el problema moral: no solo destruye...¡**disfruta destruir**!.
+- Habacuc había llegado a <u>entender</u> que Dios ve, Dios calla y Dios usa este instrumento. 
+- Pero ahora muestra **qué produce ese uso**: <u>deshumanización</u> total, violencia normalizada, gozo en la opresión. 
+- El contraste con la santidad de Dios (1:13) es deliberado. Si Babilonia se <u>alegra</u> en esto, ¿cómo puede Dios permanecer en silencio?
+- En **1:16**, Habacuc dará el paso final: no solo <u>describirá</u> violencia, sino **idolatría**. La red no solo captura hombres. Se convierte en objeto de adoración.
 
 ## Habacuc 1:16 — Idolatría del propio poder
 
@@ -1040,28 +1040,28 @@ Por eso ofrece sacrificio a su red Y quema incienso a su malla, Pues gracias a e
 
 #### Por eso ofrece sacrificio a su red 
 
-##### La conversación continua. Habacuc ahora pasa de **descripción a interpretación**. La violencia descrita por, "*se alegra y se regocija*" introduce lo que ahora dirá que produce adoración.
+##### La conversación continua. Habacuc ahora pasa de **descripción a <u>interpretación</u>**. La violencia descrita por, "*se alegra y se regocija*" introduce lo que ahora dirá que produce adoración.
 
-##### El instrumento de conquista se convierte en objeto de reverencia. Llega a ser su fuente de gratitud y foco de devoción. 
+##### El instrumento de conquista se convierte en <u>objeto</u> de reverencia. Llega a ser su fuente de gratitud y foco de devoción. Deuteronomio 8:27
 
-##### La “red” ya no es una herramienta. Ahora es objeto de culto para el que se beneficia de ella.
+##### La “red” ya no es una herramienta. <u>Ahora</u> es objeto de culto para el que se beneficia de ella.
 
 #### Y quema incienso a su malla
 
-##### El lenguaje es explícitamente **expresión religiosa**. El sacrificio y el incienso pertenecen al ámbito del culto.  Habacuc utiliza deliberadamente términos religiosos para mostrar: la violencia de Babilonia se ritualiza, el éxito se sacraliza, el poder se santifica. Esto no es ateísmo. Es **idolatría**.
+##### El lenguaje es explícitamente **expresión religiosa**. El sacrificio y el incienso pertenecen al ámbito del culto.  Habacuc utiliza deliberadamente términos religiosos para mostrar: la violencia de Babilonia se ritualiza, el éxito se sacraliza, el poder se <u>santifica</u>. Esto no es ateísmo. Es **idolatría**.
 
 #### Pues gracias a ellas su pesca es abundante
 
-##### Habacuc da la lógica detrás del culto de Babilonia. La red da éxito, la red produce abundancia, por lo tanto la red merece honor. El estándar de valor es **beneficio**. Lo que nos alimenta se convierte en lo que adoramos.
+##### Habacuc da la lógica detrás del culto de Babilonia. La red da éxito, la red produce abundancia, por lo tanto la red merece honor. El <u>estándar</u> de valor es **beneficio**. Lo que nos alimenta se convierte en lo que adoramos.
 
 #### Y suculenta su comida
 
-##### La imagen refuerza la **autocomplacencia**. La conquista no sólo sustenta la vida.  Produce exceso. La violencia conduce a: abundancia, comodidad, satisfacción. Esto explica la devoción:  el sistema funciona.
-##### Habacuc 1:16 revela la ofensa más profunda hasta el momento: Babilonia no sólo actúa violentamente. **su violencia y poder se ha hecho objeto de su adoración, es su dios**. El éxito se convierte en prueba de legitimidad. El poder se convierte en evidencia de rectitud.
-- Dios ya dijo: La justicia de Babilonia viene de sí misma (1:7). También dijo que Babilonia incurrirá en culpa (1:11). Aquí Habacuc muestra **cómo** se manifiesta esa culpa: adoración al poder, gratitud hacia la violencia, devoción a la dominación. Esto confirma la culpabilidad de Babilonia.
-- Este verso: completa la acusación moral, muestra a Babilonia como religiosamente corrupta. Intensifica la cuestión del silencio de Dios. El problema ya no es sólo la injusticia. Es **falsa adoración bajo el gobierno de Dios**.
-- Habiendo mostrado la violencia (1:15) y luego la idolatría (1:16), Habacuc ahora hace su pregunta final: *¿Cuánto tiempo puede continuar esto?* 
-- Esa pregunta cierra el capítulo en Habacuc 1:17.
+##### La imagen refuerza la **autocomplacencia**. La <u>conquista</u> no sólo sustenta la vida. Produce exceso. La violencia conduce a: abundancia, comodidad, satisfacción. Esto explica la devoción:  el sistema funciona.
+##### Habacuc 1:16 revela la ofensa más <u>profunda</u> hasta el momento: Babilonia no sólo actúa violentamente. **su violencia y poder se ha hecho objeto de su adoración, es su dios**. El éxito se convierte en prueba de legitimidad. El poder se convierte en evidencia de rectitud.
+- Dios ya dijo: La justicia de Babilonia viene de sí misma (1:7). También dijo que Babilonia incurrirá en culpa (1:11). Aquí Habacuc muestra **cómo** se <u>manifiesta</u> esa culpa: adoración al poder, gratitud hacia la violencia, devoción a la dominación. Esto confirma la culpabilidad de Babilonia.
+- Este verso: completa la acusación moral, muestra a Babilonia como religiosamente corrupta. Intensifica la cuestión del silencio de Dios. El <u>problema</u> ya no es sólo la injusticia. Es **falsa adoración bajo el gobierno de Dios**.
+- Habiendo mostrado la violencia (1:15) y luego la idolatría (1:16), Habacuc ahora hace su <u>pregunta</u> final: *¿Cuánto tiempo puede continuar esto?* 
+- Esa pregunta <u>cierra</u> el capítulo en Habacuc 1:17.
 
 ## Habacuc 1:17 — Pregunta sin respuesta inmediata
 
@@ -1069,36 +1069,36 @@ Por eso ofrece sacrificio a su red Y quema incienso a su malla, Pues gracias a e
 
 ¿Vaciará, pues, su red Y seguirá matando sin piedad a las naciones?
 
-Habacuc termina el capítulo **sin afirmación**, solo con una pregunta. No es curiosidad. Es una **protesta basada en lo que él percibe como injusticia**. 
+Habacuc termina el capítulo **sin afirmación**, solo con una pregunta. No es <u>curiosidad</u>. Es una **protesta basada en lo que él percibe como injusticia**. 
 
-La pregunta presupone que lo descrito en los versículos 15 y 16 no es momentáneo, no es excepcional sino continuo.
+La pregunta presupone que lo descrito en los versículos 15 y 16 no es <u>momentáneo</u>, no es excepcional sino continuo.
 
 #### ¿Vaciará, pues, su red…?
 
-##### La imagen de la pesca se mantiene. *Vaciar la red* implica captura repetida, un ciclo continuo y ausencia de límite al perverso actuar de Babilonia. No es una acción única. Es un **método permanente**.
+##### La imagen de la pesca se mantiene. *Vaciar la red* implica <u>captura</u> repetida, un ciclo continuo y ausencia de límite al perverso actuar de Babilonia. No es una acción única. Es un **método permanente**.
 
-##### Habacuc no pregunta *si puede* hacerlo, sino *si seguirá haciéndolo*.
+##### Habacuc no pregunta *si puede* hacerlo, sino *si <u>seguirá</u> haciéndolo*.
 
 #### Y seguirá matando sin piedad
 
-##### Aquí aparece el criterio ético explícito. El problema ya no es solo: violencia e idolatría, sino **ausencia total de misericordia**.
+##### Aquí aparece el criterio ético explícito. El <u>problema</u> ya no es solo: violencia e idolatría, sino **ausencia total de misericordia**.
 
-- Para Habacuc, esto es incompatible con el carácter de Dios (1:12–13) y la noción de justicia que él sostiene.
+- Para Habacuc, esto es <u>incompatible</u> con el carácter de Dios (1:12–13) y la noción de justicia que él sostiene.
 
 #### a las naciones
 
-##### La escala vuelve a ampliarse. No se trata de individuos, ciudades o conflictos locales, sino de **naciones enteras**. Esto elimina cualquier intento de minimizar el problema como corrección puntual.
+##### La escala vuelve a ampliarse. No se trata de <u>individuos</u>, ciudades o conflictos locales, sino de **naciones enteras**. Esto elimina cualquier intento de minimizar el problema como corrección puntual.
 
 #### ¿...Y seguirá...?
 
-##### Esta palabra cierra el capítulo con peso. El temor de Habacuc no es solo **qué está pasando**, sino **que no haya fin**. En su pensamiento, si esto continúa la historia se vuelve depredación perpetua, la justicia queda sin horizonte y la misericordia desaparece del gobierno del mundo.
-##### Habacuc 1:17, Habacuc no pide explicación. Pide **límite**. El profeta no dice: “explícame por qué haces esto”. Dice, en esencia: "¿Habrá un punto donde esto se detenga?"
+##### Esta palabra cierra el capítulo con peso. El temor de Habacuc no es solo **qué está pasando**, sino **que no haya fin**. En su pensamiento, si esto <u>continúa</u> la historia se vuelve depredación perpetua, la justicia queda sin horizonte y la misericordia desaparece del gobierno del mundo.
+##### Habacuc 1:17, Habacuc no pide explicación. Pide **límite**. El profeta no dice: “explícame, ¿por qué haces esto?”. Dice, en esencia: "¿Habrá un <u>punto</u> donde esto se detenga?"
 
-##### Esto muestra que el problema no es ignorancia, sino **una justicia comparativa sostenida en el tiempo** por parte de Habacuc. Este versículo cierra la segunda queja. Termina la acusación y deja abierta la puerta para la respuesta de Dios. 
+##### Esto muestra que el problema no es <u>ignorancia</u>, sino **una justicia comparativa sostenida en el tiempo** por parte de Habacuc. Este versículo cierra la segunda queja. Termina la acusación y deja abierta la puerta para la respuesta de Dios. 
 
-##### Habacuc ha llevado su lógica **hasta el final**. Ahora no queda más argumento humano, no queda más descripción, solo queda **esperar respuesta**.
+##### Habacuc ha llevado su lógica **hasta el final**. Ahora no queda más <u>argumento</u> humano, no queda más descripción, solo queda **esperar respuesta**.
 
-##### Después de preguntar, Habacuc **calla**. No porque esté satisfecho, sino porque ha dicho todo lo que puede decir. En **Habacuc 2:1**, el profeta cambia de postura y deja de acusar. Se coloca a esperar. Ese cambio es crucial.
+##### Después de preguntar, Habacuc **calla**. No porque esté <u>satisfecho</u>, sino porque ha dicho todo lo que puede decir. En **Habacuc 2:1**, el profeta cambia de postura y deja de acusar. Se coloca a esperar. Ese cambio es crucial.
 
 ## En Síntesis (Habacuc 1:12–17)
 
@@ -1114,7 +1114,7 @@ La queja culmina sin respuesta inmediata por parte de Dios.
 
 # HABACUC 2:1 LA POSTURA DEL PROFETA EN ESPERA
 
-## Habacuc 2:1a Decisión de colocarse en vigilancia
+## Habacuc 2:1 Decisión de colocarse en vigilancia
 
 ### Habacuc 2:1 
 
@@ -1122,39 +1122,39 @@ Estaré en mi puesto de guardia, Y sobre la fortaleza me pondré; Velaré para v
 
 #### Estaré en mi puesto de guardia
 
-##### Habacuc cambia de **hablar** a **vigilar**. Ya no acusa. Ya no describe la violencia. Ya no presenta argumentos. Adopta la postura de un **centinela**. Esto implica atención, disciplina y espera deliberada. Habacuc reconoce que el momento de hablar ha terminado.
+##### Habacuc cambia de **hablar** a **vigilar**. Ya no acusa. Ya no describe la violencia. Ya no presenta argumentos. Adopta la postura de un **centinela**. Esto implica <u>atención</u>, disciplina y espera deliberada. Habacuc reconoce que el momento de hablar ha terminado.
 
 #### Y sobre la fortaleza me pondré
 
-##### La espera no es pasiva. Habacuc no se sienta ni se retira. **Se afirma**. La imagen comunica: firmeza, disposición, seriedad ante lo que viene. La fortaleza no es refugio contra Dios, sino el lugar donde **la palabra de Dios debe enfrentarse**.
+##### La espera no es pasiva. Habacuc no se sienta ni se retira. **Se afirma**. La imagen comunica: firmeza, disposición, seriedad ante lo que viene. La <u>fortaleza</u> no es refugio contra Dios, sino el lugar donde **la palabra de Dios debe enfrentarse**.
 
 #### Velaré para ver lo que Él me dice
 
-##### Habacuc espera una respuesta real. No sabe cuándo vendrá, cómo vendrá ni qué dirá. Pero está convencido de que **Dios hablará**. La atención ya no está en formular preguntas, sino en **recibir palabra de Dios**.
+##### Habacuc espera una respuesta real. No sabe cuándo vendrá, cómo vendrá ni qué dirá. Pero está convencido de que **Dios hablará**. La atención ya no está en <u>formular</u> preguntas, sino en **recibir palabra de Dios**.
 
 #### Y qué he de responder
 
-##### Esta frase marca un giro profundo. Habacuc asume que: la respuesta de Dios exigirá *su* respuesta.  Él podría necesitar corregirse, su queja no es el último punto del diálogo. Antes Habacuc exigía respuesta de Dios.  Ahora Habacuc se prepara para **responder él**.
+##### Esta frase marca un giro profundo. Habacuc asume que: la respuesta de Dios exigirá *su* respuesta.  Él podría necesitar corregirse, su <u>queja</u> no es el último punto del diálogo. Antes Habacuc exigía respuesta de Dios.  Ahora Habacuc se prepara para **responder él**.
 
 #### cuando sea reprendido.
 
-##### La RV60 lo traduce de la siguiente manera: *y qué he de responder tocante a **mi queja***
+##### La RV60 lo traduce de la <u>siguiente</u> manera: *y qué he de responder tocante a **mi queja***
 
-##### Habacuc nombra su discurso anterior con honestidad. No lo llama revelación, oración inspirada o palabra profética.  Lo llama "*mi queja*." Esto muestra su autoconciencia, una humildad inicial y apertura a corrección
+##### Habacuc nombra su discurso anterior con honestidad. No lo llama <u>revelación</u>, oración inspirada o palabra profética.  Lo llama "*mi queja*." Esto muestra su autoconciencia, una humildad inicial y apertura a corrección
 
-##### Aun no a cambiado de pensamiento completamente respecto a la manera de pensar que estuvo expresando en los anteriores versículos, pero **su razonamiento de justicia propia esta cambiando**.
+##### Aun no a cambiado de pensamiento <u>completamente</u> respecto a la manera de pensar que estuvo expresando en los anteriores versículos, pero **su razonamiento de justicia propia esta cambiando**.
 
-##### Habacuc 2:1 es un **versículo bisagra**. Hasta aquí el profeta hablaba, Dios respondía y el profeta protestaba.  A partir de aquí el profeta calla, Dios redefine la realidad, la justicia deja de ser debatida y pasa a ser **vivida**.
+##### Habacuc 2:1 es un **versículo bisagra**. Hasta aquí el profeta hablaba, Dios respondía y el profeta protestaba.  A partir de aquí el profeta calla, Dios redefine la <u>realidad</u>, la justicia deja de ser debatida y pasa a ser **vivida**.
 
-##### Este versículo cierra definitivamente la queja.  Detiene el razonamiento humano y prepara el terreno para la visión.  La pregunta ya no será: *¿Por qué Dios hace esto?* Sino: **¿Cómo se vive mientras Dios lo hace?**
+##### Este versículo cierra definitivamente la queja. Detiene el <u>razonamiento</u> humano y prepara el terreno para la visión.  La pregunta ya no será: *¿Por qué Dios hace esto?* Sino: **¿Cómo se vive mientras Dios lo hace?**
 
-##### Con la postura correcta establecida, Dios ahora hablará. No para explicar la historia, sino para **definir la vida bajo Su gobierno**.
+##### Con la postura correcta establecida, Dios ahora hablará. No para <u>explicar</u> la historia, sino para **definir la vida bajo Su gobierno**.
 
-##### Hasta el momento Habacuc estuvo viendo a Dios y las circunstancias en base a su razonamiento humano, y en su razonamiento estaba en lo correcto, esto lo llevo a una vida de angustia, queja y negatividad. Incluso llego al punto de cuestionar a Dios y su manera de actuar. 
+##### Hasta el momento Habacuc estuvo viendo a Dios y las circunstancias en base a su razonamiento humano, y en su razonamiento estaba en lo <u>correcto</u>, esto lo llevo a una vida de angustia, queja y negatividad. Incluso llego al punto de cuestionar a Dios y su manera de actuar. 
 
-##### Pero el Señor estuvo mostrándole que Su carácter y Sus caminos son distintos a los del hombre incapaz, Él estuvo dándose a conocer a Habacuc. Ahora el profeta esta en un proceso de cambio de pensamiento, esto como resultado de Dios habérsele revelado.
+##### Pero el Señor estuvo mostrándole que Su carácter y Sus caminos son distintos a los del hombre incapaz, Él estuvo dándose a conocer a <u>Habacuc</u>. Ahora el profeta esta en un proceso de cambio de pensamiento, esto como resultado de Dios habérsele revelado.
 
-##### El cambió de pensamiento de Habacuc en base a la verdad de Dios, resultará en una vida de Habacuc conforme a la verdad de Dios, conforme a Su justicia. Acompañemos al profeta en este proceso de conocer a Dios.
+##### El cambió de pensamiento de Habacuc en base a la verdad de Dios, resultará en una vida de Habacuc conforme a la verdad de Dios, <u>conforme</u> a Su justicia. Acompañemos al profeta en este proceso de conocer a Dios.
 
 ## En Síntesis (Habacuc 2:1)
 
@@ -1176,34 +1176,34 @@ Entonces el SEÑOR me respondió: «Escribe la visión y grábala en tablas, Par
 
 #### Entonces el SEÑOR me respondió
 
-##### La respuesta llega, pero **no como Habacuc la esperaba**.
+##### La <u>respuesta</u> llega, pero **no como Habacuc la esperaba**.
 
-##### Dios no comienza evaluando la queja. No defiende Su manera de actuar. Tampoco corrige el diagnóstico. Simplemente **responde**.
+##### Dios no comienza evaluando la queja. No <u>defiende</u> Su manera de actuar. Tampoco corrige el diagnóstico. Simplemente **responde**.
 
-##### El silencio terminó, pero no en los términos del profeta.
+##### El silencio terminó, pero no en los <u>términos</u> del profeta.
 
 #### y dijo [RV60]
 
-##### La brevedad es significativa. No hay discurso largo. No hay introducción emocional. No hay explicación previa. La autoridad está en **el hecho de que Dios habla**, no en la extensión de Sus palabras.
+##### La brevedad es significativa. No hay discurso largo. No hay introducción <u>emocional</u>. No hay explicación previa. La autoridad está en **el hecho de que Dios habla**, no en la extensión de Sus palabras.
 
 #### Escribe la visión
 
-##### La primera orden no es: “entiende”, “razona”, “explica”.
+##### La primera <u>orden</u> no es: “entiende”, “razona”, “explica”.
 
-##### Es: "*escribe*." Esto indica que la visión no debe quedarse privada. La finalidad de que el profeta escribiera esta visión, es que esta no es solo para Habacuc, tiene validez objetiva y pública. La respuesta de Dios **debe permanecer**, no solo escucharse.
+##### Es: "*escribe*." Esto indica que la visión no debe quedarse privada. La <u>finalidad</u> de que el profeta escribiera esta visión, es que esta no es solo para Habacuc, tiene validez objetiva y pública. La respuesta de Dios **debe permanecer**, no solo escucharse.
 
 #### y grábala en tablas
 
-##### El mandato se refuerza. La visión debe ser visible, fija y accesible.  Las tablas sugieren: permanencia, claridad y autoridad. Esto contrasta con la queja de Habacuc, que fue verbal, momentánea y reactiva.
+##### El mandato se refuerza. La visión debe ser visible, fija y accesible. Las tablas sugieren: <u>permanencia</u>, claridad y autoridad. Esto contrasta con la queja de Habacuc, que fue verbal, momentánea y reactiva.
 
 #### Para que corra el que la lea.
 
-##### El propósito no es contemplación, sino **movimiento**. La visión está diseñada para ser entendida con claridad, impulsar acción y guiar vida en medio de crisis.  No se escribe para resolver las dudas intelectuales del hombre, sino para **sostener al que sigue avanzando**.
+##### El propósito no es contemplación, sino **movimiento**. La visión está diseñada para ser entendida con claridad, impulsar acción y guiar vida en medio de crisis. No se escribe para <u>resolver</u> las dudas intelectuales del hombre, sino para **sostener al que sigue avanzando**.
 
-##### Habacuc 2:2 establece un principio fundamental: La respuesta de Dios no explica el pasado, **orienta el futuro**. La visión no responde por qué Babilonia. Responde **cómo vivir mientras Babilonia actúa**.
-##### Este versículo cambia el tipo de respuesta divina, desplaza el foco de justicia a vida, y prepara el contenido central del libro.  La pregunta ya no es: *¿Es Dios justo?* Sino: **¿Cómo vive el justo cuando la justicia no se ve?**
+##### Habacuc 2:2 establece un principio fundamental: La respuesta de Dios no explica el pasado, **orienta el futuro**. La visión no responde, ¿por qué <u>Babilonia</u>? Responde **cómo vivir mientras Babilonia actúa**.
+##### Este versículo cambia el tipo de respuesta divina, desplaza el foco de justicia a vida, y prepara el contenido central del libro.  La pregunta ya no es: *¿Es Dios justo?* Sino: **¿Cómo vive el <u>justo</u> cuando la justicia no se ve?**
 
-##### En **Habacuc 2:3**, Dios abordará directamente el problema del **tiempo**. No negará la crisis. No acelerará la historia. Definirá **la espera**.
+##### En **Habacuc 2:3**, Dios abordará directamente el <u>problema</u> del **tiempo**. No negará la crisis. No acelerará la historia. Definirá **la espera**.
 ## Habacuc 2:3 Declaración sobre el tiempo de la visión
 
 ### Habacuc 2:3 
@@ -1212,52 +1212,52 @@ Porque es aún visión para el tiempo señalado; Se apresura hacia el fin y no d
 
 #### Porque es aún visión
 
-##### Dios comienza afirmando la **validez** de la visión. No es provisional. No es tentativa. No es condicionada por la respuesta humana. La visión **permanece verdadera**, independientemente de la experiencia inmediata.
+##### Dios comienza afirmando la **validez** de la visión. No es <u>provisional</u>. No es tentativa. No es condicionada por la respuesta humana. La visión **permanece verdadera**, independientemente de la experiencia inmediata.
 
 #### para el tiempo señalado
 
-##### Aquí aparece el tema del **tiempo**, pero no como problema, sino como gobierno. El tiempo no es: caótico, impredecible, determinado por la urgencia humana. Es un tiempo **señalado** por Dios. 
+##### Aquí aparece el tema del **tiempo**, pero no como problema, sino como gobierno. El tiempo no es: caótico, impredecible, determinado por la <u>urgencia</u> humana. Es un tiempo **señalado** por Dios. 
 
-##### Esto introduce una diferencia crucial: la justicia humana (Habacuc) exige inmediatez; la justicia de Dios opera por designación.
+##### Esto introduce una diferencia crucial: la justicia humana (Habacuc) exige inmediatez; la justicia de Dios opera por <u>designación</u>.
 
 #### Se apresura hacia el fin
 
-##### La RV09 lo traduce de la siguiente manera: *mas al fin **hablará***
+##### La RV09 lo traduce de la siguiente <u>manera</u>: *mas al fin **hablará***
 
-##### La visión tiene **voz**, pero no inmediata. No necesita ser defendida ahora. No necesita ser explicada en el momento. Hablará **al fin**.
-- Esto implica vindicación futura y confirmación histórica. La verdad no depende de su reconocimiento inmediato.
+##### La visión tiene **voz**, pero no inmediata. No necesita ser <u>defendida</u> ahora. No necesita ser explicada en el momento. Hablará **al fin**.
+- Esto implica vindicación futura y confirmación histórica. La verdad no <u>depende</u> de su reconocimiento inmediato.
 
 #### y no defraudará
 
-##### Dios anticipa la duda. La tardanza podría interpretarse como error o fracaso o inclusive engaño. Dios lo niega de antemano, la visión **no miente**. El problema no será la falsedad, sino la **paciencia requerida** hasta que la visión llegue a hablar, se cumpla.
+##### Dios anticipa la duda. La tardanza podría interpretarse como error o fracaso o inclusive engaño. Dios lo niega de antemano, la visión **no miente**. El <u>problema</u> no será la falsedad, sino la **paciencia requerida** hasta que la visión llegue a hablar, se cumpla. Hebreos 10:37-38
 
 #### Aunque tarde, espérala
 
-##### Aquí se redefine la respuesta humana. No se ordena entender, justificar, o explicar. Se ordena **esperar** a lo que Dios habla.
+##### Aquí se redefine la respuesta humana. No se ordena <u>entender</u>, justificar, o explicar. Se ordena **esperar** a lo que Dios habla.
 
-##### La espera no es pasividad. Es confianza bajo incertidumbre.
+##### La espera no es pasividad. Es <u>confianza</u> bajo incertidumbre.
 
 #### Porque ciertamente vendrá, no tardará.
 
-##### La frase parece paradójica. *aunque tarde*...*no tardará*.  La tensión no se resuelve; se **sostiene**. Desde la perspectiva humana parece tardar.  Desde la perspectiva divina llega exactamente a tiempo.
+##### La frase parece paradójica. *aunque tarde*...*no tardará*.  La tensión no se resuelve; se **sostiene**. Desde la perspectiva humana parece tardar.  Desde la perspectiva divina llega <u>exactamente</u> a tiempo.
 
-##### Esto desarma el reclamo inicial de Habacuc, "¿hasta cuándo?"
+##### Esto desarma el <u>reclamo</u> inicial de Habacuc, "¿hasta cuándo?"
 
-##### La respuesta no es un calendario, sino una **confianza en quien esta al control de los tiempos**.
+##### La respuesta no es un calendario, sino una **confianza en quien esta al <u>control</u> de los tiempos**.
 
-##### Habacuc 2:3 redefine el problema central: El conflicto no es la injusticia visible, sino **la espera bajo soberanía**. Dios no promete acelerar la historia. Promete **cumplirla**.
+##### Habacuc 2:3 redefine el problema central: El conflicto no es la injusticia visible, sino **la espera bajo soberanía**. Dios no promete <u>acelerar</u> la historia. Promete **cumplirla**.
 
-##### Este versículo responde indirectamente a la impaciencia del profeta y luego establece el marco temporal del resto del libro. 
+##### Este versículo responde indirectamente a la <u>impaciencia</u> del profeta y luego establece el marco temporal del resto del libro. 
 
 ##### Dios establece **cuándo** se verá Su obra.
 
-- *grábala en tablas*, lo que Dios dice queda registrado.
-- *es aún visión para el tiempo señalado*, lo que Dios dijo se cumplirá en un momento establecido por Él.
-- *se apresura*, lo Dios dijo se cumplirá pronto.
-- *no defraudará*, lo que Dios dijo no defraudará.
-- *ciertamente vendrá, no tardará*, lo que Dios dijo no se ve ahora pero se cumplirá.
+- *grábala en tablas*, lo que Dios dice queda <u>registrado</u>.
+- *es aún visión para el tiempo señalado*, lo que Dios dijo se <u>cumplirá</u> en un momento establecido por Él.
+- *se apresura*, lo Dios dijo se cumplirá <u>pronto</u>.
+- *no defraudará*, lo que Dios dijo no <u>defraudará</u>.
+- *ciertamente vendrá, no tardará*, lo que Dios dijo no se ve <u>ahora</u> pero se cumplirá.
 
-##### En **Habacuc 2:4**, Dios hará la distinción decisiva: una forma de vivir que no espera correctamente y una forma de vivir que **vive por fe**. Ese contraste define todo lo que sigue.
+##### En **Habacuc 2:4**, Dios hará la distinción decisiva: una forma de <u>vivir</u> que no espera correctamente y una forma de vivir que **vive por fe**. Ese contraste define todo lo que sigue.
 
 ## Habacuc 2:4 — Contraste entre dos descripciones
 
@@ -1267,64 +1267,64 @@ He aquí que aquel cuya alma no es recta, se enorgullece; mas el justo por su fe
 
 #### He aquí
 
-##### Esta expresión señala **contraste deliberado**. Dios no continúa la explicación del tiempo (2:3). Introduce una **distinción de tipos humanos**.
-##### El problema ya no es Babilonia versus Judá o el calendario de la historia. El problema ahora es **cómo** se vive dentro de esa historia.
+##### Esta expresión señala **contraste deliberado**. Dios no <u>continúa</u> la explicación del tiempo (2:3). Introduce una **distinción de tipos humanos**.
+##### El problema ya no es Babilonia versus Judá o el <u>calendario</u> de la historia. El problema ahora es **cómo** se vive dentro de esa historia.
 
 #### aquel cuya alma no es recta
 
-##### Dios comienza con una **condición interior**, no con acciones externas. La falta no es principalmente violencia, idolatría u opresión. Es la **desalineación interna**.
+##### Dios comienza con una **condición interior**, no con <u>acciones</u> externas. La falta no es principalmente violencia, idolatría u opresión. Es la **desalineación interna**.
 
-##### El “alma” no es recta no está ajustada a la realidad de Dios. No acepta límites, no se somete al tiempo señalado. Esto conecta directamente con la postura de Babilonia, pero también **con la tentación de Habacuc** y el pensamiento humano en general.
+##### El “alma” no es recta no está ajustada a la realidad de Dios. No acepta límites, no se somete al tiempo señalado. Esto conecta <u>directamente</u> con la postura de Babilonia, pero también **con la tentación de Habacuc** y el pensamiento humano en general.
 
 #### se enorgullece
 
-##### El resultado de esa desalineación es el **orgullo**. El orgullo aquí no es emoción; es **postura vital**. Implica autoafirmación, autosuficiencia, rechazo de dependencia, intolerancia a la espera. 
+##### El resultado de esa desalineación es el **orgullo**. El <u>orgullo</u> aquí no es emoción; es **postura vital**. Implica autoafirmación, autosuficiencia, rechazo de dependencia, intolerancia a la espera. 
 
-##### El orgulloso **no puede esperar**. Esto explica la violencia de Babilonia, la idolatría de la red y la justicia que procede de sí misma (1:7). 
+##### El orgulloso **no puede esperar**. Esto explica la violencia de <u>Babilonia</u>, la idolatría de la red y la justicia que procede de sí misma (1:7). 
 
 #### mas
 
-##### Esta pequeña palabra sostiene todo el libro. Introduce un **contraste absoluto**, no gradual. No hay un punto intermedio. Solo hay dos formas de vivir.
+##### Esta pequeña palabra sostiene todo el libro. <u>Introduce</u> un **contraste absoluto**, no gradual. No hay un punto intermedio. Solo hay dos formas de vivir.
 
 #### el justo
 
-##### El justo no es definido aquí por poder, éxito, victoria, o control histórico. El texto no explica cómo alguien llega a ser justo. Asume la categoría de “el justo” delante de Dios y luego describe cómo esa persona vive la crisis actual.
+##### El justo no es definido aquí por poder, éxito, victoria, o control <u>histórico</u>. El texto no explica cómo alguien llega a ser justo. Asume la categoría de “el justo” delante de Dios y luego describe cómo esa persona vive la crisis actual.
 
-##### Así que, gramatical y conceptualmente, el versículo responde primero a esta pregunta, ¿Cómo vive la persona justa? No, ¿Cómo se vuelve alguien justo?
+##### Así que, gramatical y conceptualmente, el <u>versículo</u> responde primero a esta pregunta, ¿Cómo vive la persona justa? No, ¿Cómo se vuelve alguien justo?
 
-##### En otras palabras responde la pregunta, ¿Cómo puede alguien permanecer alineado con Dios cuando la ley es ineficaz, la injusticia prevalece y las acciones de Dios son confusas?
+##### En otras palabras responde la pregunta, ¿Cómo puede alguien permanecer alineado con Dios cuando la ley es ineficaz, la injusticia prevalece y las <u>acciones</u> de Dios son confusas?
 
 #### por su fe
 
-##### La fe no es una comprensión del plan, aceptación intelectual o seguridad emocional.
+##### La fe no es una <u>comprensión</u> del plan, aceptación intelectual o seguridad emocional.
 
-##### La fe es **dependencia continua** bajo espera. Es vivir sin ver justicia inmediata, sin controlar el resultado, sin redefinir el bien según conveniencia.
+##### La fe es **dependencia continua** bajo espera. Es vivir sin ver <u>justicia</u> inmediata, sin controlar el resultado, sin redefinir el bien según conveniencia.
 
-##### La fe acepta el **tiempo señalado** de Dios.
+##### La fe <u>acepta</u> el **tiempo señalado** de Dios.
 
 #### vivirá
 
-##### La promesa no es solución a las quejas de Habacuc. La promesa es **vida**.
+##### La promesa no es solución a las <u>quejas</u> de Habacuc. La promesa es **vida**.
 
-##### No se promete: alivio inmediato, corrección rápida, fin del instrumento injusto.
+##### No se promete: alivio <u>inmediato</u>, corrección rápida, fin del instrumento injusto.
 
-##### Se promete que el justo **vivirá**: mientras espera, mientras el impío avanza, mientras la historia incomoda.
+##### Se promete que el justo **vivirá**: mientras espera, <u>mientras</u> el impío avanza, mientras la historia incomoda.
 
-##### La vida no depende de la justicia visible, sino de la **confianza sostenida** en Dios.
+##### La vida no depende de la <u>justicia</u> visible, sino de la **confianza sostenida** en Dios.
 
-##### Habacuc 2:4 **no responde a la pregunta “por qué". Responde a una pregunta distinta: **¿Cómo se vive cuando la justicia de Dios no coincide con la justicia humana?
+##### Habacuc 2:4 **no responde a la pregunta “**¿por qué?**". Responde a una pregunta distinta: **¿Cómo se vive cuando la justicia de Dios no <u>coincide</u> con la justicia humana?
 
-- Respuesta: no con orgullo, no con autojustificación, no con control, sino **por fe**.
+- Respuesta: no con orgullo, no con <u>autojustificación</u>, no con control, sino **por fe**.
 
 ##### Este versículo es citado varias veces en el Nuevo Testamento:
 
-- Romanos 1:17 dice, "*Mas el justo por la fe vivirá*."  Pablo cita a Habacuc al comienzo de Romanos para responder a una pregunta diferente: Si la ley expone el pecado, pero no puede producir justicia, ¿de dónde proviene la justicia?
-- Gálatas 3:11 cita también, "*El justo por la fe vivirá*" para decir que la ley no es el medio para vivir. La ley no da vida, la fe si. 
-- Hebreos 10:38 "*Mas el justo vivirá por la fe; y si retrocede, mi alma no se complacerá en él.*" Esta cita enfatiza la perseverancia. Este es el que más se asemeja al sentir de Habacuc. 
+- Romanos 1:17 dice, "*Mas el justo por la fe vivirá*."  Pablo cita a Habacuc al <u>comienzo</u> de Romanos para responder a una pregunta diferente: Si la ley expone el pecado, pero no puede producir justicia, ¿de dónde proviene la justicia?
+- Gálatas 3:11 cita también, "*El justo por la fe vivirá*" para decir que la ley no es el <u>medio</u> para vivir. La ley no da vida, la fe si. 
+- Hebreos 10:38 "*Mas el justo vivirá por la fe; y si retrocede, mi alma no se complacerá en él.*" Esta cita enfatiza la <u>perseverancia</u>. Este es el que más se asemeja al sentir de Habacuc. 
 
-##### Este versículo: redefine justicia, redefine vida, redefine fidelidad, gobierna todo el capítulo 2, explica el descanso del capítulo 3. No es una frase aislada. Es el **eje** del libro.
+##### Este versículo: redefine justicia, redefine vida, redefine <u>fidelidad</u>, gobierna todo el capítulo 2, explica el descanso del capítulo 3. No es una frase aislada. Es el **eje** del libro.
 
-- En **2:5**, Dios volverá al orgulloso y mostrará cómo esa postura **inevitablemente colapsa**. La fe vive.  El orgullo se expande… y cae.
+- En **2:5**, Dios volverá al orgulloso y <u>mostrará</u> cómo esa postura **inevitablemente colapsa**. La fe vive.  El orgullo se expande… y cae.
 
 ## Habacuc 2:5 — Descripción adicional del hombre descrito
 
