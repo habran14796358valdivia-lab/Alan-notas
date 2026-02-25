@@ -2460,41 +2460,41 @@ Traspasaste con sus propios dardos La cabeza de sus guerreros Que irrumpieron pa
 
 #### Traspasaste con sus propios dardos
 
-##### El juicio adopta una forma **irónica y reveladora**. Dios no introduce un arma externa. Utiliza **las mismas armas del impío**.
+##### El juicio adopta una forma **irónica y reveladora**. Dios no <u>introduce</u> un arma externa. Utiliza **las mismas armas del impío**.
 
-##### Esto indica: Reversión del mal, autodestrucción del sistema injusto, justicia que vuelve sobre sí misma. El mal cae **por lo que produce**.
+##### Esto indica: Reversión del mal, <u>autodestrucción</u> del sistema injusto, justicia que vuelve sobre sí misma. El mal cae **por lo que produce**.
 
 #### La cabeza de sus guerreros
 
-##### El blanco del juicio es estratégico. La “cabeza” representan: Liderazgo, dirección, mando militar. Dios no ataca solo a soldados anónimos; desmantela **la estructura de poder**.
+##### El blanco del juicio es estratégico. La “cabeza” representan: <u>Liderazgo</u>, dirección, mando militar. Dios no ataca solo a soldados anónimos; desmantela **la estructura de poder**.
 
-##### La derrota es organizada, definitiva, irreparable.
+##### La derrota es organizada, <u>definitiva</u>, irreparable.
 
 #### Que irrumpieron
 
-##### La imagen describe la percepción humana del enemigo.
+##### La imagen describe la <u>percepción</u> humana del enemigo.
 
-##### "Irrumpir" indica: Avance rápido, imparable, genera terror.
+##### "Irrumpir" indica: Avance rápido, <u>imparable</u>, genera terror.
 
-##### Habacuc había visto así a Babilonia: Violenta, dominante, arrolladora. 
+##### Habacuc había visto así a <u>Babilonia</u>: Violenta, dominante, arrolladora. 
 
-##### Pero ahora se revela: Lo que parecía imparable sería **vulnerable ante Dios**.
+##### Pero ahora se revela: Lo que parecía <u>imparable</u> sería **vulnerable ante Dios**.
 
 #### para dispersarnos
 
-##### Aquí Habacuc vuelve a aparecer personalmente. No es análisis distante. Es **experiencia vivida**.
+##### Aquí Habacuc vuelve a aparecer <u>personalmente</u>. No es análisis distante. Es **experiencia vivida**.
 
-##### El ataque no sería abstracto: Sería contra el profeta, contra el pueblo, contra los indefensos. Dios no ignora el impacto personal del mal.
+##### El ataque no sería abstracto: Sería <u>contra</u> el profeta, contra el pueblo, contra los indefensos. Dios no ignora el impacto personal del mal.
 
 #### Su regocijo fue como el de los que devoran en secreto a los oprimidos
 
-##### Este detalle es crucial. El enemigo: No solo oprimiría, **se regocijaría** en hacerlo. El mal no es solo acción; es **deleite perverso**. No solo se trata de lo que hace, sino por medio de que lo hace.
+##### Este detalle es crucial. El enemigo: No solo <u>oprimiría</u>, **se regocijaría** en hacerlo. El mal no es solo acción; es **deleite perverso**. No solo se trata de lo que hace, sino por medio de que lo hace.
 
-##### “En secreto” indica: Hipocresía, impunidad aparente, ausencia de rendición de cuentas. Dios ve lo que se celebra en oculto.
+##### “En secreto” indica: Hipocresía, <u>impunidad</u> aparente, ausencia de rendición de cuentas. Dios ve lo que se celebra en oculto.
 
-- Habacuc 3:14 establece este principio: La injusticia contiene en sí misma las semillas de su propia destrucción cuando Dios interviene. El juicio no siempre introduce algo nuevo;  a veces **retira lo que detenía la autodestrucción**.
-- Habacuc se quejaba de: Violencia contra el justo, opresión del pobre, mal celebrándose sin freno. Aquí se ve que Dios no solo ve la injusticia, sino también **el origen y el placer que se toma en ella**. Nada queda oculto delante de Él.
-- Este versículo: Muestra la derrota del enemigo desde dentro, conecta la violencia pasada con su consecuencia, prepara el cierre del juicio y la afirmación final de dominio (3:15). La tempestad se vuelve contra sí misma.
+- Habacuc 3:14 establece este principio: La injusticia contiene en sí misma las semillas de su propia destrucción cuando Dios interviene. El <u>juicio</u> no siempre introduce algo nuevo;  a veces **retira lo que detenía la autodestrucción**.
+- Habacuc se quejaba de: Violencia contra el <u>justo</u>, opresión del pobre, mal celebrándose sin freno. Aquí se ve que Dios no solo ve la injusticia, sino también **el origen y el placer que se toma en ella**. Nada queda oculto delante de Él.
+- Este versículo: Muestra la derrota del enemigo desde dentro, conecta la violencia pasada con su consecuencia, prepara el cierre del juicio y la <u>afirmación</u> final de dominio (3:15). La tempestad se vuelve contra sí misma.
 
 ### Habacuc 3:15
 
@@ -2502,48 +2502,48 @@ Marchaste por el mar con Tus caballos, En el oleaje de las inmensas aguas.
 
 #### Marchaste por el mar
 
-##### La acción es presentada con **calma soberana**. No dice: Luchaste, forzaste, irrumpiste. Dice: ***marchaste***.
+##### La acción es presentada con **calma <u>soberana</u>**. No dice: Luchaste, forzaste, irrumpiste. Dice: ***marchaste***.
 
-##### Esto comunica: Dominio sin esfuerzo, autoridad tranquila, control absoluto.
+##### Esto comunica: Dominio sin <u>esfuerzo</u>, autoridad tranquila, control absoluto.
 
-##### El mar, símbolo tradicional de caos, no ofrece resistencia. Dios no corre; **avanza con certeza**.
+##### El mar, símbolo tradicional de caos, no ofrece resistencia. Dios no corre; **<u>avanza</u> con certeza**.
 
-##### Generalmente en la Biblia el mar representa: Amenaza, desorden, lo incontrolable para el hombre. Que Dios camine sobre él indica: Sometimiento total, ausencia de peligro, victoria completa. El caos no es rival. Es **escenario sometido** por Dios.
+##### Generalmente en la Biblia el mar representa: Amenaza, desorden, lo incontrolable para el hombre. Que Dios camine sobre él indica: <u>Sometimiento</u> total, ausencia de peligro, victoria completa. El caos no es rival. Es **escenario sometido** por Dios.
 
 #### con Tus caballos
 
-##### La imagen guerrera permanece, pero ahora sin conflicto visible. 
+##### La imagen guerrera <u>permanece</u>, pero ahora sin conflicto visible. 
 
-##### Los caballos: Siguen presentes, acompañan el avance, no combaten. 
+##### Los caballos: Siguen presentes, <u>acompañan</u> el avance, no combaten. 
 
 ##### Esto sugiere que: La victoria ya fue asegurada, el poder no necesita demostrarse más, el dominio es incuestionable.
 
 #### En el oleaje de las inmensas aguas
 
-##### La frase intensifica el escenario. No son aguas tranquilas. Son **grandes aguas**, amontonadas.
+##### La frase intensifica el escenario. No son aguas <u>tranquilas</u>. Son **grandes aguas**, amontonadas.
 
-##### Aun así no detienen, no desvían, no amenazan. La magnitud del obstáculo no altera el paso de Dios.
+##### Aun así no detienen, no desvían, no amenazan. La <u>magnitud</u> del obstáculo no altera el paso de Dios.
 
 ##### Habacuc 3:15 establece este principio: El caos que aterra al hombre es camino firme bajo los pies de Dios. Lo que para el hombre es obstáculo, para Dios es **ruta**.
 ##### La secuencia se completa así:
 
-- 3:3–4 → Manifestación de gloria
-- 3:5–6 → Juicio en avance
-- 3:7–11 → Reacción universal
-- 3:12–14 → Derrota del enemigo
-- 3:15 → Dominio tranquilo y final de Dios
+- 3:3–4 → Manifestación de <u>gloria</u>
+- 3:5–6 → Juicio en <u>avance</u>
+- 3:7–11 → <u>Reacción</u> universal
+- 3:12–14 → <u>Derrota</u> del enemigo
+- 3:15 → Dominio <u>tranquilo</u> y final de Dios
 
-##### No queda tensión. No queda resistencia. No queda amenaza. Habacuc comenzó viendo: Caos moral, violencia sin freno, injusticia dominante.
+##### No queda tensión. No queda resistencia. No queda <u>amenaza</u>. Habacuc comenzó viendo: Caos moral, violencia sin freno, injusticia dominante.
 
-##### Aquí ve que el caos no gobierna la historia; **Dios camina y gobierna sobre él**.
+##### Aquí ve que el caos no gobierna la historia; **Dios <u>camina</u> y gobierna sobre él**.
 
-##### La fe ya no discute el desorden; descansa en el **control total** de Dios.
+##### La fe ya no discute el <u>desorden</u>; descansa en el **control total** de Dios.
 
-##### Este versículo: Concluye la manifestación de Dios, sella Su victoria, prepara el cambio de voz del profeta (3:16). Después de ver esto, Habacuc **no podrá hablar igual**.
+##### Este versículo: Concluye la manifestación de Dios, sella Su <u>victoria</u>, prepara el cambio de voz del profeta (3:16). Después de ver esto, Habacuc **no podrá hablar igual**.
 
-##### En **3:16**, Habacuc vuelve a sí mismo: Su cuerpo, su temor, su espera. 
+##### En **3:16**, Habacuc vuelve a sí <u>mismo</u>: Su cuerpo, su temor, su espera. 
 
-##### La visión (revelación de Dios) cambia la perspectiva del profeta, por lo tanto también cambia donde estaba su fe, esto se verá en la manera que se expresará en los siguientes versículos.
+##### La visión (revelación de Dios) cambia la perspectiva del profeta, por lo tanto también cambia donde estaba su fe, esto se verá en la <u>manera</u> que se expresará en los siguientes versículos.
 
 ## Habacuc 3:16 La respuesta del profeta ante el Señor
 
@@ -2553,53 +2553,53 @@ Oí, y se estremecieron mis entrañas; A Tu voz temblaron mis labios. Entra podr
 
 #### Oí
 
-##### Habacuc vuelve al punto inicial de su transformación. Antes dijo: “*he oído tu palabra, y temí*” (3:2). Aquí, oír ya no produce solo temor reverente,  produce **impacto corporal total**. La revelación  de Dios no fue abstracta. Fue **experimentada**.
+##### Habacuc vuelve al punto inicial de su transformación. Antes dijo: “*he oído tu palabra, y temí*” (3:2). Aquí, oír ya no produce solo temor <u>reverente</u>,  produce **impacto corporal total**. La revelación  de Dios no fue abstracta. Fue **experimentada**.
 
 #### y se estremecieron mis entrañas
 
-Las entrañas representan: centro emocional, profundidad interna, reacción involuntaria. Habacuc no controla esta respuesta. No la razona. No la filtra. La presencia de Dios **afecta lo más profundo** del ser humano.
+Las entrañas representan: centro emocional, <u>profundidad</u> interna, reacción involuntaria. Habacuc no controla esta respuesta. No la razona. No la filtra. La presencia de Dios **afecta lo más profundo** del ser humano.
 
 #### A Tu voz temblaron mis labios
 
-##### La voz de Dios provoca pérdida de firmeza, incapacidad de responder inmediatamente, silencio forzado. Los labios que antes hablaban en protesta (cap. 1) ahora **tiemblan** delante del que ahora habla. No por miedo servil, sino por **conciencia de grandeza**, un temor que proviene de la fe.
+##### La voz de Dios provoca pérdida de <u>firmeza</u>, incapacidad de responder inmediatamente, silencio forzado. Los labios que antes hablaban en protesta (cap. 1) ahora **tiemblan** delante del que ahora habla. No por miedo servil, sino por **conciencia de grandeza**, un temor que proviene de la fe.
 
 #### Entra podredumbre en mis huesos
 
-##### Esta es una de las descripciones más fuertes del libro.
+##### Esta es una de las descripciones más <u>fuertes</u> del libro.
 
-##### Los huesos representan: Estructura, fuerza, estabilidad personal.
+##### Los huesos representan: <u>Estructura</u>, fuerza, estabilidad personal.
 
-##### Que la pudrición entre en ellos indica: Colapso de autosuficiencia, agotamiento total, reconocimiento de fragilidad. Habacuc no queda fortalecido externamente; queda **quebrantado internamente**.
+##### Que la pudrición entre en ellos indica: Colapso de autosuficiencia, agotamiento total, reconocimiento de <u>fragilidad</u>. Habacuc no queda fortalecido externamente; queda **quebrantado internamente**.
 
 #### Y tiemblo donde estoy
 
-##### La reacción no es superficial. No es momentánea. Todo el ser del profeta: Físico, emocional, interno, responde a la revelación de Dios. Esto desmonta cualquier idea de fe triunfalista. La fe verdadera **no anestesia el impacto** experiencial de conocer a Dios.
+##### La reacción no es superficial. No es momentánea. Todo el ser del profeta: Físico, emocional, interno, responde a la revelación de Dios. Esto desmonta cualquier idea de fe <u>triunfalista</u>. La fe verdadera **no anestesia el impacto** experiencial de conocer a Dios.
 
 #### Tranquilo espero
 
-##### Aquí ocurre el giro decisivo. A pesar de: Temblor, debilidad, angustia corporal, Habacuc declara una **posición que proviene de la fe**: Tranquilo espera.
+##### Aquí ocurre el giro <u>decisivo</u>. A pesar de: Temblor, debilidad, angustia corporal, Habacuc declara una **posición que proviene de la fe**: Tranquilo espera.
 
-##### No porque no haya peligro, sino porque **Dios se ha revelado**. La quietud no es negación del miedo o las circunstancias, es **descanso** en la Roca firme, El Señor de los ejércitos.
+##### No porque no haya peligro, sino porque **Dios se ha revelado**. La quietud no es <u>negación</u> del miedo o las circunstancias, es **descanso** en la Roca firme, El Señor de los ejércitos.
 
 #### el día de la angustia
 
-##### Habacuc no espiritualiza la realidad. El día de la angustia: Sigue siendo real, sigue siendo futuro, sigue siendo inevitable. La fe no elimina el día malo; **cambia cómo se lo espera**. Tranquilo, porque sabe quien esta bajo el control y designio de todo ello.
+##### Habacuc no espiritualiza la realidad. El día de la angustia: Sigue siendo real, sigue siendo futuro, sigue siendo inevitable. La fe no elimina el día malo; **cambia cómo se lo espera**. Tranquilo, porque sabe quien esta bajo el control y <u>designio</u> de todo ello.
 
 #### Al pueblo que se levantará para invadirnos.
 
-##### El enemigo no desaparece.  La invasión no es cancelada por Dios.
+##### El enemigo no <u>desaparece</u>.  La invasión no es cancelada por Dios.
 
-##### Esto es crucial: Habacuc acepta que el juicio anunciado **aún vendrá**. La fe no reescribe la historia; la **atraviesa con confianza**.
-##### Habacuc 3:16 establece este principio fundamental: La fe bíblica no es ausencia de temor, sino quietud confiada en medio de él. 
+##### Esto es crucial: Habacuc acepta que el juicio <u>anunciado</u> **aún vendrá**. La fe no reescribe la historia; la **atraviesa con confianza**.
+##### Habacuc 3:16 establece este principio fundamental: La fe <u>bíblica</u> no es ausencia de temor, sino quietud confiada en medio de él. 
 
-##### Habacuc no niega su reacción humana. La integra bajo la soberanía de Dios. La fe no se trata de suprimir emociones, sino que estas sean guiadas por la fe en Dios.
+##### Habacuc no niega su reacción humana. La <u>integra</u> bajo la soberanía de Dios. La fe no se trata de suprimir emociones, sino que estas sean guiadas por la fe en Dios.
 
-- Capítulo 1: Inquietud y protesta
-- Capítulo 2: Redefinición de vida por fe
-- Capítulo 3: Revelación del Dios soberano
-- Aquí: **respuesta personal transformada**. Habacuc ya no exige su justicia inmediata. **Descansa** en la justicia de Dios.
+- Capítulo 1: Inquietud y <u>protesta</u>
+- Capítulo 2: <u>Redefinición</u> de vida por fe
+- Capítulo 3: Revelación del Dios <u>soberano</u>
+- Aquí: **respuesta personal transformada**. Habacuc ya no exige su <u>justicia</u> inmediata. **Descansa** en la justicia de Dios.
 
-##### Este versículo: prepara la confesión final (3:17–19). explica por qué Habacuc puede alegrarse sin circunstancias favorables, muestra que la fe madura **coexiste con fragilidad humana**. El profeta no se vuelve invulnerable. Se vuelve **estable en Dios**, su Roca.
+##### Este versículo: prepara la confesión final (3:17–19). explica por qué Habacuc puede alegrarse sin circunstancias <u>favorables</u>, muestra que la fe madura **coexiste con fragilidad humana**. El profeta no se vuelve invulnerable. Se vuelve **estable en Dios**, su Roca.
 
 ## Habacuc 3:17–19  Alabanza final del profeta
 
@@ -2611,7 +2611,7 @@ Aunque la higuera no eche brotes, Ni haya fruto en las viñas; Aunque falte el p
 
 Hay una estructura condicional acumulativa. El versículo está construido por **una cadena de concesiones**. No es una hipótesis única. Es una **desintegración progresiva de toda seguridad económica y vital**.
 
-Cada “aunque” elimina un pilar más de estabilidad humana. La fe de Habacuc no se apoya en un solo escenario de seguridad humana, sino que incluso **sobrevive al colapso total de su propia  capacidad**.
+Cada “aunque” elimina un pilar más de estabilidad humana. La fe de Habacuc no se apoya en un solo escenario de seguridad humana, sino que incluso **sobrevive al colapso total de su propia capacidad**.
 
 #### la higuera no eche brotes
 
