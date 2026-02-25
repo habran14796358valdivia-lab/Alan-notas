@@ -1617,9 +1617,9 @@ Ciertamente la piedra clamará desde el muro, Y la viga le contestará desde el 
 
 #### con sangre
 
-##### La acusación es directa y sin matices. “Sangre” implica: <u>muerte</u> real, violencia letal, vidas sacrificadas para sostener el sistema.
+##### La acusación es directa y sin matices. “Sangre” implica: <u>muerte</u> real, violencia letal, vidas sacrificadas para sostener el sistema. Ezequiel 24:9; Nahum 3:1
 
-##### No es daño colateral. Es **fundamento**. La ciudad se <u>levanta</u> **sobre cuerpos**, no sobre justicia.
+##### No es daño colateral. Es **fundamento**. La ciudad se <u>levanta</u> **sobre cuerpos**, no sobre justicia. Jeremías 22: 12-17
 
 #### ¡...Y funda un pueblo con violencia...!
 
@@ -1649,27 +1649,27 @@ Ciertamente la piedra clamará desde el muro, Y la viga le contestará desde el 
 
 #### ¿No viene del SEÑOR de los ejércitos...?
 
-##### Dios introduce una **pregunta retórica**. No busca información. Busca **reorientación**. La pregunta afirma: autoridad divina, soberanía histórica, control sobre el destino de las naciones. Lo que ocurre **no está fuera del gobierno de Dios**, del SEÑOR de los ejércitos, aunque contradiga la lógica humana.
+##### Dios introduce una **pregunta retórica**. No busca información. Busca **reorientación**. La pregunta afirma: autoridad divina, soberanía <u>histórica</u>, control sobre el destino de las naciones. Lo que ocurre **no está fuera del gobierno de Dios**, del SEÑOR de los ejércitos, aunque contradiga la lógica humana.
 
 #### SEÑOR de los ejércitos
 
-##### Este título no es decorativo. Subraya que Dios: gobierna fuerzas visibles e invisibles, domina ejércitos humanos y celestiales, no compite con los poderes históricos. Las ciudades construidas con sangre no están fuera de Su jurisdicción.
+##### Este título no es decorativo. Subraya que Dios: gobierna fuerzas visibles e invisibles, domina ejércitos humanos y celestiales, no <u>compite</u> con los poderes históricos. Las ciudades construidas con sangre no están fuera de Su jurisdicción.
 
 #### Que los pueblos trabajen para el fuego
 
-##### Aquí se revela el destino del esfuerzo injusto. “Trabajar” implica: inversión, energía, planificación, sacrificio.  Pero el resultado es **el fuego**, destrucción, consumo total, desaparición del producto del trabajo. El problema no es falta de esfuerzo, sino **inutilidad del fin**.
+##### Aquí se revela el destino del esfuerzo injusto. “Trabajar” implica: inversión, energía, planificación, sacrificio.  Pero el resultado es **el fuego**, <u>destrucción</u>, consumo total, desaparición del producto del trabajo. El problema no es falta de esfuerzo, sino **inutilidad del fin**. Jeremías 51: 58
 
 #### ¿...Y las naciones se fatiguen en vano?
 
-##### La imagen se refuerza. No solo hay pérdida material, hay **agotamiento inútil**. La fatiga es real, es costosa, es intensa, pero es **en vano**. El sistema entero se mueve, progresa, construye…para **no llegar a nada duradero** e incluso quedar en un estado de debilidad.
+##### La imagen se refuerza. No solo hay pérdida material, hay **agotamiento inútil**. La fatiga es real, es costosa, es intensa, pero es **en vano**. El <u>sistema</u> entero se mueve, progresa, construye…para **no llegar a nada duradero** e incluso quedar en un estado de debilidad.
 
-##### Habacuc 2:13 establece este principio central,  todo proyecto humano (del hombre orgulloso) que excluye a Dios termina en desgaste sin permanencia.
+##### Habacuc 2:13 establece este principio <u>central</u>,  todo proyecto humano (del hombre orgulloso) que excluye a Dios termina en desgaste sin permanencia.
 
-##### El juicio no siempre es destrucción inmediata al pecador, a veces es **un resultado vacío y sin propósito** a lo que busca. Habacuc 2:12 expuso ciudades fundadas en sangre. 2:13 explica por qué esas ciudades no permanecen. No por falta de ingenio, sino porque **Dios no sostiene su finalidad**, son acciones y propósitos que vienen de la incredulidad hacia Dios.
+##### El juicio no siempre es destrucción inmediata al pecador, a veces es **un resultado vacío y sin propósito** a lo que busca. Habacuc 2:12 expuso <u>ciudades</u> fundadas en sangre. 2:13 explica por qué esas ciudades no permanecen. No por falta de ingenio, sino porque **Dios no sostiene su finalidad**, son acciones y propósitos que vienen de la incredulidad hacia Dios.
 
-##### Este versículo: Coloca el poder humano en su lugar (algo que perece), responde a la aparente prosperidad injusta, devuelve la historia al gobierno de Dios, quien esta bajo el control de todo.
+##### Este versículo: Coloca el poder <u>humano</u> en su lugar (algo que perece), responde a la aparente prosperidad injusta, devuelve la historia al gobierno de Dios, quien esta bajo el control de todo.
 
-##### La pregunta inicial de Habacuc (“¿hasta cuándo?”) encuentra aquí una respuesta implícita: **hasta que el esfuerzo del hombre sin Dios se consuma solo.**
+##### La pregunta inicial de Habacuc (“¿hasta cuándo?”) <u>encuentra</u> aquí una respuesta implícita: **hasta que el esfuerzo del hombre sin Dios se consuma solo.**
 
 ### Habacuc 2:14
 
@@ -1677,37 +1677,37 @@ Pues la tierra se llenará Del conocimiento de la gloria del SEÑOR Como las agu
 
 #### Pues
 
-##### Este versículo está **directamente conectado** con 2:13. No introduce un tema nuevo; explica **por qué** el trabajo injusto termina en vano. La razón no es solo castigo, sino **propósito superior**.
+##### Este versículo está **directamente conectado** con 2:13. No <u>introduce</u> un tema nuevo; explica **por qué** el trabajo injusto termina en vano. La razón no es solo castigo, sino **propósito superior**.
 
 #### la tierra se llenará
 
 ##### La acción es **pasiva y segura**. No dice: *podría ser llena*, *quizá llegará a ser*
 
-##### Dice, "*se llenará*." Esto comunica certeza absoluta, resultado inevitable, cumplimiento histórico. La historia no se dirige al vacío, sino a **plenitud**. La historia no es un conjunto de cosas que suceden al azar sino que pasa por las manos soberanas del Señor de los ejércitos.
+##### Dice, "*se llenará*." Esto comunica certeza absoluta, resultado inevitable, cumplimiento histórico. La historia no se dirige al vacío, sino a **plenitud**. La <u>historia</u> no es un conjunto de cosas que suceden al azar sino que pasa por las manos soberanas del Señor de los ejércitos.
 
 #### Del conocimiento
 
-##### El énfasis no es solo en gloria visible, sino en **conocimiento** de esa gloria. No es mera manifestación externa, sino: reconocimiento, comprensión, conciencia extendida.  La ignorancia que permite la injusticia no será permanente.
+##### El énfasis no es solo en gloria visible, sino en **conocimiento** de esa gloria. No es mera manifestación externa, sino: reconocimiento, comprensión, <u>conciencia</u> extendida. La ignorancia que permite la injusticia no será permanente.
 
 #### de la gloria del SEÑOR
 
-##### Aquí está el centro. No será: la gloria de Babilonia, la gloria de la ciudad, la gloria del poder humano. Será **la gloria de Jehová** de la que será llena toda la tierra.
+##### Aquí está el centro. No será: la gloria de <u>Babilonia</u>, la gloria de la ciudad, la gloria del poder humano. Será **la gloria de Jehová** de la que será llena toda la tierra.
 
-##### Esto contrasta directamente con ciudades fundadas en sangre (2:12), trabajo para el fuego (2:13), orgullo que se expande (2:5). La historia no termina glorificando al hombre, sino al Señor.
+##### Esto contrasta directamente con ciudades <u>fundadas</u> en sangre (2:12), trabajo para el fuego (2:13), orgullo que se expande (2:5). La historia no termina glorificando al hombre, sino al Señor.
 
 #### Como las aguas cubren el mar
 
-##### La metáfora es totalizante. Las aguas: no cubren parcialmente, no dejan espacios secos, no compiten entre sí. Cubren **todo**.
+##### La metáfora es totalizante. Las aguas: no cubren <u>parcialmente</u>, no dejan espacios secos, no compiten entre sí. Cubren **todo**.
 
-- Esto implica: universalidad, inevitabilidad, ausencia de resistencia efectiva. La gloria de Dios no se impondrá con violencia, sino con **plenitud abrumadora**.
+- Esto implica: universalidad, <u>inevitabilidad</u>, ausencia de resistencia efectiva. La gloria de Dios no se impondrá con violencia, sino con **plenitud abrumadora**. Isaías 11:9
 
-##### Habacuc 2:14 establece el **horizonte final de la historia**: La injusticia no tiene la última palabra porque **la gloria de Dios sí la tiene**.
+##### Habacuc 2:14 establece el **horizonte final de la <u>historia</u>**: La injusticia no tiene la última palabra porque **la gloria de Dios sí la tiene**.
 
-- El problema no es solo corregir el mal,  sino **reorientar el fin de todas las cosas**.
+- El problema no es solo <u>corregir</u> el mal,  sino **reorientar el fin de todas las cosas**.
 
-##### El justo vive por fe porque: aún no ve esta plenitud, aún vive entre ciudades injustas, aún espera el tiempo señalado. La fe vive **a la luz de este futuro** (de la verdad de Dios), no del presente visible.
+##### El justo vive por fe porque: aún no ve esta <u>plenitud</u>, aún vive entre ciudades injustas, aún espera el tiempo señalado. La fe vive **a la luz de este futuro** (de la verdad de Dios), no del presente visible.
 
-- Este versículo: explica por qué Dios tolera temporalmente la injusticia, redefine éxito histórico, da sentido a la espera ordenada en 2:3. La historia no se mueve al azar, sino hacia **conocimiento de la gloria de Dios**.
+- Este versículo: explica por qué Dios tolera <u>temporalmente</u> la injusticia, redefine éxito histórico, da sentido a la espera ordenada en 2:3. La historia no se mueve al azar, sino hacia **conocimiento de la gloria de Dios**.
 
 ## Habacuc 2:15–17 Cuarto ay: "La violencia que vuelve sobre sí misma"
 
@@ -1717,86 +1717,86 @@ Pues la tierra se llenará Del conocimiento de la gloria del SEÑOR Como las agu
 
 #### ¡Ay del que da de beber a su prójimo!
 
-##### El cuarto “ay” cambia nuevamente de enfoque. Aquí no se trata de: expansión territorial, acumulación económica, edificación de ciudades. Se trata de **relación directa con el prójimo**. El pecado es **relacional**, no solo estructural.
+##### El cuarto “ay” cambia <u>nuevamente</u> de enfoque. Aquí no se trata de: expansión territorial, acumulación económica, edificación de ciudades. Se trata de **relación directa con el <u>prójimo</u>**. El pecado es **relacional**, no solo estructural.
 
 #### ¡Ay de ti que mezclas tu veneno...!
 
-##### La bebida no es neutral. El “veneno” introduce: amargura, intención dañina. No es hospitalidad. Es **manipulación**. El acto externo parece ofrecer algo,  pero el contenido está diseñado para dañar.
+##### La bebida no es neutral. El “veneno” introduce: <u>amargura</u>, intención dañina. No es hospitalidad. Es **manipulación**. El acto externo parece ofrecer algo, pero el contenido está diseñado para dañar.
 
 #### hasta embriagarlo
 
-##### La embriaguez aquí es **instrumental**. No es placer compartido, sino medio para: debilitar, desorientar, quitar control. El poder injusto no necesita fuerza directa; usa **desarme moral y psicológico**, así es la naturaleza del hombre.
+##### La embriaguez aquí es **instrumental**. No es placer <u>compartido</u>, sino medio para: debilitar, desorientar, quitar control. El poder injusto no necesita fuerza directa; usa **desarme moral y psicológico**, así es la naturaleza del hombre.
 #### ¡...Para contemplar su desnudez!
 
-##### Este es el objetivo explícito. La desnudez representa vergüenza, vulnerabilidad, exposición forzada. El pecado no termina en dominio; termina en **humillación**. El poderoso disfruta: ver al otro reducido, contemplar su caída, afirmar su superioridad.
+##### Este es el objetivo explícito. La <u>desnudez</u> representa vergüenza, vulnerabilidad, exposición forzada. El pecado no termina en dominio; termina en **humillación**. El poderoso disfruta: ver al otro reducido, contemplar su caída, afirmar su superioridad.
 
-##### Habacuc 2:15 revela este principio: El poder injusto no solo oprime; **degrada deliberadamente**. La humillación es parte del placer del dominio.
-##### Este “ay” conecta con: deshumanización de 1:14–15, idolatría del poder de 1:16, orgullo que no se sacia de 2:5, La lógica es consistente: el otro existe como objeto, no como persona.
+##### Habacuc 2:15 revela este principio: El <u>poder</u> injusto no solo oprime; **degrada deliberadamente**. La humillación es parte del placer del dominio.
+##### Este “ay” conecta con: deshumanización de 1:14–15, <u>idolatría</u> del poder de 1:16, orgullo que no se sacia de 2:5, La lógica es consistente: el otro existe como objeto, no como persona.
 
-##### Este versículo: expone la perversión moral del poder, muestra que la injusticia es intencional, prepara la inversión inmediata que sigue (2:16). La vergüenza impuesta será **devuelta**.
+##### Este versículo: expone la <u>perversión</u> moral del poder, muestra que la injusticia es intencional, prepara la inversión inmediata que sigue (2:16). La vergüenza impuesta será **devuelta**.
 
 ### Habacuc 2:16 
 
-Serás saciado de deshonra más que de gloria. Bebe tú también y muestra tu desnudez. Se volverá sobre ti la copa de la diestra del SEÑOR, Y la ignominia sobre tu gloria.
+Serás saciado de <u>deshonra</u> más que de gloria. Bebe tú también y muestra tu desnudez. Se volverá sobre ti la copa de la diestra del SEÑOR, Y la ignominia sobre tu gloria.
 
 #### Serás saciado de deshonra más que de gloria.
 
-##### Aquí se declara el **resultado real**, no el aparente. Aunque el poder humano parecía glorioso, Dios revela el balance verdadero: Esto no trae gloria, sino **deshonra acumulada**. La llenura (deshonra) no es neutral. Aquello con lo que uno se llena termina definiéndolo.
+##### Aquí se declara el **resultado real**, no el aparente. Aunque el poder <u>humano</u> parecía glorioso, Dios revela el balance verdadero: Esto no trae gloria, sino **deshonra acumulada**. La llenura (deshonra) no es neutral. Aquello con lo que uno se llena termina definiéndolo.
 #### Bebe tú también
 
-##### La inversión es directa y personal. El que hizo beber a otros (2:15) ahora **debe beber él**. No hay excepción. No hay inmunidad. La justicia divina opera por **correspondencia**, no por arbitrariedad.
+##### La inversión es directa y <u>personal</u>. El que hizo beber a otros (2:15) ahora **debe beber él**. No hay excepción. No hay inmunidad. La justicia divina opera por **correspondencia**, no por arbitrariedad. Salmos 75:8; Jeremías 51:57
 #### y muestra tu desnudez
 
-##### La embriaguez ya no es instrumento,  es **exposición**. Lo que antes fue usado para humillar a otros, ahora revela al culpable. La desnudez ya no es del prójimo, sino **propia**.
+##### La embriaguez ya no es instrumento, es **exposición**. Lo que antes fue usado para humillar a otros, ahora revela al culpable. La <u>desnudez</u> ya no es del prójimo, sino **propia**. Lamentaciones 4:21
 
 #### Se volverá sobre ti
 
-##### El juicio no puede evitarse. No se pierde en el camino. No se diluye en la historia. No se transfiere a otro. Llega **personalmente**.
+##### El juicio no puede evitarse. No se <u>pierde</u> en el camino. No se diluye en la historia. No se transfiere a otro. Llega **personalmente**.
 
 #### la copa de la diestra del SEÑOR
 
-##### Aquí se introduce la **fuente** del juicio. No es revancha humana. No es azar histórico. La copa procede: De la mano del Señor (Jehová), de Su autoridad directa, de Su gobierno soberano. Esto responde al silencio inicial de Dios. Él **no estaba ausente**.
+##### Aquí se introduce la **fuente** del juicio. No es revancha humana. No es azar histórico. La copa procede: De la mano del Señor (Jehová), de Su <u>autoridad</u> directa, de Su gobierno soberano. Esto responde al silencio inicial de Dios. Él **no estaba ausente**.
 
 #### Y la ignominia sobre tu gloria. 
 
-##### La imagen es deliberadamente ofensiva. La “gloria” humana, construida sobre humillación ajena, termina cubierta de **vergüenza visible**.
+##### La imagen es deliberadamente ofensiva. La “gloria” humana, <u>construida</u> sobre humillación ajena, termina cubierta de **vergüenza visible**.
 
-- La ignominia expresa exceso, pérdida de control, repulsión pública. La gloria falsa se vuelve repulsiva.
+- La ignominia expresa exceso, <u>pérdida</u> de control, repulsión pública. La gloria falsa se vuelve repulsiva.
 
-##### Habacuc 2:16 establece este principio: La humillación infligida a otros regresa como deshonra personal. El pecado no solo cae; **se expone**.
+##### Habacuc 2:16 establece este principio: La <u>humillación</u> infligida a otros regresa como deshonra personal. El pecado no solo cae; **se expone**.
 ### Habacuc 2:17
 
 Porque la violencia contra el Líbano te cubrirá, Y el exterminio de las fieras te aterrará, A causa del derramamiento de sangre humana y la violencia hecha a la tierra, A la ciudad y a todos los que habitan en ella
 
 #### Porque
 
-##### Esto conecta con el juicio mencionado anteriormente, el actuar de Dios para con los caldeos, no es   arbitrario. Su juicio vendrá con justa razón, en base a lo que hayan hecho.
+##### Esto conecta con el juicio <u>mencionado</u> anteriormente, el actuar de Dios para con los caldeos, no es   arbitrario. Su juicio vendrá con justa razón, en base a lo que hayan hecho.
 
 #### la violencia contra el Líbano te cubrirá
 
-Probablemente se refiera a la misma violencia que ejerció para ir contra el Líbano la capital de Egipto, y toda la violencia que hicieron se les volverá a ellos, serán cubiertos con la misma que ejercieron y no podrán hacer nada para evitarlo.
+Probablemente se refiera a la misma <u>violencia</u> que ejerció para ir contra el Líbano la capital de Egipto, y toda la violencia que hicieron se les volverá a ellos, serán cubiertos con la misma que ejercieron y no podrán hacer nada para evitarlo. Habacuc 2:8; Salmos 137:8
 
 Derramaron sangre, y robaron, así les vendrá el juicio. 
 
 #### Y el exterminio de las fieras te aterrará
 
-##### La violencia no solo fue con el lugar sino también llego hacia los animales, su injusticia no conoce limites.
+##### La violencia no solo fue con el lugar sino <u>también</u> llego hacia los animales, su injusticia no conoce limites.
 
-##### Ese mismo terror causado hacía las fieras es el que los aterrará en un futuro, a su debido tiempo.
+##### Ese mismo terror <u>causado</u> hacía las fieras es el que los aterrará en un futuro, a su debido tiempo.
 
 #### A causa del derramamiento de sangre humana
 
-##### Dios continua mostrando la razón de este actuar, dice *a causa del*.
+##### Dios continua <u>mostrando</u> la razón de este actuar, dice *a causa del*.
 
-##### Su violencia llegó hasta el punto del asesinato a seres humanos, por causa de aquello viene a ellos su juicio, por la sangre humana derramada.
+##### Su violencia llegó hasta el punto del asesinato a seres <u>humanos</u>, por causa de aquello viene a ellos su juicio, por la sangre humana derramada.
 
 #### y la violencia hecha a la tierra, A la ciudad y a todos los que habitan en ella
 
-##### La misma violencia hacía el Líbano los cubrirá, el terror causado a las fieras del campo los aterrará a ellos. Esto por causa de la sangre humana derramada y la violencia hacia la tierra, la ciudad y todos sus habitantes.
+##### La misma violencia hacía el Líbano los <u>cubrirá</u>, el terror causado a las fieras del campo los aterrará a ellos. Esto por causa de la sangre humana derramada y la violencia hacia la tierra, la ciudad y todos sus habitantes. Isaías 14: 5-8; Jeremías 51:24
 
-##### Habacuc 2:17 establece este principio: La violencia infligida a otros regresa como violencia. El pecado no queda sin castigo; **será retribuido justamente**.
+##### Habacuc 2:17 establece este principio: La violencia <u>infligida</u> a otros regresa como violencia. El pecado no queda sin castigo; **será retribuido justamente**.
 
-##### Este versículo: completa el cuarto “ay”, ejecuta la inversión moral anunciada, prepara el último “ay” (2:18). La copa ha cambiado de manos. La historia avanza hacia cierre.
+##### Este versículo: completa el cuarto “ay”, ejecuta la <u>inversión</u> moral anunciada, prepara el último “ay” (2:18). La copa ha cambiado de manos. La historia avanza hacia cierre.
 
 ## Habacuc 2:18–19 Quinto ay: "El colapso de toda confianza falsa"
 
@@ -1806,32 +1806,32 @@ Derramaron sangre, y robaron, así les vendrá el juicio.
 
 #### ¿De qué sirve el ídolo…?
 
-##### Dios inicia con una **pregunta de inutilidad**. No discute estética. No discute habilidad artesanal. La pregunta es funcional, **¿qué produce realmente?**
+##### Dios inicia con una **<u>pregunta</u> de inutilidad**. No discute estética. No discute habilidad artesanal. La pregunta es funcional, **¿qué produce realmente?**
 
 ##### La idolatría es evaluada por su **resultado**, no por su intención.
 
 #### que su artífice ha esculpido
 
-##### Aquí se subraya el problema central: el creador, confía en lo creado. La relación está invertida. El objeto no precede al hombre, no lo trasciende, no lo gobierna. Es producto humano, no fuente de verdad.
+##### Aquí se subraya el problema central: el <u>creador</u>, confía en lo creado. La relación está invertida. El objeto no precede al hombre, no lo trasciende, no lo gobierna. Es producto humano, no fuente de verdad.
 
 #### O la imagen fundida
 
-##### La repetición refuerza el argumento. No importa el material: madera, piedra, metal. El problema no es la forma, sino **la dependencia**. Cambiar el medio no cambia la falsedad.
+##### La repetición refuerza el argumento. No <u>importa</u> el material: madera, piedra, metal. El problema no es la forma, sino **la dependencia**. Cambiar el medio no cambia la falsedad.
 
 #### maestra de mentiras
 
-##### Aquí aparece la acusación doctrinal. El ídolo **enseña**, pero lo que enseña es falso. No es neutral. No es silencioso. Produce falsa seguridad, falsa dirección, falsa interpretación de la realidad. La idolatría es **pedagogía engañosa**.
+##### Aquí aparece la acusación doctrinal. El ídolo **enseña**, pero lo que enseña es falso. No es neutral. No es silencioso. Produce <u>falsa</u> seguridad, falsa dirección, falsa interpretación de la realidad. La idolatría es **pedagoga engañosa**.
 
 #### Para que su hacedor confíe en su obra
 
-##### Este es el núcleo del “ay”. El problema no es solo adorar algo falso, sino **confiar en lo que uno mismo produce**. Esto conecta con todo el capítulo: orgullo que se expande (2:5), ciudades fundadas en sangre (2:12), gloria humana que termina en vergüenza (2:16). La idolatría es la **expresión religiosa del orgullo**.
+##### Este es el núcleo del “ay”. El problema no es solo adorar algo falso, sino **confiar en lo que uno mismo produce**. Esto conecta con todo el capítulo: orgullo que se <u>expande</u> (2:5), ciudades fundadas en sangre (2:12), gloria humana que termina en vergüenza (2:16). La idolatría es la **expresión religiosa del orgullo**.
 #### ¿...Cuando hace ídolos mudos?
 
-##### La ironía es deliberada. no hablan, no responden, no corrigen, no advierten Y aun así, el hombre **confía** en ellas. La mudez del ídolo contrasta con Dios que habla en (2:2), la visión que declara, la palabra que gobierna la vida.
+##### La ironía es deliberada. no hablan, no <u>responden</u>, no corrigen, no advierten Y aun así, el hombre **confía** en ellas. La mudez del ídolo contrasta con Dios que habla en (2:2), la visión que declara, la palabra que gobierna la vida.
 
-- Habacuc 2:18 establece este principio final: El sistema injusto termina justificándose mediante una religión que confirma su engaño. La idolatría no corrige la injusticia;  la **legitima**.
-- Este versículo: inicia el último “ay”, desenmascara la raíz espiritual del poder injusto, prepara el contraste final con el Dios vivo (2:19–20).
-- Después de exponer: violencia, orgullo, humillación, explotación, Dios revela que todo descansa sobre **confianza falsa**.
+- Habacuc 2:18 establece este principio final: El sistema injusto termina justificándose mediante una religión que confirma su engaño. La <u>idolatría</u> no corrige la injusticia;  la **legitima**.
+- Este versículo: inicia el último “ay”, <u>desenmascara</u> la raíz espiritual del poder injusto, prepara el contraste final con el Dios vivo (2:19–20).
+- Después de exponer: violencia, orgullo, <u>humillación</u>, explotación, Dios revela que todo descansa sobre **confianza falsa**.
 
 ### Habacuc 2:19
 
@@ -1839,30 +1839,30 @@ Derramaron sangre, y robaron, así les vendrá el juicio.
 
 #### ¡Ay del que dice al madero: “Despierta”...!
 
-##### La idolatría llega aquí a su **máxima ironía**. El hombre habla a lo inanimado, espera respuesta, atribuye vida donde no la hay.
+##### La idolatría llega aquí a su **máxima ironía**. El <u>hombre</u> habla a lo inanimado, espera respuesta, atribuye vida donde no la hay.
 
-##### El verbo *despierta* supone: conciencia, actividad, capacidad de actuar. Todo esto es **proyectado**, no real.
+##### El verbo *despierta* supone: conciencia, actividad, <u>capacidad</u> de actuar. Todo esto es **proyectado**, no real.
 
 #### ¡...O a la piedra muda: “Levántate!”
 
-##### La piedra es explícitamente llamada **muda**. No hay ambigüedad, no puede hablar, no puede responder, no puede instruir. Aun así, el hombre **le ordena actuar**. Esto revela la contradicción: se exige vida de aquello que no la posee.
+##### La piedra es explícitamente <u>llamada</u> **muda**. No hay ambigüedad, no puede hablar, no puede responder, no puede instruir. Aun así, el hombre **le ordena actuar**. Esto revela la contradicción: se exige vida de aquello que no la posee.
 
 #### ¿Será esto tu maestro?
 
-##### Dios introduce la pregunta decisiva. La idolatría no solo busca ayuda, busca **dirección**. Pero lo mudo: no enseña, no corrige, no revela. El ídolo no puede guiar la vida en un mundo moralmente complejo.
+##### Dios introduce la pregunta decisiva. La <u>idolatría</u> no solo busca ayuda, busca **dirección**. Pero lo mudo: no enseña, no corrige, no revela. El ídolo no puede guiar la vida en un mundo moralmente complejo.
 
 #### Mira que está cubierto de oro y plata,
 
-##### La apariencia intenta compensar la ausencia. El valor es **externo**: brillo, costo, atractivo visual. Pero el revestimiento no produce vida. La riqueza no transforma lo muerto en viviente.
+##### La apariencia intenta compensar la ausencia. El valor es **externo**: brillo, costo, atractivo visual. Pero el <u>revestimiento</u> no produce vida. La riqueza no transforma lo muerto en viviente.
 
 #### Y no hay aliento alguno en su interior.
 
-##### Esta es la sentencia final. El problema no es solo falsedad, sino **ausencia total de vida**.
+##### Esta es la sentencia final. El <u>problema</u> no es solo falsedad, sino **ausencia total de vida**.
 
-##### Sin espíritu: no hay palabra, no hay acción, no hay verdad. Esto contrasta directamente con: el Dios que habla (2:2), la visión que vive (2:3), el justo que vive por fe (2:4).
+##### Sin espíritu: no hay palabra, no hay acción, no hay verdad. Esto <u>contrasta</u> directamente con: el Dios que habla (2:2), la visión que vive (2:3), el justo que vive por fe (2:4).
 
-- Habacuc 2:19 establece este principio: La idolatría es confiar en lo que no tiene vida para orientar la vida. El sistema injusto no solo es violento, es **espiritualmente vacío**.
-- Este versículo: completa la acusación contra la idolatría, muestra la irracionalidad del falso culto, prepara el contraste final y absoluto (2:20).  Después de esto, no queda nada que exponer. Solo queda **silencio verdadero**.
+- Habacuc 2:19 establece este principio: La idolatría es <u>confiar</u> en lo que no tiene vida para orientar la vida. El sistema injusto no solo es violento, es **espiritualmente vacío**.
+- Este versículo: completa la acusación contra la idolatría, muestra la irracionalidad del falso culto, prepara el contraste final y <u>absoluto</u> (2:20).  Después de esto, no queda nada que exponer. Solo queda **silencio verdadero**.
 
 ## Habacuc 2:20 — Declaración final del Señor
 
@@ -1872,29 +1872,29 @@ Pero el SEÑOR está en Su santo templo: Calle delante de Él toda la tierra
 
 #### Pero
 
-##### Esta palabra marca el **contraste absoluto**. Después de los ídolos mudos (2:18–19), palabras humanas sin vida, confianza en obras propias, aparece una **realidad completamente distinta**. No una corrección menor, sino un **cambio de fundamento**.
+##### Esta palabra marca el **contraste absoluto**. Después de los <u>ídolos</u> mudos (2:18–19), palabras humanas sin vida, confianza en obras propias, aparece una **realidad completamente distinta**. No una corrección menor, sino un **cambio de fundamento**.
 
 #### el SEÑOR
 
-##### Esta es una afirmación de **presencia**, no de acción. Dios **no** es descrito como: defendiéndose, explicándose, justificándose. Simplemente **está**. 
+##### Esta es una afirmación de **presencia**, no de acción. Dios **no** es <u>descrito</u> como: defendiéndose, explicándose, justificándose. Simplemente **está**. 
 
-##### Esto responde al problema inicial de Habacuc: ¿Dónde estás cuando hay injusticia?
+##### Esto responde al <u>problema</u> inicial de Habacuc: ¿Dónde estás cuando hay injusticia?
 
-##### Respuesta: **Dios nunca estuvo ausente.**
+##### Respuesta: **Dios nunca <u>estuvo</u> ausente.**
 
 #### está en Su santo templo
 
-##### El templo aquí no es solo un edificio. Representa: autoridad soberana, trono legítimo, gobierno real. “*santo*” indica separación moral, pureza absoluta, inaccesibilidad al juicio humano. Dios no compite con ídolos. No dialoga con ellos. **Él reina sobre todo y todos**.
+##### El templo aquí no es solo un edificio. Representa: autoridad soberana, trono <u>legítimo</u>, gobierno real. “*santo*” indica separación moral, pureza absoluta, inaccesibilidad al juicio humano. Dios no compite con ídolos. No dialoga con ellos. **Él reina sobre todo y todos**.
 
 #### Calle delante de Él
 
-##### La respuesta apropiada ya no es discurso. Después de: quejas (cap. 1), argumentos, preguntas, ayes, denuncias, la única postura correcta es **silencio**. Este silencio no es vacío. Es **reconocimiento** de la posición que tiene el Señor de los ejércitos.
+##### La respuesta apropiada ya no es discurso. Después de: quejas (cap. 1), argumentos, preguntas, ayes, denuncias, la única postura correcta es **silencio**. Este <u>silencio</u> no es vacío. Es **reconocimiento** de la posición que tiene el Señor de los ejércitos.
 
 #### toda la tierra
 
-##### El alcance es universal. No solo: Babilonia, Judá, los pueblos oprimidos. **Toda la tierra**. Esto incluye víctimas, opresores, profetas, lectores. Nadie queda fuera del llamado al silencio.
+##### El alcance es universal. No solo: Babilonia, Judá, los pueblos oprimidos. **Toda la tierra**. Esto incluye víctimas, opresores, profetas, <u>lectores</u>. Nadie queda fuera del llamado al silencio.
 
-- Habacuc 2:20 establece este principio final del capítulo: La respuesta última a la injusticia no es explicación, sino **reconocimiento de la soberanía de Dios**. La fe no vence al mal con argumentos, sino con **reverencia confiada**.
+- Habacuc 2:20 establece este principio final del capítulo: La <u>respuesta</u> última a la injusticia no es explicación, sino **reconocimiento de la soberanía de Dios**. La fe no vence al mal con argumentos, sino con **reverencia confiada**.
 
 - El justo vive por fe porque Dios reina, Dios está presente, Dios no necesita justificarse. La fe sabe cuándo hablar y cuándo **callar delante de Dios**.
 
