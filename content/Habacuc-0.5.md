@@ -2296,36 +2296,36 @@ Te vieron los montes y temblaron, El diluvio de aguas pasó; Dio el abismo su vo
 
 #### Te vieron los montes
 
-##### La creación es presentada como **testigo consciente**. No es lenguaje científico, sino **lenguaje relacional**. Esto muestra la relación estrecha que el Creador tiene con Su creación.
+##### La creación es presentada como **testigo consciente**. No es <u>lenguaje</u> científico, sino **lenguaje relacional**. Esto muestra la relación estrecha que el Creador tiene con Su creación.
 
-##### Los montes: No solo existen, no solo son sacudidos, **reconocen** la presencia de Dios.
+##### Los montes: No solo <u>existen</u>, no solo son sacudidos, **reconocen** la presencia de Dios.
 
-##### "*vieron*" implica: percepción, reconocimiento, reacción inevitable. La creación **responde a Su Creador**.
+##### "*vieron*" implica: percepción, <u>reconocimiento</u>, reacción inevitable. La creación **responde a Su Creador**.
 
 #### y temblaron
 
-##### La reacción es inmediata. No hay negociación. No hay resistencia. No hay demora. El temblor no se refiere a su destrucción, sino a una **respuesta reverente**. Esto refuerza el patrón de cuando Dios se manifiesta, entonces lo firme se vuelve frágil.
+##### La reacción es inmediata. No hay negociación. No hay resistencia. No hay demora. El temblor no se refiere a su destrucción, sino a una **respuesta reverente**. Esto <u>refuerza</u> el patrón de cuando Dios se manifiesta, entonces lo firme se vuelve frágil.
 
 #### El diluvio de aguas pasó
 
-##### La imagen introduce **movimiento poderoso**. Las aguas no están quietas, no están controladas por el hombre, avanzan con fuerza. Pero aquí no avanzan libremente; **pasan**.
+##### La imagen introduce **movimiento poderoso**. Las <u>aguas</u> no están quietas, no están controladas por el hombre, avanzan con fuerza. Pero aquí no avanzan libremente; **pasan**.
 
-##### Esto sugiere: Límite impuesto, dirección controlada, duración determinada. La fuerza natural no es autónoma también esta bajo el Señor de los ejércitos.
+##### Esto sugiere: Límite impuesto, dirección <u>controlada</u>, duración determinada. La fuerza natural no es autónoma también esta bajo el Señor de los ejércitos.
 
 #### Dio el abismo su voz
 
-##### El abismo representa: profundidad, misterio, lo inexplorable. “*dio su voz*” implica: Respuesta, reconocimiento, sometimiento. Incluso lo más profundo y desconocido no permanece en silencio ante Dios.
+##### El abismo representa: profundidad, misterio, lo inexplorable. “*dio su voz*” implica: Respuesta, reconocimiento, sometimiento. Incluso lo más profundo y desconocido no <u>permanece</u> en silencio ante Dios.
 
 #### Levantó en alto sus manos.
 
-##### La imagen es sorprendente. Levantar las manos puede significar: rendición, clamor, reconocimiento de autoridad. La creación no lucha; **se rinde** ante su Creador. Lo profundo se orienta hacia lo alto.
+##### La imagen es sorprendente. Levantar las manos puede significar: rendición, clamor, <u>reconocimiento</u> de autoridad. La creación no lucha; **se rinde** ante su Creador. Lo profundo se orienta hacia lo alto.
 
-- Habacuc 3:10 establece este principio: Toda la creación reconoce la presencia de Dios antes que el ser humano la entienda.
-- La creación responde **naturalmente** a lo que el hombre discute en su razonamiento.
-- Habacuc luchaba con: Incoherencia aparente, el "silencio" de Dios, "injusticia" persistente. Era su razonamiento humano
-- Aquí ve que el universo no duda del gobierno de Dios. La creación no pregunta *¿hasta cuándo?* Simplemente responde a lo que es real, quien gobierna y define la historia es el Señor, el Creador, el Soberano.
-- Este versículo: Intensifica la respuesta cósmica a la manifestación de Dios, muestra que Su  juicio no es solo histórico, sino universal. Prepara la descripción del control absoluto de Dios sobre luz y tiempo (3:11). La revelación de Dios avanza hacia su punto culminante.
-- En **Habacuc 3:11**, incluso: El sol, la luna, los ritmos celestes se detendrán ante la acción divina.
+- Habacuc 3:10 establece este principio: Toda la creación <u>reconoce</u> la presencia de Dios antes que el ser humano la entienda.
+- La creación responde **naturalmente** a lo que el hombre discute en su <u>razonamiento</u>.
+- Habacuc luchaba con: <u>Incoherencia</u> aparente, el "silencio" de Dios, "injusticia" persistente. Era su razonamiento humano
+- Aquí ve que el <u>universo</u> no duda del gobierno de Dios. La creación no pregunta *¿hasta cuándo?* Simplemente responde a lo que es real, quien gobierna y define la historia es el Señor, el Creador, el Soberano.
+- Este versículo: Intensifica la respuesta cósmica a la manifestación de Dios, muestra que Su  juicio no es solo histórico, sino universal. Prepara la <u>descripción</u> del control absoluto de Dios sobre luz y tiempo (3:11). La revelación de Dios avanza hacia su punto culminante.
+- En **Habacuc 3:11**, incluso: El sol, la luna, los ritmos celestes se <u>detendrán</u> ante la acción divina.
 
 ### Habacuc 3:11 
 
@@ -2333,37 +2333,37 @@ El sol y la luna se detuvieron en su sitio; A la luz de Tus flechas se fueron, A
 
 #### El sol y la luna se detuvieron
 
-##### Aquí se menciona el **orden más estable y regular** de la creación.
+##### Aquí se menciona el **orden más <u>estable</u> y regular** de la creación.
 
-##### El sol y la luna representan: Ritmo, tiempo, constancia, previsibilidad.
+##### El sol y la luna <u>representan</u>: Ritmo, tiempo, constancia, previsibilidad.
 
-##### Lo que “*se detuvieron*” indica: Suspensión del orden normal, interrupción del flujo habitual, subordinación total al actuar divino. Nada es tan constante que no pueda detenerse ante Dios.
+##### Lo que “*se detuvieron*” indica: Suspensión del orden <u>normal</u>, interrupción del flujo habitual, subordinación total al actuar divino. Nada es tan constante que no pueda detenerse ante Dios.
 
 #### en su sitio
 
-##### No se describe caos desordenado. El sol y la luna no desaparecen, no colapsan,  no se desintegran. **Se detienen en su lugar**.
+##### No se <u>describe</u> caos desordenado. El sol y la luna no desaparecen, no colapsan, no se desintegran. **Se detienen en su lugar**.
 
-##### Esto muestra que: Dios no destruye el orden, Dios **lo gobierna en orden**. La creación no entra en confusión; entra en **obediencia momentánea**.
+##### Esto muestra que: Dios no destruye el orden, Dios **lo gobierna en orden**. La <u>creación</u> no entra en confusión; entra en **obediencia momentánea**.
 
 #### A la luz de Tus flechas se fueron
 
 ##### La imagen vuelve al lenguaje militar. Las “flechas”: Implican dirección, precisión, propósito definido. La luz que emiten guía el movimiento.
 
-##### Esto sugiere que: Incluso los astros, ajustan su movimiento, según la acción de Dios. La guerra divina no es oscura; es **iluminadora**.
+##### Esto sugiere que: Incluso los astros, ajustan su <u>movimiento</u>, según la acción de Dios. La guerra divina no es oscura; es **iluminadora**.
 
 #### Al resplandor de Tu lanza fulgurante.
 
-##### La lanza refuerza la imagen de confrontación directa. El resplandor no es solo brillo, sino **manifestación visible de la autoridad** de Dios.
+##### La lanza refuerza la imagen de <u>confrontación</u> directa. El resplandor no es solo brillo, sino **manifestación visible de la autoridad** de Dios.
 
-##### Dios no actúa ocultamente. Su intervención es: Clara, perceptible, imposible de ignorar. Su gloria acompaña a Su juicio.
+##### Dios no actúa <u>ocultamente</u>. Su intervención es: Clara, perceptible, imposible de ignorar. Su gloria acompaña a Su juicio.
 
-- Habacuc 3:11 establece este principio: El Dios que gobierna la historia gobierna también el tiempo.
-- Ni los ciclos naturales ni los ritmos celestes operan independientemente de Él.
-- Dios había dicho: La visión tiene tiempo señalado, aunque tarde, vendrá.
-- Aquí se muestra que el tiempo mismo responde a Dios. La espera no significa ausencia de control.
-- Habacuc temía que: La injusticia avanzara sin freno, el tiempo favoreciera al impío.
-- Ahora ve que: Incluso el tiempo se detiene cuando Dios actúa. Nada corre fuera de Su alcance.
-- Este versículo: Eleva la manifestación de Dios a un plano universal máximo, muestra que la victoria de Dios afecta todo orden creado, prepara el retorno a la acción histórica concreta (3:12). Después de detener cielos y tiempo, Dios avanzará nuevamente **sobre la tierra**.
+- Habacuc 3:11 establece este principio: El Dios que <u>gobierna</u> la historia gobierna también el tiempo.
+- Ni los ciclos naturales ni los <u>ritmos</u> celestes operan independientemente de Él.
+- Dios había dicho: La visión tiene tiempo <u>señalado</u>, aunque tarde, vendrá.
+- Aquí se <u>muestra</u> que el tiempo mismo responde a Dios. La espera no significa ausencia de control.
+- Habacuc temía que: La <u>injusticia</u> avanzara sin freno, el tiempo favoreciera al impío.
+- Ahora ve que: Incluso el tiempo se detiene cuando Dios actúa. Nada corre <u>fuera</u> de Su alcance.
+- Este versículo: Eleva la manifestación de Dios a un plano universal <u>máximo</u>, muestra que la victoria de Dios afecta todo orden creado, prepara el retorno a la acción histórica concreta (3:12). Después de detener cielos y tiempo, Dios avanzará nuevamente **sobre la tierra**.
 
 ### Habacuc 3:12
 
@@ -2371,40 +2371,40 @@ Con indignación marchaste por la tierra; Con ira pisoteaste las naciones.
 
 #### Con indignación marchaste por la tierra
 
-El verbo **marchar** implica: Pisar con autoridad, someter, avanzar sin resistencia efectiva. No es desplazamiento casual. Es **dominio activo** de Dios sobre la faz de la tierra.
+El verbo **marchar** implica: Pisar con <u>autoridad</u>, someter, avanzar sin resistencia efectiva. No es desplazamiento casual. Es **dominio activo** de Dios sobre la faz de la tierra.
 
-La indignación aquí no es explosión emocional, sino **reacción dirigida**. Dios no pisa por capricho, sino como ejercicio de Su justicia soberana.  
+La indignación aquí no es explosión <u>emocional</u>, sino **reacción dirigida**. Dios no pisa por capricho, sino como ejercicio de Su justicia soberana.  
 
-"La indignación como modo de acción", Habacuc no suaviza el lenguaje.
+"La indignación como modo de acción", Habacuc no <u>suaviza</u> el lenguaje.
 
-La indignación no es negada, ni explicada, ni justificada. Simplemente es **afirmada**.
+La <u>indignación</u> no es negada, ni explicada, ni justificada. Simplemente es **afirmada**.
 
-Esto muestra que: La indignación de Dios es parte de Su actuar histórico, no es incompatible con Su santidad, no es contraria a Su propósito redentor. Habacuc ya no discute la indignación; la **reconoce**.
+Esto muestra que: La indignación de Dios es parte de Su <u>actuar</u> histórico, no es incompatible con Su santidad, no es contraria a Su propósito redentor. Habacuc ya no discute la indignación; la **reconoce**.
 
 #### por la tierra
 
-##### El objeto es amplio. No se limita a: Una ciudad, una nación, un enemigo específico.
+##### El objeto es amplio. No se <u>limita</u> a: Una ciudad, una nación, un enemigo específico.
 
-##### La tierra representa: el escenario completo de la acción humana, el ámbito donde su injusticia se manifiesta, el lugar que Habacuc antes veía dominado por el impío e ignorado por Dios. Dios no actúa solo en los márgenes; **Él atraviesa la tierra**.
+##### La tierra representa: el escenario <u>completo</u> de la acción humana, el ámbito donde su injusticia se manifiesta, el lugar que Habacuc antes veía dominado por el impío e ignorado por Dios. Dios no actúa solo en los márgenes; **Él atraviesa la tierra**.
 
 #### Con ira pisoteaste [trillaste - RV60] las naciones.
 
-##### La imagen agrícola es deliberada. **Trillar** implica: Separar, aplastar, exponer lo que no sirve, revelar lo que es real.
+##### La imagen agrícola es <u>deliberada</u>. **Trillar** implica: Separar, aplastar, exponer lo que no sirve, revelar lo que es real.
 
-##### No es destrucción caótica. Es **proceso discriminador**. El ira no elimina la intención; la **ejecuta**. 
+##### No es destrucción caótica. Es **proceso discriminador**. El ira no elimina la <u>intención</u>; la **ejecuta**. 
 
-##### Las naciones aquí no son identificadas por nombre, porque el punto no es histórico puntual, sino **principio universal**.
+##### Las naciones aquí no son identificadas por nombre, porque el punto no es <u>histórico</u> puntual, sino **principio universal**.
 
-##### Toda nación que: Se exalta, oprime, se sostiene en sangre, queda bajo esta acción. Esto responde directamente a la pregunta inicial: *¿Hasta cuándo dominará el impío?* 
+##### Toda nación que: Se <u>exalta</u>, oprime, se sostiene en sangre, queda bajo esta acción. Esto responde directamente a la pregunta inicial: *¿Hasta cuándo dominará el impío?* 
 
 ##### Respuesta implícita: **Hasta que Dios pise y trille.**
 
-- Habacuc 3:12 establece este principio: La ira de Dios no es pasiva ni teórica; se manifiesta históricamente con acción concreta.
-- La fe no ignora la ira de Dios; la **ubica dentro del gobierno justo de Dios**.
-- Habacuc comenzó viendo: Violencia sin corrección, dominio impune, justicia torcida.
-- Aquí ve que: La corrección no fue anulada, solo **postergada y redefinida** por el dueño de todo.
-- Dios no perdió control; estaba avanzando hacia Su momento señalado.
-- Este versículo: Afirma el carácter activo del juicio de Dios, conecta la revelación de Dios con la historia humana, prepara la revelación del **propósito** de esa acción (3:13). La pregunta ya no es *si* Dios juzga, sino **para qué** y **cómo** lo hace.
+- Habacuc 3:12 establece este principio: La ira de Dios no es <u>pasiva</u> ni teórica; se manifiesta históricamente con acción concreta.
+- La fe no <u>ignora</u> la ira de Dios; la **ubica dentro del gobierno justo de Dios**.
+- Habacuc comenzó viendo: Violencia sin corrección, dominio impune, <u>justicia</u> torcida.
+- Aquí ve que: La <u>corrección</u> no fue anulada, solo **postergada y redefinida** por el dueño de todo.
+- Dios no perdió control; estaba <u>avanzando</u> hacia Su momento señalado.
+- Este versículo: Afirma el carácter activo del juicio de Dios, <u>conecta</u> la revelación de Dios con la historia humana, prepara la revelación del **propósito** de esa acción (3:13). La pregunta ya no es *si* Dios juzga, sino **para qué** y **cómo** lo hace.
 
 ### Habacuc 3:13 
 
@@ -2412,47 +2412,47 @@ Saliste para salvar a Tu pueblo, Para salvar a Tu ungido. Destrozaste la cabeza 
 
 #### Saliste
 
-##### El verbo es decisivo. Dios no permanece distante, pasivo, observando desde lo alto. **Él sale**.
+##### El verbo es decisivo. Dios no <u>permanece</u> distante, pasivo, observando desde lo alto. **Él sale**.
 
-##### Esto indica: Iniciativa divina, involucramiento directo, compromiso histórico. La acción de Dios no es reacción al mal; es **movimiento deliberado hacia Sus propósito**.
+##### Esto indica: Iniciativa divina, involucramiento directo, compromiso histórico. La acción de Dios no es reacción al mal; es **movimiento <u>deliberado</u> hacia Sus propósito**.
 
 #### para salvar a Tu pueblo
 
-##### Aquí se revela claramente el **objetivo primario**. Dios actúa: No solo para juzgar, no solo para demostrar poder, sino **para salvar**.
+##### Aquí se revela claramente el **objetivo primario**. Dios actúa: No solo para <u>juzgar</u>, no solo para demostrar poder, sino **para salvar**.
 
-##### “Salvar” implica: Rescatar, auxiliar en peligro, intervenir ante la incapacidad humana. Esto responde directamente a la angustia inicial de Habacuc: *¿Por qué no salvas?* (1:2). 
+##### “Salvar” implica: Rescatar, <u>auxiliar</u> en peligro, intervenir ante la incapacidad humana. Esto responde directamente a la angustia inicial de Habacuc: *¿Por qué no salvas?* (1:2). 
 
-##### Respuesta: **Dios sí sale para salvar,** pero no en base al pensamiento humano, sino en base a Su propósito
+##### Respuesta: **Dios sí sale para salvar,** pero no en base al <u>pensamiento</u> humano, sino en base a Su propósito
 
 #### Para salvar a Tu ungido
 
-##### La repetición no es redundante; es **especificación**. El “ungido” señala: Al representante del pueblo, al instrumento elegido por Dios, a aquel sobre quien recae la promesa.
+##### La repetición no es redundante; es **especificación**. El “ungido” señala: Al <u>representante</u> del pueblo, al instrumento elegido por Dios, a aquel sobre quien recae la promesa.
 
-##### No se define aquí su identidad concreta, porque el énfasis está en la **relación con Dios**: Pertenece a Dios y por eso es protegido. La salvación es en base a la promesa de Dios.
+##### No se define aquí su <u>identidad</u> concreta, porque el énfasis está en la **relación con Dios**: Pertenece a Dios y por eso es protegido. La salvación es en base a la promesa de Dios.
 
 #### Destrozaste la cabeza de la casa del impío
 
-##### El lenguaje se vuelve directo y contundente. La “cabeza” representa: Autoridad, liderazgo, fuente de poder.
+##### El lenguaje se vuelve directo y contundente. La “cabeza” representa: <u>Autoridad</u>, liderazgo, fuente de poder.
 
-##### La “*casa del impío*” no es solo una persona, sino **un sistema organizado de maldad**. 
+##### La “*casa del impío*” no es solo una <u>persona</u>, sino **un sistema organizado de maldad**. 
 
-##### Traspasar la cabeza significa: Derrota decisiva, colapso del mando, fin del control injusto. El juicio no es superficial; va al **centro del poder**.
+##### Traspasar la cabeza significa: <u>Derrota</u> decisiva, colapso del mando, fin del control injusto. El juicio no es superficial; va al **centro del poder**.
 
 #### Descubriéndolo de arriba abajo
 
-##### Aquí se describe **desmantelamiento total**. No solo se derriba lo visible. Se expone lo oculto. Descubrir el cimiento implica: Revelar lo que sostenía la casa, mostrar su fragilidad, dejarla sin posibilidad de reconstrucción. La casa del impío no cae por accidente; es **desnudada hasta su base**.
+##### Aquí se describe **desmantelamiento total**. No solo se derriba lo visible. Se <u>expone</u> lo oculto. Descubrir el cimiento implica: Revelar lo que sostenía la casa, mostrar su fragilidad, dejarla sin posibilidad de reconstrucción. La casa del impío no cae por accidente; es **desnudada hasta su base**.
 
 #### Selah
 
-##### La pausa vuelve a aparecer, pero ahora con mayor peso.
+##### La pausa vuelve a aparecer, pero <u>ahora</u> con mayor peso.
 
-##### Después de salvación declarada, juicio ejecutado, poder central destruido, el lector es llamado a **detenerse y considerar**. La fe no corre. La fe **contempla**.
+##### Después de salvación declarada, juicio <u>ejecutado</u>, poder central destruido, el lector es llamado a **detenerse y considerar**. La fe no corre. La fe **contempla**.
 
-- Habacuc 3:13 establece este principio central: El juicio de Dios está subordinado a Su propósito salvador. Dios no juzga porque perdió paciencia, sino porque **protege lo que le pertenece** y esto en base a los tiempos que Él señala y Su Palabra.
-- La salvación y el juicio no son fuerzas opuestas, sino acciones coordinadas. El justo vive por fe porque: la salvación no siempre es visible al inicio, el juicio no siempre es inmediato, pero el propósito de Dios **es firme**, Él es la Roca.
-- La vida no viene de las circunstancias o confianza que Dios solucione lo que pensamos humanamente. La vida viene de la confianza puesta en el que Salva, el que actua, el que se relaciona como quien es, el Señor (Jehová).
-- Habacuc ahora ve que: La fe se trata de confiar en un Dios que sale para salvar aun cuando el camino incluye juicio.
-- Este versículo: Revela el motivo último de la manifestación de Dios, justifica la ira y el furor previos ya que no son contrarios a quien es Él, es más centra toda la acción de Dios en **redención**. Todo lo anterior converge aquí.
+- Habacuc 3:13 establece este principio central: El juicio de Dios está <u>subordinado</u> a Su propósito salvador. Dios no juzga porque perdió paciencia, sino porque **protege lo que le pertenece** y esto en base a los tiempos que Él señala y Su Palabra.
+- La salvación y el juicio no son fuerzas <u>opuestas</u>, sino acciones coordinadas. El justo vive por fe porque: la salvación no siempre es visible al inicio, el juicio no siempre es inmediato, pero el propósito de Dios **es firme**, Él es la Roca.
+- La vida no viene de las circunstancias o de la <u>confianza</u> que Dios solucione lo que pensamos humanamente. La vida viene de la confianza puesta en el que Salva, el que actúa, el que se relaciona como quien es, el Señor (Jehová).
+- Habacuc ahora ve que: La fe se trata de <u>confiar</u> en un Dios que sale para salvar aun cuando el camino incluye juicio.
+- Este versículo: Revela el motivo último de la <u>manifestación</u> de Dios, justifica la ira y el furor previos ya que no son contrarios a quien es Él, es más centra toda la acción de Dios en **redención**. Todo lo anterior converge aquí.
 
 ### Habacuc 3:14
 
