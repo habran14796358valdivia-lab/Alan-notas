@@ -1334,54 +1334,54 @@ Además, el vino traiciona al hombre arrogante, De modo que no se queda en casa.
 
 #### Y también
 
-##### Esta expresión conecta directamente con **2:4**. No introduce un tema nuevo. **Amplía** la descripción del que “cuya alma no es recta” delante de Dios, del orgulloso.
+##### Esta expresión conecta directamente con **2:4**. No <u>introduce</u> un tema nuevo. **Amplía** la descripción del que “cuya alma no es recta” delante de Dios, del orgulloso.
 
-##### El versículo 5 no es otro grupo distinto; es el **mismo tipo humano**, ahora descrito con más detalle.
+##### El versículo 5 no es otro grupo distinto; es el **mismo tipo humano**, ahora <u>descrito</u> con más detalle.
 
 #### el vino traiciona al hombre
 
-##### El vino aquí no funciona solo como bebida, sino como **imagen de descontrol y engaño**. El punto no es embriaguez literal, sino una vida: impulsada por deseo, desinhibida de límites, seducida por exceso. La traición no es accidental; es consecuencia de una vida sin dominio.
+##### El vino aquí no funciona solo como bebida, sino como **imagen de descontrol y engaño**. El punto no es embriaguez literal, sino una vida: impulsada por deseo, <u>desinhibida</u> de límites, seducida por exceso. La traición no es accidental; es consecuencia de una vida sin dominio.
 
 #### hombre arrogante
 
-##### Aquí Dios nombra explícitamente el rasgo central.
+##### Aquí Dios nombra <u>explícitamente</u> el rasgo central.
 
-- La arrogancia: rechaza dependencia, no acepta espera, se autojustifica, se expande sin freno.
-- Esto conecta directamente con: la justicia que procede de sí misma (1:7), la idolatría del poder (1:16), el orgullo de 2:4.
+- La arrogancia: rechaza dependencia, no acepta espera, se auto-justifica, se <u>expande</u> sin freno.
+- Esto conecta directamente con: la <u>justicia</u> que procede de sí misma (1:7), la idolatría del poder (1:16), el orgullo de 2:4.
 
 #### De modo que no se queda en casa.
 
-##### Esta es la primera afirmación clara de **límite**. El orgulloso parece estable, parece dominante, parece invencible, pero **no permanece**.
+##### Esta es la primera <u>afirmación</u> clara de **límite**. El orgulloso parece estable, parece dominante, parece invencible, pero **no permanece**.
 
-- Esto responde indirectamente a la pregunta de 1:17: *¿Esto continuará para siempre?*
+- Esto responde <u>indirectamente</u> a la pregunta de 1:17: *¿Esto continuará para siempre?*
 
 - Respuesta: **no**.
 
 #### Porque ensancha su garganta como el Seol
 
-##### La imagen es de **apetito infinito**. 
+##### La <u>imagen</u> es de **apetito infinito**. 
 
-##### El Seol: recibe constantemente, nunca se llena, no devuelve lo que toma. Así es el orgullo: siempre quiere más, nunca se satisface, no reconoce suficiencia.
+##### El Seol: recibe <u>constantemente</u>, nunca se llena, no devuelve lo que toma. Así es el orgullo: siempre quiere más, nunca se satisface, no reconoce suficiencia. Proverbios 27:20
 
 #### Y es como la muerte, que nunca se sacia
 
-##### La comparación se intensifica. La muerte no negocia, no se detiene, no se conmueve. El orgulloso vive con la misma lógica: expansión constante sin límite moral.
+##### La comparación se intensifica. La muerte no <u>negocia</u>, no se detiene, no se conmueve. El orgulloso vive con la misma lógica: expansión constante sin límite moral.
 
 #### Reúne para sí todas las naciones
 
-##### El verbo “reunir” muestra **apropiación**. Las naciones no son: responsabilidad, cuidado, administración. Son **posesión**.
+##### El verbo “reunir” muestra **apropiación**. Las <u>naciones</u> no son: responsabilidad, cuidado, administración. Son **posesión**.
 
-##### Esto conecta con la metáfora de la pesca y con la acumulación descrita en el capítulo 1.
+##### Esto conecta con la metáfora de la pesca y con la <u>acumulación</u> descrita en el capítulo 1.
 
 #### Y recoge para sí todos los pueblos
 
-##### La repetición refuerza la idea: expansión total, ambición sin frontera, dominio universal deseado. El orgulloso no conoce “suficiente”.
+##### La repetición refuerza la idea: expansión total, ambición sin <u>frontera</u>, dominio universal deseado. El orgulloso no conoce “suficiente”.
 
-##### Habacuc 2:5 completa el contraste iniciado en 2:4: el orgulloso → se expande, acumula, no se sacia, **no permanece**. el justo → espera, confía, **vive**.
+##### Habacuc 2:5 completa el <u>contraste</u> iniciado en 2:4: el orgulloso → se expande, acumula, no se sacia, **no permanece**. el justo → espera, confía, **vive**.
 
-- La diferencia no es poder, sino **postura ante el tiempo y la soberanía**.
-- Este versículo explica por qué el orgulloso colapsa, justifica los “ayes” que siguen, prepara el juicio detallado de 2:6–20. La expansión del orgullo **contiene su propia ruina**.
-- En **2:6**, Dios permitirá que los mismos pueblos oprimidos **respondan con burla y juicio**. Los ayes no son arbitrarios. Son respuesta histórica al orgullo.
+- La diferencia no es <u>poder</u>, sino **postura ante el tiempo y la soberanía**.
+- Este versículo explica por qué el orgulloso <u>colapsa</u>, justifica los “ayes” que siguen, prepara el juicio detallado de 2:6–20. La expansión del orgullo **contiene su propia ruina**.
+- En **2:6**, Dios permitirá que los mismos pueblos oprimidos **respondan con burla y juicio**. Los ayes no son <u>arbitrarios</u>. Son respuesta histórica al orgullo.
 
 ## En Síntesis (Habacuc 2:2–5)
 
@@ -1405,43 +1405,43 @@ El enfoque se desplaza del resultado al modo de vivir.
 
 #### ¿No pronunciarán todos estos contra él una sátira…?
 
-##### Dios introduce un **cambio de voz**. Hasta ahora: Dios hablaba, Habacuc respondía.
+##### Dios introduce un **cambio de voz**. Hasta ahora: Dios <u>hablaba</u>, Habacuc respondía.
 
-##### Ahora: **Los pueblos** hablan. Los mismos que fueron reunidos, capturados y dominados  (1:15; 2:5) se convierten en **testigos y acusadores**. 
+##### Ahora: **Los pueblos** hablan. Los mismos que <u>fueron</u> reunidos, capturados y dominados  (1:15; 2:5) se convierten en **testigos y acusadores**. 
 
-##### Esto señala un principio importante: la historia también responde.
+##### Esto señala un principio importante: la historia <u>también</u> responde.
 
 #### ¿...Y burlas e intrigas contra él?
 
-##### El juicio adopta forma de **burla pública**. No es solo condena formal; es: ridiculización, exposición, inversión de honor.
+##### El juicio adopta forma de **burla pública**. No es solo <u>condena</u> formal; es: ridiculización, exposición, inversión de honor. Isaías 14:4-19
 
-##### El poder que se burlaba de reyes (1:10) ahora se convierte en **objeto de burla**. La justicia no llega con solemnidad inmediata, sino con **desenmascaramiento**.
+##### El poder que se burlaba de reyes (1:10) ahora se <u>convierte</u> en **objeto de burla**. La justicia no llega con solemnidad inmediata, sino con **desenmascaramiento**. Jeremías 50:13
 
 #### Y dirán: “¡Ay del que aumenta lo que no es suyo
 
-##### Aquí se formula el cargo principal. El problema no es crecimiento en sí, sino **apropiación ilegítima**.
+##### Aquí se formula el cargo principal. El <u>problema</u> no es crecimiento en sí, sino **apropiación ilegítima**.
 
-##### El verbo “aumenta” conecta con: expansión del orgullo (2:5), acumulación sin límite, dominio por despojo. La riqueza y el poder no nacen del trabajo justo, sino del robo sistemático.
+##### El verbo “aumenta” conecta con: expansión del orgullo (2:5), <u>acumulación</u> sin límite, dominio por despojo. La riqueza y el poder no nacen del trabajo justo, sino del robo sistemático.
 
 #### ¿hasta cuándo?
 
-##### Esta pregunta es clave. Es **la misma pregunta** que Habacuc hizo en 1:2, pero ahora puesta en boca de las naciones.
-##### Esto muestra que: la impaciencia de Habacuc no era única, el clamor humano es compartido, Dios no ignoró esa pregunta. La diferencia es **quién responde y cuándo**.
+##### Esta pregunta es clave. Es **la misma pregunta** que Habacuc hizo en 1:2, pero ahora <u>puesta</u> en boca de las naciones.
+##### Esto muestra que: la impaciencia de Habacuc no era única, el clamor <u>humano</u> es compartido, Dios no ignoró esa pregunta. La diferencia es **quién responde y cuándo**.
 
 #### ¡...Y se hace rico con préstamos!
 
-##### La imagen es económica y moral, implica: opresión estructural, dependencia forzada, enriquecimiento a costa de otros. La violencia ya no es solo militar; es **sistémica**.
+##### La imagen es económica y moral, implica: opresión <u>estructural</u>, dependencia forzada, enriquecimiento a costa de otros. La violencia ya no es solo militar; es **sistémica**.
 
-##### El poder injusto crea obligaciones que benefician solo al dominante.
+##### El poder injusto crea <u>obligaciones</u> que benefician solo al dominante.
 
-##### Habacuc 2:6 marca el inicio de una **inversión histórica**: el que acumuló será acusado, el que dominó será juzgado, el que se burló será burlado. El juicio no es inmediato, pero es **inevitable**, deberá pagar la riqueza surgida de "préstamos".
-##### Este versículo: inicia la serie de cinco “ayes”, da voz a las víctimas, muestra que el orgullo no queda sin respuesta
+##### Habacuc 2:6 marca el inicio de una **inversión histórica**: el que <u>acumuló</u> será acusado, el que dominó será juzgado, el que se burló será burlado. El juicio no es inmediato, pero es **inevitable**, deberá pagar la riqueza surgida de "préstamos".
+##### Este versículo: inicia la serie de cinco “ayes”, da voz a las <u>víctimas</u>, muestra que el orgullo no queda sin respuesta
 
-##### Dios no defendió Su método antes, pero ahora muestra que **el método no cancela la justicia final**.
+##### Dios no defendió Su método antes, pero ahora <u>muestra</u> que **el método no cancela la justicia final**.
 
-##### En **2:7**, la burla se convierte en amenaza directa: los acreedores despertarán. La inversión no será solo verbal; será **histórica**.
+##### En **2:7**, la burla se convierte en amenaza directa: los acreedores <u>despertarán</u>. La inversión no será solo verbal; será **histórica**.
 
-##### El instrumento (los caldeos) que le Señor utilizaría para juicio a Israel y que llegaría a afectar a todas las naciones. También estarán bajo juicio en su debido tiempo por su injusticia delante de Dios.
+##### El instrumento (los caldeos) que le Señor utilizaría para <u>juicio</u> a Israel y que llegaría a afectar a todas las naciones. También estarán bajo juicio en su debido tiempo por su injusticia delante de Dios.
 
 ### Habacuc 2:7 
 
@@ -1449,33 +1449,33 @@ El enfoque se desplaza del resultado al modo de vivir.
 
 #### ¿No se levantarán de repente…?
 
-##### El juicio comienza con **sorpresa temporal**. La caída no es gradual ni anunciada. Es **repentina**.
-##### Esto confronta la ilusión del orgulloso: estabilidad prolongada, control continuo, dominio permanente. La historia no avisa cuando invierte el poder.
+##### El juicio <u>comienza</u> con **sorpresa temporal**. La caída no es gradual ni anunciada. Es **repentina**.
+##### Esto confronta la ilusión del orgulloso: estabilidad <u>prolongada</u>, control continuo, dominio permanente. La historia no avisa cuando invierte el poder.
 
 #### tus acreedores
 
-##### El lenguaje retoma directamente **2:6**. Los que antes estaban: cargados, oprimidos, endeudados, no desaparecieron. Fueron **retenidos en silencio**, pero no anulados.
+##### El lenguaje retoma directamente **2:6**. Los que antes estaban: cargados, <u>oprimidos</u>, endeudados, no desaparecieron. Fueron **retenidos en silencio**, pero no anulados. Jeremías 51:11, 27-28
 
-##### La deuda se convierte ahora en **memoria activa**.
+##### La deuda se <u>convierte</u> ahora en **memoria activa**.
 
 #### Y se despertarán
 
-##### El verbo sugiere una acción latente que irrumpe en su debido momento. No describe creación ni resurrección, sino activación. Los actores no estaban ausentes ni anulados, sino contenidos. 
+##### El verbo sugiere una acción latente que irrumpe en su debido momento. No describe creación ni resurrección, sino <u>activación</u>. Los actores no estaban ausentes ni anulados, sino contenidos. 
 
-##### El texto no explica el despertar; simplemente indica que ocurre cuando llega el momento. Los que Dios permitiría ser oprimidos por Babilonia, también se les concederá dar su debida respuesta contra Babilonio, es el Señor al control de todo aquello.
+##### El texto no explica el despertar; simplemente indica que ocurre cuando llega el momento. Los que Dios permitiría ser oprimidos por Babilonia, <u>también</u> se les concederá dar su debida respuesta contra Babilonio, es el Señor al control de todo aquello.
 
 #### tus cobradores ["los que te harán temblar" - RV60]
 
-##### Aquí ocurre la inversión psicológica. Antes Babilonia producía terror (1:9). Ahora Babilonia **temblará**. El temor cambia de dirección. El poder que intimidaba, el que Babilonia adoraba como su dios, ahora se vuelve **vulnerable**.
+##### Aquí ocurre la inversión psicológica. Antes Babilonia <u>producía</u> terror (1:9). Ahora Babilonia **temblará**. El temor cambia de dirección. El poder que intimidaba, el que Babilonia adoraba como su dios, ahora se vuelve **vulnerable**.
 
 #### Ciertamente serás despojo para ellos
 
-##### La imagen final es exacta y contundente. Antes Babilonia tomaba como botín, reunía pueblos para sí (2:5). Ahora **Babilonia es el botín**. La historia no elimina la lógica del poder humano; la **revierte**.
-- Habacuc 2:7 muestra que la expansión injusta crea las condiciones de su propia inversión. El juicio no viene de fuera del sistema, sino **desde dentro de la misma dinámica**, como conquistaron, serán conquistados.
+##### La imagen final es exacta y contundente. Antes Babilonia tomaba como botín, reunía pueblos para sí (2:5). Ahora **Babilonia es el botín**. La <u>historia</u> no elimina la lógica del poder humano; la **revierte**.
+- Habacuc 2:7 muestra que la <u>expansión</u> injusta crea las condiciones de su propia inversión. El juicio no viene de fuera del sistema, sino **desde dentro de la misma dinámica**, como conquistaron, serán conquistados.
 
-##### Este versículo completa el primer “ay”, responde al “¿hasta cuándo?” de 2:6, muestra que la espera no es olvido.  El orgulloso no cae por azar, sino como consecuencia de sus acciones pasadas.
+##### Este versículo completa el primer “ay”, responde al “¿hasta cuándo?” de 2:6, muestra que la espera no es olvido.  El orgulloso no cae por azar, sino como <u>consecuencia</u> de sus acciones pasadas.
 
-##### En **2:8**, Dios ampliará el juicio no solo por deudas económicas, sino por **violencia sistemática contra naciones enteras**. El alcance del “ay” se expande.
+##### En **2:8**, Dios ampliará el juicio no solo por deudas <u>económicas</u>, sino por **violencia sistemática contra naciones enteras**. El alcance del “ay” se expande.
 
 ### Habacuc 2:8 
 
@@ -1483,45 +1483,45 @@ Porque tú has despojado a muchas naciones, Todos los demás pueblos te despojar
 
 #### Porque tú has despojado a muchas naciones
 
-##### Aquí el “ay” se fundamenta explícitamente. El juicio no es arbitrario. Tiene **causa histórica identificable**.
+##### Aquí el “ay” se fundamenta <u>explícitamente</u>. El juicio no es arbitrario. Tiene **causa histórica identificable**.
 
-##### El verbo *despojar* implica: saqueo sistemático, privación forzada, enriquecimiento mediante pérdida ajena. No es una acción aislada. Es **patrón repetido**.
+##### El verbo *despojar* implica: saqueo sistemático, privación forzada, <u>enriquecimiento</u> mediante pérdida ajena. No es una acción aislada. Es **patrón repetido**.
 
 #### Todos los demás pueblos te despojarán a ti
 
-##### La inversión se universaliza. Ya no son solo los deudores inmediatos (2:7), sino **todos los pueblos restantes**.
-##### La violencia expansiva produce: resentimiento acumulado, memoria colectiva, respuesta múltiple. El que tomó de muchos será tomado por muchos.
+##### La inversión se universaliza. Ya no son solo los <u>deudores</u> inmediatos (2:7), sino **todos los pueblos restantes**.
+##### La violencia expansiva produce: resentimiento <u>acumulado</u>, memoria colectiva, respuesta múltiple. El que tomó de muchos será tomado por muchos. Isaías 33:1; Salmos 137:8
 
-##### Este versículo establece un principio claro: El método de expansión se convierte en el método de caída. No es venganza emocional. Es **correspondencia histórica**.
+##### Este versículo establece un principio claro: El <u>método</u> de expansión se convierte en el método de caída. No es venganza emocional. Es **correspondencia histórica**. Jeremías 30:16, 50:10-11, 51:24, 44, 48, 55-56
 
-##### La forma del pecado determina la forma del juicio.
+##### La forma del pecado <u>determina</u> la forma del juicio.
 
 #### Por la sangre humana
 
-##### Aquí la acusación se vuelve personal. La violencia no es abstracta. Tiene víctimas humanas reales.
+##### Aquí la acusación se vuelve personal. La <u>violencia</u> no es abstracta. Tiene víctimas humanas reales.
 
-##### La sangre derramada: clama, permanece, no se disuelve con el tiempo. Babilonia por ahora pasará a ser despojada de sus bienes, pero no solo por haber despojado a otras naciones, sino por la sangre derramada de hombres durante sus conquistas. El juicio no se trata de algo meramente económico 
+##### La sangre derramada: clama, permanece, no se disuelve con el tiempo. Babilonia por ahora pasará a ser despojada de sus bienes, pero no solo por haber <u>despojado</u> a otras naciones, sino por la sangre derramada de hombres durante sus conquistas. El juicio no se trata de algo meramente económico 
 
 #### y la violencia hecha a la tierra
 
-La acusación se amplía. No solo personas: la tierra (la creación de Dios) es dañada, el orden creado es violentado. La conquista deja: devastación ambiental, destrucción de sustento, ruina prolongada. El pecado tiene **efecto general de todo lo creado**, no solo fue afectado el ser humano.
+La acusación se amplía. No solo personas: la tierra (la creación de Dios) es dañada, el orden creado es violentado. La conquista deja: <u>devastación</u> ambiental, destrucción de sustento, ruina prolongada. El pecado tiene **efecto general de todo lo creado**, no solo fue afectado el ser humano.
 
 #### Al pueblo y a todos sus habitantes
 
-##### El juicio no ignora escala.
+##### El juicio no <u>ignora</u> escala.
 
-- Ciudades → Sistemas humanos
-- Moradores → Individuos dentro de esos sistemas
+- Ciudades → Sistemas <u>humanos</u>
+- Moradores → Individuos <u>dentro</u> de esos sistemas
 
-##### La violencia afecta organización social, vida cotidiana, generaciones enteras. Nada queda intacto. Esto deja claro que Dios no ignora el alcance total del daño humano.
+##### La violencia afecta organización social, vida <u>cotidiana</u>, generaciones enteras. Nada queda intacto. Esto deja claro que Dios no ignora el alcance total del daño humano.
 
-##### El juicio no responde solo a orgullo, sino a **sangre, destrucción y violencia acumulada**. Esto refuta cualquier idea de que Babilonia fue simplemente “usada” y olvidada.
+##### El juicio no responde solo a orgullo, sino a **sangre, <u>destrucción</u> y violencia acumulada**. Esto refuta cualquier idea de que Babilonia fue simplemente “usada” y olvidada.
 
-##### Este versículo cierra el primer “ay”, justifica plenamente la inversión anunciada, muestra que la espera no cancela la justicia. Dios gobierna el tiempo, pero **no suspende la responsabilidad de cada acto**.
+##### Este versículo cierra el primer “ay”, justifica plenamente la inversión anunciada, muestra que la espera no cancela la justicia. Dios <u>gobierna</u> el tiempo, pero **no suspende la responsabilidad de cada acto**.
 
-##### Dios muestra que el pecado no solo trae consecuencias negativas al ejecutor o las personas que lo rodean, sino a todo lo que lo rodea, esto incluye la misma tierra, la creación de Dios. El pecado es totalmente opuesto a todo lo bueno que creo Dios, y surge del orgulloso, del que anda en independencia de Dios y no por la fe en Él.
+##### Dios muestra que el pecado no solo trae consecuencias negativas al ejecutor o las personas que lo rodean, sino a todo lo que lo rodea, esto <u>incluye</u> la misma tierra, la creación de Dios. El pecado es totalmente opuesto a todo lo bueno que creo Dios, y surge del orgulloso, del que anda en independencia de Dios y no por la fe en Él.
 
-##### En **2:9**, el segundo “ay” comienza. El enfoque cambiará de violencia externa a **seguridad construida sobre injusticia**. El problema ya no es solo lo que se toma, sino **para qué se toma**.
+##### En **2:9**, el segundo “ay” comienza. El enfoque cambiará de violencia externa a **<u>seguridad</u> construida sobre injusticia**. El problema ya no es solo lo que se toma, sino **para qué se toma**.
 
 ## Habacuc 2:9–11 Segundo ay: "La seguridad edificada sobre injusticia"
 
@@ -1531,28 +1531,28 @@ La acusación se amplía. No solo personas: la tierra (la creación de Dios) es 
 
 #### ¡Ay del que obtiene [codicia - RV60] ganancias ilícitas...!
 
-##### El segundo “ay” comienza con el **motivo interno**. No es solo despojo externo (2:6–8), sino **codicia deliberada**. La ganancia es: deseada, perseguida, calculada.  Y es **injusta** desde su origen, no solo en su uso.
+##### El segundo “ay” comienza con el **motivo interno**. No es solo despojo externo (2:6–8), sino **codicia deliberada**. La ganancia es: deseada, <u>perseguida</u>, calculada.  Y es **injusta** desde su origen, no solo en su uso. Proverbios 18.11-12
 #### para su casa
 
-##### La injusticia no es accidental ni improvisada. Tiene un objetivo claro: consolidación, permanencia, beneficio propio y doméstico
+##### La injusticia no es accidental ni <u>improvisada</u>. Tiene un objetivo claro: consolidación, permanencia, beneficio propio y doméstico
 
-##### La “casa” representa: estabilidad, herencia, continuidad. El pecado ahora se muestra **estratégico**, no impulsivo. La naturaleza humana, el pensamiento del hombre incrédulo hacia Dios, busca lo suyo pero desde la codicia a partir de lo ganado injustamente.
+##### La “casa” representa: estabilidad, herencia, continuidad. El pecado ahora se muestra **estratégico**, no impulsivo. La naturaleza humana, el <u>pensamiento</u> del hombre incrédulo hacia Dios, busca lo suyo pero desde la codicia a partir de lo ganado injustamente.
 
 #### Para poner en alto su nido
 
-##### La imagen del nido introduce **auto-protección**. El nido alto sugiere: inaccesibilidad, seguridad, distancia del peligro. El poder injusto no solo quiere dominar; quiere **protegerse de las consecuencias**, confía en la seguridad propia que puede conseguirse, su seguridad no proviene del Dios Soberano.
+##### La imagen del nido introduce **auto-protección**. El nido alto sugiere: inaccesibilidad, seguridad, distancia del peligro. El poder <u>injusto</u> no solo quiere dominar; quiere **protegerse de las consecuencias**, confía en la seguridad propia que puede conseguirse, su seguridad no proviene del Dios Soberano. Salmos 52:7
 
 #### ¡...Para librarse de la mano de la calamidad!
 
-##### Aquí aparece una ironía profunda. El que actúa con maldad: intenta protegerse del mal, busca inmunidad frente al juicio, quiere seguridad sin rendición de cuentas. El problema no es solo injusticia, sino **ilusión de invulnerabilidad**.
+##### Aquí aparece una ironía profunda. El que actúa con maldad: intenta protegerse del mal, busca inmunidad frente al juicio, quiere <u>seguridad</u> sin rendición de cuentas. El problema no es solo injusticia, sino **ilusión de invulnerabilidad**.
 
-##### Habacuc 2:9 revela un principio importante: La injusticia no busca solo beneficio, busca **seguridad independiente de Dios**. La altura del nido es una alternativa a la confianza. 
+##### Habacuc 2:9 revela un principio importante: La injusticia no busca solo beneficio, busca **seguridad independiente de Dios**. La altura del nido es una <u>alternativa</u> a la confianza. 
 
-- El justo: vive por fe, espera el tiempo señalado
-- El orgulloso: acumula injustamente, se eleva, busca escapar de la consecuencia de sus acciones.
-- Ambos enfrentan la inseguridad, pero responden de maneras opuestas.
+- El justo: vive por fe, espera el <u>tiempo</u> señalado
+- El orgulloso: acumula <u>injustamente</u>, se eleva, busca escapar de la consecuencia de sus acciones.
+- Ambos enfrentan la <u>inseguridad</u>, pero responden de maneras opuestas.
 
-##### Este versículo introduce el segundo “ay”, expone la motivación del poder injusto, prepara el juicio específico que sigue (2:10–11). La altura que logre no le salvará. El nido que construya no le protegerá.
+##### Este versículo introduce el segundo “ay”, expone la <u>motivación</u> del poder injusto, prepara el juicio específico que sigue (2:10–11). La altura que logre no le salvará. El nido que construya no le protegerá.
 
 ### Habacuc 2:10
 
@@ -1560,21 +1560,21 @@ Has tramado cosa vergonzosa para tu casa, Destruyendo a muchos pueblos, Pecando 
 
 #### Has tramado cosa vergonzosa para tu casa
 
-##### La expresión “has tramado” es significativa. No fue un error. No fue un accidente. Fue **deliberado**. El poder injusto planificó, calculó, decidió su camino. Pero el resultado de esa estrategia no fue seguridad, sino **vergüenza**.
-##### La casa que debía ser protegida se convierte en fuente de deshonra. En 2:9, el objetivo era: poner el nido en alto, escapar del mal, asegurar la casa. En 2:10, el resultado es lo opuesto: exposición, humillación, deshonra pública. La injusticia **fracasa en su propio propósito**.
+##### La expresión “has tramado” es significativa. No fue un error. No fue un <u>accidente</u>. Fue **deliberado**. El poder injusto planificó, calculó, decidió su camino. Pero el resultado de esa estrategia no fue seguridad, sino **vergüenza**.
+##### La casa que debía ser protegida se convierte en fuente de deshonra. En 2:9, el objetivo era: poner el nido en alto, escapar del mal, <u>asegurar</u> la casa. En 2:10, el resultado es lo opuesto: exposición, humillación, deshonra pública. La injusticia **fracasa en su propio propósito**.
 
 #### Destruyendo a muchos pueblos
 
-##### Aquí se nombra nuevamente el medio. La vergüenza no surge de mala suerte, sino de **violencia ejercida conscientemente**. El progreso de uno: requirió la ruina de muchos, se construyó sobre pérdida ajena, acumuló culpa histórica. La casa se levantó con escombros humanos.
+##### Aquí se nombra nuevamente el medio. La vergüenza no surge de mala suerte, sino de **violencia ejercida conscientemente**. El progreso de uno: requirió la <u>ruina</u> de muchos, se construyó sobre pérdida ajena, acumuló culpa histórica. La casa se levantó con escombros humanos.
 
 #### Pecando contra ti mismo.
 
 ##### Una traducción literal sería: *has pecado contra tu **alma***
 
-##### Este es uno de los enunciados más penetrantes del pasaje. El pecado no solo afectó: a otros pueblos, a sistemas externos, a víctimas visibles. Afectó **al propio ser**. El alma: quedó dañada, quedó corrompida, quedó culpable. La injusticia no solo destruye fuera; **destruye desde dentro**.
+##### Este es uno de los enunciados más penetrantes del pasaje. El pecado no solo afectó: a otros pueblos, a sistemas externos, a víctimas visibles. <u>Afectó</u> **al propio ser**. El alma: quedó dañada, quedó corrompida, quedó culpable. La injusticia no solo destruye fuera; **destruye desde dentro**.
 
-##### Habacuc 2:10 muestra que La seguridad construida sobre injusticia produce vergüenza externa y corrupción interna. El pecado promete protección, pero deja **culpa y exposición**.
-##### Esto confirma el fracaso del “nido alto”, conecta injusticia externa con daño interno, prepara el testimonio silencioso que sigue (2:11). La casa injusta no queda en silencio.
+##### Habacuc 2:10 muestra que La seguridad <u>construida</u> sobre injusticia produce vergüenza externa y corrupción interna. El pecado promete protección, pero deja **culpa y exposición**.
+##### Esto confirma el fracaso del “nido alto”, conecta <u>injusticia</u> externa con daño interno, prepara el testimonio silencioso que sigue (2:11). La casa injusta no queda en silencio.
 
 ### Habacuc 2:11
 
@@ -1582,28 +1582,28 @@ Ciertamente la piedra clamará desde el muro, Y la viga le contestará desde el 
 
 #### Ciertamente
 
-##### El versículo comienza con **conexión causal**. Lo que sigue **explica** la afirmación previa: la vergüenza consultada (2:10), el pecado contra el alma (2:10). Nada queda sin testimonio.
+##### El versículo comienza con **conexión causal**. Lo que sigue **explica** la <u>afirmación</u> previa: la vergüenza consultada (2:10), el pecado contra el alma (2:10). Nada queda sin testimonio.
 
 #### la piedra clamará desde el muro
 
-##### Aquí ocurre algo decisivo: **la creación inanimada habla**. La piedra: no tiene voz propia, no participa moralmente, no decide. Y aun así **clama**.
+##### Aquí ocurre algo decisivo: **la creación inanimada habla**. La piedra: no <u>tiene</u> voz propia, no participa moralmente, no decide. Y aun así **clama**.
 
-##### Esto implica que la injusticia deja huella objetiva, el pecado queda inscrito en la obra misma, la evidencia no depende de testigos humanos. El **muro construido** para protección se convierte en **acusador**.
+##### Esto implica que la injusticia deja huella objetiva, el pecado queda inscrito en la obra misma, la evidencia no depende de <u>testigos</u> humanos. El **muro construido** para protección se convierte en **acusador**.
 
 #### desde el muro
 
-##### El lugar es importante. El muro representa seguridad, defensa, fortaleza, separación del peligro. Precisamente aquello que debía proteger es lo que **expone la culpa**. La injusticia queda atrapada en su propia arquitectura.
+##### El lugar es importante. El muro representa seguridad, defensa, fortaleza, separación del peligro. Precisamente aquello que debía <u>proteger</u> es lo que **expone la culpa**. La injusticia queda atrapada en su propia arquitectura.
 
 #### Y la viga le contestará desde el armazón
 
-##### El testimonio es **coral**, no aislado. No solo una piedra. No solo un punto débil. Todo el sistema constructivo piedra, madera, estructura completa responde y confirma la acusación. La casa injusta **no puede guardar silencio**.
+##### El testimonio es **coral**, no aislado. No solo una piedra. No solo un punto débil. Todo el sistema constructivo piedra, madera, estructura <u>completa</u> responde y confirma la acusación. La casa injusta **no puede guardar silencio**.
 
-##### Habacuc 2:11 establece este principio: La injusticia deja evidencia estructural que eventualmente se manifiesta. No todo juicio viene de palabras humanas.  A veces, la obra misma condena al autor.
+##### Habacuc 2:11 establece este principio: La <u>injusticia</u> deja evidencia estructural que eventualmente se manifiesta. No todo juicio viene de palabras humanas.  A veces, la obra misma condena al autor.
 
-- El orgulloso: Construye para asegurarse eleva su nido confía en estructuras visibles, en su poder.
-- El justo: Vive por fe, no descansa en lo edificado, no necesita ocultar su obra. Lo construido sin fe termina hablando contra su constructor.
+- El orgulloso: Construye para asegurarse eleva su nido <u>confía</u> en estructuras visibles, en su poder.
+- El justo: Vive por fe, no descansa en lo <u>edificado</u>, no necesita ocultar su obra. Lo construido sin fe termina hablando contra su constructor.
 
-##### Este versículo cierra el segundo “ay”, demuestra que la injusticia no puede ocultarse, prepara el tercer “ay” (2:12). El juicio ahora avanzará del **hogar privado** a la **ciudad entera**.
+##### Este versículo cierra el segundo “ay”, demuestra que la <u>injusticia</u> no puede ocultarse, prepara el tercer “ay” (2:12). El juicio ahora avanzará del **hogar privado** a la **ciudad entera**.
 
 ## Habacuc 2:12–14 Tercer ay: "El trabajo que no permanece"
 
@@ -1613,35 +1613,35 @@ Ciertamente la piedra clamará desde el muro, Y la viga le contestará desde el 
 
 #### ¡Ay del que edifica una ciudad…!
 
-##### El alcance del juicio se **expande**. Ya no es: una casa (2:9–11), una estructura privada, una seguridad doméstica. Ahora es **la ciudad**: proyecto colectivo, sistema social, orden civil. El pecado deja de ser individual y se muestra **institucional**.
+##### El alcance del juicio se **expande**. Ya no es: una casa (2:9–11), una estructura privada, una seguridad doméstica. Ahora es **la ciudad**: proyecto <u>colectivo</u>, sistema social, orden civil. El pecado deja de ser individual y se muestra **institucional**.
 
 #### con sangre
 
-##### La acusación es directa y sin matices. “Sangre” implica: muerte real, violencia letal, vidas sacrificadas para sostener el sistema.
+##### La acusación es directa y sin matices. “Sangre” implica: <u>muerte</u> real, violencia letal, vidas sacrificadas para sostener el sistema.
 
-##### No es daño colateral. Es **fundamento**. La ciudad se levanta **sobre cuerpos**, no sobre justicia.
+##### No es daño colateral. Es **fundamento**. La ciudad se <u>levanta</u> **sobre cuerpos**, no sobre justicia.
 
 #### ¡...Y funda un pueblo con violencia...!
 
-##### La repetición refuerza el cargo.
+##### La <u>repetición</u> refuerza el cargo.
 
-- *edifica* → Construcción visible
-- *funda* → Base, origen, principio rector
+- *edifica* → <u>Construcción</u> visible
+- *funda* → Base, origen, <u>principio</u> rector
 
-##### La violencia no es un defecto posterior; está **en el diseño**. El sistema nace torcido.
+##### La violencia no es un defecto <u>posterior</u>; está **en el diseño**. El sistema nace torcido.
 
-##### El versículo usa paralelismo para intensificar:
+##### El versículo usa <u>paralelismo</u> para intensificar:
 
-- Ciudad + Sangre
-- Pueblo + Violencia
+- Ciudad + <u>Sangre</u>
+- <u>Pueblo</u> + Violencia
 
-##### Esto muestra que la violencia sostiene la estructura, la injusticia define la lógica interna, No hay contradicción entre éxito urbano y corrupción moral; coexisten.
+##### Esto muestra que la violencia <u>sostiene</u> la estructura, la injusticia define la lógica interna, No hay contradicción entre éxito urbano y corrupción moral; coexisten.
 
-##### Habacuc 2:12 establece este principio: Un orden social puede prosperar visiblemente mientras está moralmente condenado desde su fundamento. El crecimiento externo no es evidencia de aprobación Dios.
+##### Habacuc 2:12 establece este principio: Un orden <u>social</u> puede prosperar visiblemente mientras está moralmente condenado desde su fundamento. El crecimiento externo no es evidencia de aprobación Dios.
 
-##### Este “ay” responde a la pregunta inicial del libro: Habacuc vio violencia en Judá (1:3), Dios mostró violencia en Babilonia (1:6–11). Aquí queda claro: **Dios no ignora ninguna de las dos.** La justicia divina no distingue por éxito, sino por fundamento, porque medios vino ese "exito".
+##### Este “ay” responde a la pregunta inicial del libro: Habacuc vio violencia en Judá (1:3), Dios mostró violencia en Babilonia (1:6–11). Aquí queda claro: **Dios no ignora ninguna de las dos.** La justicia divina no distingue por éxito, sino por <u>fundamento</u>, porque medios vino ese "éxito".
 
-##### Este versículo: introduce el tercer “ay”, desplaza el juicio al plano de civilización, prepara la corrección de quién es Dios que seguirá a continuación (2:13). La pregunta ahora no es solo **qué se construye**, sino **para quién y con qué propósito**.
+##### Este versículo: introduce el tercer “ay”, <u>desplaza</u> el juicio al plano de civilización, prepara la corrección de quién es Dios que seguirá a continuación (2:13). La pregunta ahora no es solo **qué se construye**, sino **para quién y con qué propósito**.
 
 ### Habacuc 2:13 
 
