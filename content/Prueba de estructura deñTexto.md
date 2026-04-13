@@ -77,7 +77,7 @@ Tito
 
   ---
 
-  (Por esta) causa 
+  Por esta causa 
   te ==dejé== en Creta, 
   (para que) ==pusieras== en orden lo que queda, 
   (y) ==designaras== ancianos en cada ciudad 
@@ -88,11 +88,11 @@ Tito
 
   ---
 
-  (Antes bien),
+  Antes bien,
   ==debe== ser hospitalario, amante de lo bueno, prudente, justo, santo, dueño de sí mismo.
   ==Debe== retener la palabra fiel que es conforme a la enseñanza,
   (para que) ==sea== capaz también de exhortar con sana doctrina y refutar a los que contradicen.
-  (Porque) ==hay== muchos rebeldes, habladores vanos y engañadores, especialmente los de la circuncisión, 
+  Porque ==hay== muchos rebeldes, habladores vanos y engañadores, especialmente los de la circuncisión, 
   a quienes 
   ==es== preciso tapar la boca,
   (porque) ==están== trastornando familias enteras,
@@ -108,7 +108,7 @@ Tito
   (Por eso), ==repréndelos== severamente 
   (para que) ==sean sanos== en la fe, y no presten atención a mitos judaicos y a mandamientos de hombres que se apartan de la verdad. 
   Todas las cosas son puras para los puros, 
-  (pero) para los ==corrompidos== e incrédulos nada es puro, 
+  pero para los ==corrompidos== e incrédulos nada es puro, 
   (sino) que tanto su mente como su conciencia 
   están ===corrompidas==.
   ==Profesan== conocer a Dios, 
@@ -116,4 +116,154 @@ Tito
 
   ---
 
-  5.
+  
+
+5.  Bases y dependientes
+
+  ---
+
+  (que) ==es== según la piedad
+
+  
+
+  ==prometió== desde los tiempos eternos,
+
+  
+
+  (y) a su debido tiempo,
+  ==manifestó== Su palabra por la predicación 
+
+  
+
+  (que) me fue ==confiada==
+
+  ---
+
+  te ==dejé== en Creta, 
+  	(para que) ==pusieras== en orden lo que queda, 
+
+  
+
+  (y) ==designaras== ancianos en cada ciudad 
+
+  
+
+  Lo ==designarás==,
+
+  ​		(si) el anciano ==es== irreprensible
+
+  
+
+  ---
+
+  ==Debe== retener la palabra fiel 
+  	(para que) ==sea== capaz también de exhortar con sana doctrina y refutar a los que contradicen.
+
+  
+
+  ==es== preciso tapar la boca,
+  	(porque) ==están== trastornando 
+
+  
+
+  (que) no ==deben==. 
+  
+
+  ---
+
+  Por eso, ==repréndelos== severamente 
+  			(para que) ==sean sanos== en la fe, 
+
+  
+
+  pero para los ==corrompidos== e incrédulos nada es puro, 
+  				(sino) que tanto su mente como su conciencia están ===corrompidas==.
+
+  
+
+  ==Profesan== conocer a Dios, 
+  	(pero) con sus hechos lo ==niegan==, 
+
+  ---
+
+  
+
+6.  Lectura
+
+  
+
+  ---
+
+  
+
+  (que) ==es== según la piedad
+
+  que describe?
+
+  ==prometió== desde los tiempos eternos,
+
+  
+
+  (y) a su debido tiempo,
+
+  que se añade?
+
+  ==manifestó== Su palabra por la predicación 
+
+  
+
+  (que) me fue ==confiada==
+
+  que describe?
+
+  ---
+
+  te ==dejé== en Creta, 
+  	(para que) ==pusieras== en orden lo que queda, 
+
+  
+
+  (y) ==designaras== ancianos en cada ciudad 
+
+  
+
+  Lo ==designarás==,
+
+  ​		(si) el anciano ==es== irreprensible
+
+  
+
+  ---
+
+  ==Debe== retener la palabra fiel 
+  	(para que) ==sea== capaz también de exhortar con sana doctrina y refutar a los que contradicen.
+
+  
+
+  ==es== preciso tapar la boca,
+  	(porque) ==están== trastornando 
+
+  
+
+  (que) no ==deben==. 
+  
+  
+
+  ---
+
+  Por eso, ==repréndelos== severamente 
+  			(para que) ==sean sanos== en la fe, 
+
+  
+
+  pero para los ==corrompidos== e incrédulos nada es puro, 
+  				(sino) que tanto su mente como su conciencia están ===corrompidas==.
+
+  
+
+  ==Profesan== conocer a Dios, 
+  	(pero) con sus hechos lo ==niegan==, 
+
+  ---
+
+  
