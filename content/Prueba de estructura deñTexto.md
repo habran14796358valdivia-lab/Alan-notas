@@ -272,11 +272,11 @@ Tito
 
    
 
-   Por eso, ==repréndelos== severamente
+   (Por eso), ==repréndelos== severamente
 
    
 
-   para que ==sean sanos== en la fe, y no presten atención a mitos judaicos y a mandamientos de hombres que se apartan de la verdad. 
+   (para que) ==sean sanos== en la fe, y no presten atención a mitos judaicos y a mandamientos de hombres que se apartan de la verdad. 
 
    
 
@@ -284,7 +284,7 @@ Tito
 
    
 
-   sino que tanto su mente como su conciencia están ===corrompidas==.
+   (sino) que tanto su mente como su conciencia están ===corrompidas==.
 
    
 
@@ -292,15 +292,195 @@ Tito
 
    
 
-   pero con sus hechos ==lo niegan==, siendo abominables y desobedientes e inútiles para cualquier obra buena.
+   (pero) con sus hechos ==lo niegan==, siendo abominables y desobedientes e inútiles para cualquier obra buena.
 
    ---
 
    
 
+paso 5
 
 
 
+Uno de ellos,
+
+su propio profeta, ==dijo==: «Los cretenses son siempre mentirosos, malas bestias, glotones ociosos». 
+
+
+
+Este testimonio ==es== verdadero. 
+
+
+
+​		(Por eso), ==repréndelos== severamente
+
+
+
+​		(para que) ==sean sanos== en la fe, y no presten atención a mitos judaicos y a mandamientos de hombres que se apartan de la verdad. 
+
+
+
+Todas las cosas son puras para los puros, pero para los corrompidos e incrédulos nada es puro,
+
+
+
+​		(sino) que tanto su mente como su conciencia ==están corrompidas==.
+
+
+
+ ==Profesan== conocer a Dios, 
+
+
+
+​		(pero) con sus hechos ==lo niegan==, siendo abominables y desobedientes e inútiles para cualquier obra buena.
+
+---
+
+
+
+paso 6
+
+
+
+
+
+Uno de ellos,
+
+su propio profeta, ==dijo==: «Los cretenses son siempre mentirosos, malas bestias, glotones ociosos». 
+
+
+
+Este testimonio ==es== verdadero. 
+
+
+
+Por eso, ==repréndelos== severamente
+
+
+
+​		(para que) ==sean sanos== en la fe, y no presten atención a mitos judaicos y a mandamientos de hombres que se apartan de la verdad. 
+
+``¿Para que propósito? Para que sean sanos ``
+
+
+
+Todas las cosas son puras para los puros, pero para los corrompidos e incrédulos nada es puro,
+
+
+
+​		(sino) que tanto su mente como su conciencia ==están corrompidas==.
+
+​        ``¿Que contrasta?``  Están corrompidas
+
+
+
+ ==Profesan== conocer a Dios, 
+
+
+
+​		(pero) con sus hechos ==lo niegan==, siendo abominables y desobedientes e inútiles para cualquier obra buena.
+
+ 	``¿Que contrasta?``  Con sus hechos lo niegan
+
+---
+
+
+
+paso 7
+
+
+
+su propio profeta, ==dijo==: 
+
+
+
+Este testimonio ==es== verdadero. 
+
+
+
+Por eso, ==repréndelos== severamente
+
+
+
+​		(para que) ==sean sanos== en la fe
+
+
+
+​		(sino)  ==están corrompidas==.
+
+
+
+ ==Profesan== conocer a Dios, 
+
+
+
+​		(pero) con sus hechos ==lo niegan==, 
+
+ 
+
+---
+
+
+
+paso 8
+
+
+
+su propio profeta, ==dijo==: 
+
+
+
+Este testimonio ==es== verdadero. 
+
+
+
+Por eso, ==repréndelos== severamente
+
+
+
+ ==Profesan== conocer a Dios, 
+
+
+
+
+
+---
+
+
+
+paso 9
+
+::EXPONE::
+
+su propio profeta, ==dijo==: 
+
+::EXPONE::
+
+Este testimonio ==es== verdadero. 
+
+::RAZON::
+
+Por eso, ==repréndelos== severamente
+
+::EXPONE::
+
+ ==Profesan== conocer a Dios, 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+por si 
 
 
 
