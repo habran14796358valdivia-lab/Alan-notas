@@ -76,15 +76,15 @@ Tito
 
      
 
-     la cual Dios, que no miente, ==prometió== desde los tiempos eternos, 
+     la cual Dios, que no miente, ==prometió== desde los tiempos eternos, y a su debido tiempo,
 
      
 
-     y a su debido tiempo, ==manifestó== Su palabra 
+      ==manifestó== Su palabra por la predicación
 
      
 
-     por la predicación que ==me fue confiada==, conforme al mandamiento de Dios nuestro Salvador, a Tito, verdadero hijo en la común fe: Gracia y paz de parte de Dios el Padre y de Cristo Jesús nuestro Salvador.
+     que ==me fue confiada==, conforme al mandamiento de Dios nuestro Salvador, a Tito, verdadero hijo en la común fe: Gracia y paz de parte de Dios el Padre y de Cristo Jesús nuestro Salvador.
 
      ---
 
@@ -106,7 +106,7 @@ Tito
 
      
 
-      si el anciano ==es== irreprensible, marido de una sola mujer, que tenga hijos creyentes, no acusados de disolución ni de rebeldía. 
+     si el anciano ==es== irreprensible, marido de una sola mujer, que tenga hijos creyentes, no acusados de disolución ni de rebeldía. 
 
      
 
@@ -126,19 +126,19 @@ Tito
 
      
 
-     Porque ==hay== muchos rebeldes, habladores vanos y engañadores, 
+     Porque ==hay== muchos rebeldes, habladores vanos y engañadores, especialmente los de la circuncisión, 
 
      
 
-     especialmente los de la circuncisión, a quienes ==es== preciso tapar la boca,
+     a quienes ==es== preciso tapar la boca,
 
      
 
-     porque ==están trastornando== familias enteras, 
+     porque ==están trastornando== familias enteras, enseñando por ganancias deshonestas, 
 
      
 
-     enseñando por ganancias deshonestas, cosas que no ==deben==.
+     cosas que no ==deben==.
 
      
 
@@ -146,9 +146,9 @@ Tito
 
      
 
-     Uno de ellos,
+     Uno de ellos, su propio profeta,
 
-     su propio profeta, ==dijo==: «Los cretenses son siempre mentirosos, malas bestias, glotones ociosos». 
+     ==dijo==: «Los cretenses son siempre mentirosos, malas bestias, glotones ociosos». 
 
      
 
@@ -222,11 +222,11 @@ Tito
 
    
 
-    si el anciano ==es== irreprensible, marido de una sola mujer, que tenga hijos creyentes, no acusados de disolución ni de rebeldía. 
+   (si) el anciano ==es== irreprensible, marido de una sola mujer, que tenga hijos creyentes, no acusados de disolución ni de rebeldía. 
 
    
 
-   Porque el obispo ==debe== ser irreprensible como administrador de Dios, no obstinado, no iracundo, no dado a la bebida, no pendenciero, no amante de ganancias deshonestas. 
+   (Porque) el obispo ==debe== ser irreprensible como administrador de Dios, no obstinado, no iracundo, no dado a la bebida, no pendenciero, no amante de ganancias deshonestas. 
 
    
 
