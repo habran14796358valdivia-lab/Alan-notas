@@ -224,10 +224,10 @@ paso 9
 
 ==Subí== por causa de una revelación 
 
-::EXPONE::
+::CONTRASTE::
 
 ni había ==corrido== en vano. 
 
-::EXPONE::
+::CONTRASTE::
 
 ==fue obligado== a circuncidarse,
