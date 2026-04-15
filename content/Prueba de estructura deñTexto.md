@@ -556,3 +556,74 @@ por si
 ---
 
 4. 
+
+
+
+
+
+
+
+[1:1–16]
+
+::EXPONE::
+ἐπηγγείλατο (prometió)
+
+::EXPONE::
+ἀφήκα (dejé)
+
+::EXPONE::
+δεῖ (es necesario)
+
+::EXPONE::
+εἰσιν (son)
+
+::EXPONE::
+εἶπεν (dijo)
+
+::CONTRASTA::
+ὁμολογοῦσιν (profesan)
+
+::CONTRASTA::
+ἀρνοῦνται (niegan)
+
+
+[2:1–15]
+
+::EXPONE::
+λάλει (habla)
+
+::EXPONE::
+πρέπει (es apropiado)
+
+::EXPONE::
+παρακαλεῖ (exhorta)
+
+::RAZÓN::
+ἐπεφάνη (se manifestó)
+
+::EXPONE::
+ἔδωκεν (dio)
+
+
+[3:1–15]
+
+::EXPONE::
+ἦμεν (éramos)
+
+::EXPONE::
+ἐπεφάνη (se manifestó)
+
+::EXPONE::
+βούλομαί (quiero)
+
+::EXPONE::
+ἀπότρεπου (evita)
+
+::EXPONE::
+πέμψω (enviaré)
+
+::EXPONE::
+μανθανέτωσαν (aprendan)
+
+::EXPONE::
+ἀσπάζονται (saludan)
