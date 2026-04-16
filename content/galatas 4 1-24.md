@@ -52,15 +52,17 @@ Paso 3
 
 
 
-==Digo==, pues: mientras el heredero 
+==Digo==, pues: 
 
-==es== menor de edad,
+mientras el heredero =es== menor de edad,
 
 en nada ==es diferente== del siervo, aunque sea el dueño de todo, 
 
 sino que ==está== bajo guardianes y tutores hasta la edad señalada por el padre. 
 
-Así también nosotros, mientras ==éramos== niños, 
+Así también nosotros, 
+
+mientras ==éramos== niños, 
 
 ==estábamos== sujetos a servidumbre bajo las cosas elementales del mundo.
 
@@ -176,15 +178,17 @@ Paso 4
 
 
 
-==Digo==, pues: mientras el heredero 
+==Digo==, pues: 
 
-==es== menor de edad,
+(mientras) el heredero ==es== menor de edad,
 
 en nada ==es diferente== del siervo, aunque sea el dueño de todo, 
 
 (sino que) ==está== bajo guardianes y tutores hasta la edad señalada por el padre. 
 
-(Así también) nosotros, mientras ==éramos== niños, 
+Así también nosotros, 
+
+(mientras) ==éramos== niños, 
 
 ==estábamos== sujetos a servidumbre bajo las cosas elementales del mundo.
 
@@ -300,15 +304,17 @@ Paso 5
 
 
 
-==Digo==, pues: mientras el heredero 
+==Digo==, pues: 
 
-==es== menor de edad,
+​		(mientras) el heredero ==es== menor de edad,
 
 en nada ==es diferente== del siervo, aunque sea el dueño de todo, 
 
 ​		(sino que) ==está== bajo guardianes y tutores hasta la edad señalada por el padre. 
 
-​		(Así también) nosotros, mientras ==éramos== niños, 
+Así también nosotros, 
+
+​		(mientras) ==éramos== niños, 
 
 ==estábamos== sujetos a servidumbre bajo las cosas elementales del mundo.
 
@@ -424,9 +430,11 @@ Paso 6
 
 
 
-==Digo==, pues: mientras el heredero 
+==Digo==, pues: 
 
-==es== menor de edad,
+​		(mientras) el heredero ==es== menor de edad,
+
+​		´´¿Cuando?´´ mientras es menor de edad
 
 en nada ==es diferente== del siervo, aunque sea el dueño de todo, 
 
@@ -434,9 +442,11 @@ en nada ==es diferente== del siervo, aunque sea el dueño de todo,
 
 ​		´´¿Que se opone?´´ que esta bajo guardianes
 
-​		(Así también) nosotros, mientras ==éramos== niños, 
+Así también nosotros, 
 
-​		´´¿Que añade?´´ Éramos niños
+​		(mientras) ==éramos== niños, 
+
+​		´´¿Cuando?´´ Éramos niños
 
 ==estábamos== sujetos a servidumbre bajo las cosas elementales del mundo.
 
@@ -448,11 +458,11 @@ en nada ==es diferente== del siervo, aunque sea el dueño de todo,
 
 ​		(a fin de que) ==redimiera== a los que estaban bajo *la* ley,
 
-​		´´¿Que se opone?´´
+​		´´¿Que se opone?´´Redimir a los que estaban bajo la ley
 
 ​		(para que) ==recibiéramos== la adopción de hijos. 
 
-​		´´¿Para que?´´
+​		´´¿Para que?´´recibir adopcion
 
 ​		(Y porque) ustedes ==son== hijos, 
 
