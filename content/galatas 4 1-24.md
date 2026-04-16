@@ -572,9 +572,7 @@ Paso 7
 
 
 
-==Digo==, pues: mientras el heredero 
-
-==es== menor de edad,
+==Digo==, pues:
 
 en nada ==es diferente== del siervo
 
@@ -660,9 +658,9 @@ Paso 8
 
 
 
-==Digo==, pues: mientras el heredero 
+==Digo==, pues: 
 
-==es== menor de edad,
+
 
 en nada ==es diferente== del siervo
 
