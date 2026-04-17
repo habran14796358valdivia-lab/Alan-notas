@@ -738,4 +738,89 @@ esta ==es== nuestra madre.
 
 ==Prorrumpe== 
 
+
+
+Paso 9
+
+:: EXPONE::
+
+==Digo==, pues: 
+
+::EXPONE
+
+en nada ==es diferente== del siervo
+
+:: EXPONE::
+
+==estábamos== sujetos a servidumbre
+
+::EXPONE::
+
+ Dios ==envió== a Su Hijo
+
+::EXPONE::	
+
+Dios ==ha enviado== el Espíritu de Su Hijo
+
+::EXPONE::
+
+==eran siervos== de los que por naturaleza no son dioses. 
+
+
+
+¿cómo es que ==se vuelven== otra vez 
+
+​		
+
+Ustedes ==observan== 
+
+==Temo== 
+
 ​	
+
+==Les ruego==, hermanos, 
+
+==háganse== como yo
+
+Ningún ==agravio me han hecho==.
+
+​	
+
+Pues ==testigo soy== en favor de ustedes 
+
+​		
+
+¿==Me he vuelto==, por tanto, enemigo de ustedes
+
+Algunos ==les tienen== celo, 
+
+
+
+por quienes  ==sufro dolores=== de parto 
+
+​		
+
+==quisiera== estar presente 
+
+
+
+==Díganme==
+
+ ¿no ==oyen== a la ley? 
+
+​		
+
+Esto ==contiene== una alegoría, 
+
+pues estas *mujeres* ==son== dos pactos
+
+​	
+
+esta ==es== nuestra madre.  
+
+​		
+
+==«Regocíjate==, oh estéril, 
+
+==Prorrumpe== 
+
