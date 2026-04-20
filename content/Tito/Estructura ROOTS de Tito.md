@@ -2261,3 +2261,171 @@ Todos los que están conmigo ==te saludan==.
 
 
 ==Saluda== a los que nos aman.
+
+
+
+
+
+**EXTRA**
+
+```
+::EXPONE::
+Dios, que no miente, ==prometió== 
+
+::EXPONE::
+==manifestó== Su palabra por la predicación 
+```
+
+------
+
+```
+::RAZÓN::
+Por esta causa ==te dejé== en Creta
+
+::EXPONE::
+como te ==mandé==
+
+(no encaja claramente)
+==lo designarás==
+
+::CONDICIÓN::
+si el anciano ==es== irreprensible
+
+::RAZÓN::
+Porque el obispo ==debe== ser
+```
+
+------
+
+```
+::PROPÓSITO::
+para que ==sea== capaz
+
+::RAZÓN::
+Porque ==hay== muchos rebeldes
+
+::PROPÓSITO::
+a quienes ==es== preciso tapar la boca
+
+(no encaja claramente)
+cosas que no ==deben==
+```
+
+------
+
+```
+::EXPONE::
+Uno de ellos, su propio profeta, ==dijo==
+
+::EXPONE::
+Este testimonio ==es== verdadero
+
+::RESULTADO::
+Por eso, ==repréndelos== severamente
+
+(no encaja claramente)
+==están== corrompidas
+
+::EXPONE::
+==profesan== conocer a Dios
+```
+
+------
+
+```
+::CONTRASTA::
+Pero en cuanto a ti, ==enseña==
+
+::PROPÓSITO::
+para que puedan ==instruir== a las jóvenes
+
+::PROPÓSITO::
+para que la palabra de Dios no ==sea blasfemada==
+```
+
+------
+
+```
+::PROPÓSITO::
+a fin de que el adversario ==se avergüence==
+
+::PROPÓSITO::
+para que ==adornen== la doctrina
+```
+
+------
+
+```
+::RAZÓN::
+Porque la gracia de Dios ==se ha manifestado==
+
+(no encaja claramente)
+==vivamos== en este mundo
+
+::EXPONE::
+Él ==se dio== por nosotros
+
+::EXPONE::
+Esto ==habla==
+
+::EXPONE::
+==exhorta==
+```
+
+------
+
+```
+::EXPONE::
+==Recuérdales== que estén sujetos
+
+::RAZÓN::
+Porque nosotros también en otro tiempo ==éramos==
+
+::CONTRASTA::
+Pero cuando se ==manifestó== la bondad de Dios
+
+::RESULTADO::
+Él nos ==salvó==
+
+::EXPONE::
+que Él ==derramó== sobre nosotros
+```
+
+------
+
+```
+::EXPONE::
+==quiero== que hables con firmeza
+
+::EXPONE::
+Estas cosas ==son== buenas
+```
+
+------
+
+```
+::CONTRASTA::
+Pero ==evita== controversias
+
+::RESULTADO::
+==recházalo==
+```
+
+------
+
+```
+(no encaja claramente)
+Cuando te ==envíe== a Artemas o a Tíquico
+
+::EXPONE::
+==procura== venir a verme en Nicópolis
+
+::EXPONE::
+==encamina== con diligencia a Zenas
+
+::EXPONE::
+==te saludan==
+
+::EXPONE::
+==saluda==
+```
