@@ -66,7 +66,7 @@ PASO 1
 
    ---
 
-   
+      
 
    Uno de ellos, su propio profeta, ==dijo==: «Los cretenses son siempre mentirosos, malas bestias, glotones ociosos». Este testimonio ==es== verdadero. Por eso, ==repréndelos== severamente para que ==sean sanos== en la fe, y no presten atención a mitos judaicos y a mandamientos de hombres que se apartan de la verdad. Todas las cosas son puras para los puros, pero para los corrompidos e incrédulos nada es puro, sino que tanto su mente como su conciencia están ==corrompidas==. ==Profesan== conocer a Dios, pero con sus hechos lo ==niegan==, siendo abominables y desobedientes e inútiles para cualquier obra buena.
 
@@ -1128,11 +1128,13 @@ PASO 1
 
       
 
-      ​		[y]() ==reprende== con toda autoridad. 
+      y ==reprende== con toda autoridad. 
 
       
 
-      ​		[Que]() nadie te ==menosprecie==.
+      Que nadie te ==menosprecie==.
+
+      kai de alla 9 y pero sino 
 
       ---
 
@@ -1278,8 +1280,8 @@ PASO 1
 
       
 
-      ==Saluda== a los que nos aman.
-
+      ==Saluda== a los que n  os aman.
+      
       ---
 
 6. **PREGUNTAS**
