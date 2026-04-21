@@ -573,7 +573,7 @@ title: "1 Corintios data"
  [Así que yo, hermanos, no pude hablarles como a espirituales, sino como a carnales, como a niños en Cristo.]
 
 - ἠδυνήθην (V-ADI-1S) ==pude== [F]
-- λαλῆσαι (V-AAN) hablar [NF]
+- λαλῆσαι (V-AAN) hablarles [NF]
    - Κἀγὼ = y yo [c]
    - οὐκ = no
    - ὡς = como
