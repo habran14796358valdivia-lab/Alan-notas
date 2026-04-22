@@ -54,9 +54,9 @@ Apolos ==regó==,
 
 pero Dios ==ha dado el crecimiento==. 
 
-Así que ni el que planta ni el que riega ==es== algo, sino Dios, que da el crecimiento. 
+Así que ni el que planta ni el que riega ==es== algo, sino Dios, que da el crecimiento. Ahora bien, 
 
-Ahora bien, el que planta y el que riega ==son== una misma cosa, 
+el que planta y el que riega ==son== una misma cosa, 
 
 pero cada uno ==recibirá== su propia recompensa conforme a su propio trabajo. 
 
