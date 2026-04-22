@@ -315,19 +315,129 @@ el que planta y el que riega ==son== una misma cosa,  [pero]() cada uno ==recibi
 ## B
 
 ```
- [Porque]() nosotros ==somos== colaboradores en la labor de Dios, 
+[*y*]() ustedes ==son== el campo de cultivo de Dios, el edificio de Dios.
 ```
 
 ## Buscar A
 
 ```
- cada uno ==recibirá== su propia recompensa conforme a su propio trabajo. 
+nosotros ==somos== colaboradores en la labor de Dios, 
 ```
 
 ## Probar
 
 ```
- cada uno ==recibirá== su propia recompensa conforme a su propio trabajo.  [Porque]() nosotros ==somos== colaboradores en la labor de Dios,
+nosotros ==somos== colaboradores en la labor de Dios, [*y*]() ustedes ==son== el campo de cultivo de Dios, el edificio de Dios.
+```
+
+✔ conecta
+
+16
+
+## B
+
+```
+ [y]() otro ==edifica sobre él==.
+```
+
+## Buscar A
+
+```
+==puse== el fundamento, 
+```
+
+## Probar
+
+```
+==puse== el fundamento,  [y]() otro ==edifica sobre él==.
+```
+
+✔ conecta
+
+17
+
+## B
+
+```
+[Pero]() cada uno ==tenga cuidado== 
+```
+
+## Buscar A
+
+```
+==puse== el fundamento, 
+```
+
+## Probar
+
+```
+==puse== el fundamento, [Pero]() cada uno ==tenga cuidado== 
+```
+
+✔ conecta
+
+18
+
+## B
+
+```
+ [y]() otro ==edifica sobre él==.
+```
+
+## Buscar A
+
+```
+==puse== el fundamento, 
+```
+
+## Probar
+
+```
+==puse== el fundamento,  [y]() otro ==edifica sobre él==.
+```
+
+✔ conecta
+
+19
+
+## B
+
+```
+ [y]() otro ==edifica sobre él==.
+```
+
+## Buscar A
+
+```
+==puse== el fundamento, 
+```
+
+## Probar
+
+```
+==puse== el fundamento,  [y]() otro ==edifica sobre él==.
+```
+
+✔ conecta
+
+20
+
+## B
+
+```
+ [y]() otro ==edifica sobre él==.
+```
+
+## Buscar A
+
+```
+==puse== el fundamento, 
+```
+
+## Probar
+
+```
+==puse== el fundamento,  [y]() otro ==edifica sobre él==.
 ```
 
 ✔ conecta
