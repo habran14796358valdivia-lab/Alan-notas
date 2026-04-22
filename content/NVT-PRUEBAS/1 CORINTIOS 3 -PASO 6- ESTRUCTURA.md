@@ -49,3 +49,9 @@ el que planta y el que riega ==son== una misma cosa,
  [y]() otro ==edifica sobre él==.
 
 [Pero]() cada uno ==tenga cuidado== 
+
+Cómo ==edifica encima==. 
+
+​	[Pues]() nadie ==puede== poner otro fundamento que el que ya está puesto
+
+ el cual ==es== Jesucristo. 
