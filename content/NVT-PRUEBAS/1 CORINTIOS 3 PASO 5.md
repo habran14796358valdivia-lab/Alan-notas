@@ -381,19 +381,19 @@ nosotros ==somos== colaboradores en la labor de Dios, [*y*]() ustedes ==son== el
 ## B
 
 ```
- [y]() otro ==edifica sobre él==.
+[Pues]() nadie ==puede== poner otro fundamento que el que ya está puesto,
 ```
 
 ## Buscar A
 
 ```
-==puse== el fundamento, 
+cada uno ==tenga cuidado== 
 ```
 
 ## Probar
 
 ```
-==puse== el fundamento,  [y]() otro ==edifica sobre él==.
+ cada uno ==tenga cuidado== [Pues]() nadie ==puede== poner otro fundamento que el que ya está puesto,
 ```
 
 ✔ conecta
