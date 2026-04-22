@@ -41,3 +41,11 @@ el que planta y el que riega ==son== una misma cosa,
 [pero]() cada uno ==recibirá== su propia recompensa conforme a su propio trabajo.
 
 ​	[Porque]() nosotros ==somos== colaboradores en la labor de Dios, 
+
+​	[*y*]() ustedes ==son== el campo de cultivo de Dios, el edificio de Dios.
+
+==puse== el fundamento, 
+
+ [y]() otro ==edifica sobre él==.
+
+[Pero]() cada uno ==tenga cuidado== 
