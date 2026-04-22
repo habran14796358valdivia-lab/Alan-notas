@@ -26,7 +26,7 @@
 
 [Así que]() ni el que planta ni el que riega ==es== algo, 
 
-[sino]() Dios, que da el crecimiento. 
+sino Dios, que da el crecimiento. 
 
 [Ahora bien](), el que planta 
 
