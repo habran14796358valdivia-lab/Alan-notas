@@ -20,9 +20,9 @@ Les ==di a beber== leche
 
 ​			 +[PERO]()+: «Yo soy de Apolos», ¿no ==son== *como* hombres *del mundo?* 
 
-+[POR LO TANTO]()+¿Qué ==es==, pues, Apolos? 
+​			+[POR LO TANTO]()+¿Qué ==es==, pues, Apolos? 
 
-¿[Y]() qué ==es== Pablo?
+​			¿[Y]() qué ==es== Pablo?
 
 Servidores mediante los cuales ustedes ==han creído==, 
 
@@ -33,3 +33,11 @@ Yo ==planté==,
 Apolos ==regó==, 
 
 [pero]() Dios ==ha dado el crecimiento==. 
+
+[Así que]() ni el que planta ni el que riega ==es== algo, 
+
+el que planta y el que riega ==son== una misma cosa, 
+
+[pero]() cada uno ==recibirá== su propia recompensa conforme a su propio trabajo.
+
+​	[Porque]() nosotros ==somos== colaboradores en la labor de Dios, 
