@@ -244,3 +244,90 @@ Apolos ==regó==,
 
 ✔ conecta
 
+12
+
+## B
+
+```
+[Así que]() ni el que planta ni el que riega ==es== algo, 
+```
+
+## Buscar A
+
+```
+Dios ==ha dado el crecimiento==. 
+```
+
+## Probar
+
+```
+Dios ==ha dado el crecimiento==. [Así que]() ni el que planta ni el que riega ==es== algo, 
+```
+
+✔ conecta
+
+13
+
+## B
+
+```
+ [pero]() cada uno ==recibirá== su propia recompensa conforme a su propio trabajo.
+```
+
+## Buscar A
+
+```
+el que planta y el que riega ==son== una misma cosa, 
+```
+
+## Probar
+
+```
+el que planta y el que riega ==son== una misma cosa,  [pero]() cada uno ==recibirá== su propia recompensa conforme a su propio trabajo.
+```
+
+✔ conecta
+
+14
+
+## B
+
+```
+ [Porque]() nosotros ==somos== colaboradores en la labor de Dios, 
+```
+
+## Buscar A
+
+```
+ cada uno ==recibirá== su propia recompensa conforme a su propio trabajo. 
+```
+
+## Probar
+
+```
+ cada uno ==recibirá== su propia recompensa conforme a su propio trabajo.  [Porque]() nosotros ==somos== colaboradores en la labor de Dios,
+```
+
+✔ conecta
+
+15
+
+## B
+
+```
+ [Porque]() nosotros ==somos== colaboradores en la labor de Dios, 
+```
+
+## Buscar A
+
+```
+ cada uno ==recibirá== su propia recompensa conforme a su propio trabajo. 
+```
+
+## Probar
+
+```
+ cada uno ==recibirá== su propia recompensa conforme a su propio trabajo.  [Porque]() nosotros ==somos== colaboradores en la labor de Dios,
+```
+
+✔ conecta
