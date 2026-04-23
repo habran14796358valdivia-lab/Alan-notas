@@ -457,3 +457,117 @@ HOJA DE TRBAJO 2
 ::RAZON:: 
 
 [S-] ::RESULTADO:: [M]
+
+
+
+----
+
+HOJA DE TRABAJO 3
+
+[::EXPONE::
+
+::EXPONE::]
+
+
+
+[[S-] ::RESULTADO:: [M]]
+
+
+
+[[S-] ::RAZON::]
+
+
+
+[[S-] ::EXPONE::[M]]
+
+
+
+[[S-] ::EXPONE::]
+
+
+
+[[S-] ::CONTRASTESTE:: [M]]
+
+
+
+[[S-] ::RESULTADO::]
+
+
+
+[::EXPONE::]
+
+
+
+[[S-] ::CONTRASTESTE:: [M]]
+
+
+
+[[S-] ::EXPONE::[M]]
+
+
+
+[[S-]  ::EXPONE::]
+
+
+
+[[S-] ::CONTRASTESTE::[M]]
+
+
+
+[::EXPONE::]
+
+
+
+[[S-] ::RAZON:: [M]]
+
+
+
+[[S-] ::RESULTADO:: [M]
+
+::RESULTADO::]
+
+
+
+[::EXPONE::]
+
+
+
+[::RESULTADO::		
+
+::RESULTADO::]
+
+
+
+[[S-] ::CONTRASTESTE::[M]]
+
+
+
+[[S-] ::EXPONE:: [M]
+
+::EXPONE::]
+
+
+
+[[S-] ::EXPONE::]
+
+
+
+[[S-] ::RESULTADO::[M]]
+
+
+
+[[S-] ::EXPONE:: [M]
+
+::EXPONE::]
+
+
+
+[[S-] ::RAZON::
+
+::RAZON::
+
+::RAZON:: ]
+
+
+
+[[S-] ::RESULTADO:: [M]]
