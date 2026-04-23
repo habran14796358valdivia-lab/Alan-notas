@@ -447,19 +447,19 @@ la obra de cada uno ==se hará== evidente;  [porque]() el día la ==dará a cono
 ## B
 
 ```
- [porque]() el día la ==dará a conocer==,
+ [pues]() con fuego ==será revelada==. 
 ```
 
 ## Buscar A
 
 ```
-la obra de cada uno ==se hará== evidente; 
+el día la ==dará a conocer==,
 ```
 
 ## Probar
 
 ```
-la obra de cada uno ==se hará== evidente;  [porque]() el día la ==dará a conocer==,
+el día la ==dará a conocer==, [pues]() con fuego ==será revelada==. 
 ```
 
 ✔ conecta
@@ -469,19 +469,19 @@ la obra de cada uno ==se hará== evidente;  [porque]() el día la ==dará a cono
 ## B
 
 ```
- [porque]() el día la ==dará a conocer==,
++[Y]()+El fuego mismo ==probará== 
 ```
 
 ## Buscar A
 
 ```
-la obra de cada uno ==se hará== evidente; 
+Con fuego ==será revelada==. 
 ```
 
 ## Probar
 
 ```
-la obra de cada uno ==se hará== evidente;  [porque]() el día la ==dará a conocer==,
+Con fuego ==será revelada==. +[Y]()+El fuego mismo ==probará== 
 ```
 
 ✔ conecta
@@ -491,19 +491,19 @@ la obra de cada uno ==se hará== evidente;  [porque]() el día la ==dará a cono
 ## B
 
 ```
- [porque]() el día la ==dará a conocer==,
+[Si]() ==permanece== la obra de alguien
 ```
 
 ## Buscar A
 
 ```
-la obra de cada uno ==se hará== evidente; 
++cual ==es==+la calidad de la obra de cada uno.  
 ```
 
 ## Probar
 
 ```
-la obra de cada uno ==se hará== evidente;  [porque]() el día la ==dará a conocer==,
++cual ==es==+la calidad de la obra de cada uno.[Si]() ==permanece== la obra de alguien   
 ```
 
 ✔ conecta
@@ -513,19 +513,19 @@ la obra de cada uno ==se hará== evidente;  [porque]() el día la ==dará a cono
 ## B
 
 ```
- [porque]() el día la ==dará a conocer==,
+ [Si]() la obra de alguien ==es consumida== *por el fuego
 ```
 
 ## Buscar A
 
 ```
-la obra de cada uno ==se hará== evidente; 
+El fuego mismo ==probará== 
 ```
 
 ## Probar
 
 ```
-la obra de cada uno ==se hará== evidente;  [porque]() el día la ==dará a conocer==,
+El fuego mismo ==probará==  [Si]() la obra de alguien ==es consumida== *por el fuego
 ```
 
 ✔ conecta
@@ -535,19 +535,19 @@ la obra de cada uno ==se hará== evidente;  [porque]() el día la ==dará a cono
 ## B
 
 ```
- [porque]() el día la ==dará a conocer==,
+ [sin embargo](), él ==será salvo==, aunque así como a través del fuego.
 ```
 
 ## Buscar A
 
 ```
-la obra de cada uno ==se hará== evidente; 
+,* sufrirá ==pérdida==;
 ```
 
 ## Probar
 
 ```
-la obra de cada uno ==se hará== evidente;  [porque]() el día la ==dará a conocer==,
+,* sufrirá ==pérdida==; [sin embargo](), él ==será salvo==, aunque así como a través del fuego.
 ```
 
 ✔ conecta
@@ -557,19 +557,19 @@ la obra de cada uno ==se hará== evidente;  [porque]() el día la ==dará a cono
 ## B
 
 ```
- [porque]() el día la ==dará a conocer==,
+ [Si]() alguno ==destruye== el templo de Dios
 ```
 
 ## Buscar A
 
 ```
-la obra de cada uno ==se hará== evidente; 
+ustedes ==son== templo de Dios 
 ```
 
 ## Probar
 
 ```
-la obra de cada uno ==se hará== evidente;  [porque]() el día la ==dará a conocer==,
+ustedes ==son== templo de Dios  [Si]() alguno ==destruye== el templo de Dios
 ```
 
 ✔ conecta
@@ -579,19 +579,19 @@ la obra de cada uno ==se hará== evidente;  [porque]() el día la ==dará a cono
 ## B
 
 ```
- [porque]() el día la ==dará a conocer==,
+ [porque]() el templo de Dios ==es== santo,
 ```
 
 ## Buscar A
 
 ```
-la obra de cada uno ==se hará== evidente; 
+Dios lo ==destruirá== a él,
 ```
 
 ## Probar
 
 ```
-la obra de cada uno ==se hará== evidente;  [porque]() el día la ==dará a conocer==,
+Dios lo ==destruirá== a él, [porque]() el templo de Dios ==es== santo,
 ```
 
 ✔ conecta
@@ -601,19 +601,19 @@ la obra de cada uno ==se hará== evidente;  [porque]() el día la ==dará a cono
 ## B
 
 ```
- [porque]() el día la ==dará a conocer==,
+[Si]() alguien de ustedes ==se cree== sabio según este mundo
 ```
 
 ## Buscar A
 
 ```
-la obra de cada uno ==se hará== evidente; 
+Nadie ==se engañe== a sí mismo. 
 ```
 
 ## Probar
 
 ```
-la obra de cada uno ==se hará== evidente;  [porque]() el día la ==dará a conocer==,
+Nadie ==se engañe== a sí mismo. [Si]() alguien de ustedes ==se cree== sabio según este mundo
 ```
 
 ✔ conecta
@@ -623,19 +623,19 @@ la obra de cada uno ==se hará== evidente;  [porque]() el día la ==dará a cono
 ## B
 
 ```
- [porque]() el día la ==dará a conocer==,
+ [a fin]() de ==llegar a ser== sabio.
 ```
 
 ## Buscar A
 
 ```
-la obra de cada uno ==se hará== evidente; 
+ ==hágase== necio
 ```
 
 ## Probar
 
 ```
-la obra de cada uno ==se hará== evidente;  [porque]() el día la ==dará a conocer==,
+ ==hágase== necio [a fin]() de ==llegar a ser== sabio.
 ```
 
 ✔ conecta
@@ -645,19 +645,129 @@ la obra de cada uno ==se hará== evidente;  [porque]() el día la ==dará a cono
 ## B
 
 ```
- [porque]() el día la ==dará a conocer==,
+ [Pues]() ==escrito== 
 ```
 
 ## Buscar A
 
 ```
-la obra de cada uno ==se hará== evidente; 
+==hágase== necio
 ```
 
 ## Probar
 
 ```
-la obra de cada uno ==se hará== evidente;  [porque]() el día la ==dará a conocer==,
+==hágase== necio [Pues]() ==escrito== 
+```
+
+✔ conecta
+
+31
+
+## B
+
+```
+  [Así que]() nadie ==se jacte== en los hombres,
+```
+
+## Buscar A
+
+```
+==hágase== necio
+```
+
+## Probar
+
+```
+==hágase== necio [Pues]() ==escrito== 
+```
+
+✔ conecta
+
+32
+
+## B
+
+```
+ [Pues]() ==escrito== 
+```
+
+## Buscar A
+
+```
+==hágase== necio
+```
+
+## Probar
+
+```
+==hágase== necio [Pues]() ==escrito== 
+```
+
+✔ conecta
+
+33
+
+## B
+
+```
+ [Pues]() ==escrito== 
+```
+
+## Buscar A
+
+```
+==hágase== necio
+```
+
+## Probar
+
+```
+==hágase== necio [Pues]() ==escrito== 
+```
+
+✔ conecta
+
+34
+
+## B
+
+```
+ [Pues]() ==escrito== 
+```
+
+## Buscar A
+
+```
+==hágase== necio
+```
+
+## Probar
+
+```
+==hágase== necio [Pues]() ==escrito== 
+```
+
+✔ conecta
+
+35
+
+## B
+
+```
+ [Pues]() ==escrito== 
+```
+
+## Buscar A
+
+```
+==hágase== necio
+```
+
+## Probar
+
+```
+==hágase== necio [Pues]() ==escrito== 
 ```
 
 ✔ conecta
