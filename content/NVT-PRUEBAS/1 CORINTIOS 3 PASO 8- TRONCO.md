@@ -212,7 +212,7 @@ Les ==di a beber==
 
 [S-]Apolos ==regó==, 
 
-[S-] [pero]() Dios ==ha dado el crecimiento==. 
+[S-] [pero]() Dios ==ha dado el crecimiento==. [M]
 
 [S-] [Así que]() ni el que riega ==es== algo, 
 
@@ -224,7 +224,7 @@ el que riega ==son== una misma cosa,
 
 [S-]  [y]() otro ==edifica sobre él==.
 
-[S-] [Pero]() cada uno ==tenga cuidado== 
+[S-] [Pero]() cada uno ==tenga cuidado== [M]
 
 Cómo ==edifica encima==. 
 
@@ -240,9 +240,9 @@ que ==ha edificado==
 
  sufrirá ==pérdida==;
 
-[S-] [sin embargo](), él ==será salvo==
+[S-] [sin embargo](), él ==será salvo== [M]
 
-[S-]¿No ==saben== 
+[S-]¿No ==saben== [M]
 
 [que]()  ==son== templo de Dios 
 
@@ -260,5 +260,5 @@ que ==ha edificado==
 
  los cuales ==son== inútiles».
 
-[S-]  [Así que]() nadie ==se jacte== 
+[S-]  [Así que]() nadie ==se jacte== [M]
 
