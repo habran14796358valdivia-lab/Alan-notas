@@ -14,11 +14,11 @@ no ==pude== hablarles
 
 Les ==di a beber== 
 
-::EXPONE::
+:: RESULTADO::
 
 Servidores mediante los cuales ustedes ==han creído==, 
 
-::EXPONE::
+::RAZON::
 
 según el Señor ==dio== 
 
@@ -60,9 +60,9 @@ el que riega ==son== una misma cosa,
 
 ::EXPONE::
 
-Cómo ==edifica encima==. 
+Cómo ==edifica encima==.  -----
 
-::EXPONE::
+::RAZON::
 
  el cual ==es== Jesucristo. 
 
@@ -70,19 +70,19 @@ Cómo ==edifica encima==.
 
 la obra  ==se hará== evidente; 
 
-::RESULTADO::
+::RESULTADO:: ------
 
 +cual ==es==+la calidad de la obra 
 
-::EXPONE::
+::EXPONE:: --------
 
 que ==ha edificado== 
 
-::RESULTADO::
+::RESULTADO:: 
 
 ==recibirá== recompensa. 
 
-::RESULTADO::
+::RESULTADO:: 
 
  sufrirá ==pérdida==;
 
@@ -114,21 +114,25 @@ Nadie ==se engañe==
 
 ==hágase== necio
 
-::EXPONE::
+::EXPONE:: --------
 
 ==está==: *«Él es* el que prende a los sabios
 
-::EXPONE::
+::RAZON::
 
  [Y también:]() «El Señor ==conoce== los razonamientos 
 
-::EXPONE::
+::RAZON::
 
  los cuales ==son== inútiles».
 
-::RAZON::
+::RESULTADO::
 
  [Así que]() nadie ==se jacte== 
+
+
+
+
 
 
 
