@@ -464,6 +464,8 @@ HOJA DE TRBAJO 2
 
 HOJA DE TRABAJO 3
 
+**REPETICION**
+
 [::EXPONE::
 
 ::EXPONE::]
@@ -532,6 +534,8 @@ HOJA DE TRABAJO 3
 
 
 
+**REPETICION**
+
 [::RESULTADO::		
 
 ::RESULTADO::]
@@ -556,11 +560,15 @@ HOJA DE TRABAJO 3
 
 
 
+**REPETICION**
+
 [[S-] ::EXPONE:: [M]
 
 ::EXPONE::]
 
+ 
 
+**REPETICION**
 
 [[S-] ::RAZON::
 
@@ -571,3 +579,18 @@ HOJA DE TRABAJO 3
 
 
 [[S-] ::RESULTADO:: [M]]
+
+
+
+---
+
+## IDENTIFICACIÓN DEL PATRÓN (DESPUÉS)
+
+###### Solo después de agrupar puedes observar:
+
+- REPETICIÓN  
+- PROGRESIÓN  
+- CONTRASTE  
+- CAUSA–RESULTADO  
+- PARALELISMO  
+- CAMBIO DE SUJETO  
