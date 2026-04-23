@@ -132,7 +132,7 @@ que ==ha edificado==
 
 MOVIMIENTO
 
-no ==pude== hablarles 
+no ==pude== hablarles   
 
 Les ==di a beber== 
 
