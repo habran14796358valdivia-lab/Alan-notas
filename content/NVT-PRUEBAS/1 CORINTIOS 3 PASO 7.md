@@ -1,4 +1,4 @@
-1 CORINTIOS 3 PASO 7
+1 CORINTIOS 3 PASO 7- REUCCION
 
 hermanos no ==pude== hablarles 
 
