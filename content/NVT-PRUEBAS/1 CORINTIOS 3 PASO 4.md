@@ -50,7 +50,7 @@ Conforme a la gracia de Dios que me fue dada, yo, como sabio arquitecto, ==puse=
 
  [porque]() el día la ==dará a conocer==,
 
- [pues]() con fuego ==será revelada==. El fuego mismo ==probará== +cual ==es==+la calidad de la obra de cada uno.  
+ [pues]() con fuego ==será revelada==. El fuego mismo ==probará== +cual ==es==+la calidad de la obra de cada uno.   
 
 [Si]() ==permanece== la obra de alguien que ==ha edificado== sobre *el fundamento,* ==recibirá== recompensa.
 
