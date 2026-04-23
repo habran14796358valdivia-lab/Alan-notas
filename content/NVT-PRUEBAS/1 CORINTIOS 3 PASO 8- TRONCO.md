@@ -64,7 +64,7 @@ Nadie ==se engañe==
 
  
 
-MARCAR SUJETO- MOVIMIENTO
+MARCAR SUJETO
 
  no ==pude== hablarles 
 
@@ -72,7 +72,7 @@ Les ==di a beber==
 
 [S-]Servidores mediante los cuales ustedes ==han creído==, 
 
-según el Señor ==dio== 
+[S-]según el Señor ==dio== 
 
 [S-]Yo ==planté==,
 
