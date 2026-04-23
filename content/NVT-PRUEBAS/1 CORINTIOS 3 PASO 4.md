@@ -50,7 +50,7 @@ Conforme a la gracia de Dios que me fue dada, yo, como sabio arquitecto, ==puse=
 
  [porque]() el día la ==dará a conocer==,
 
- [pues]() con fuego ==será revelada==. El fuego mismo ==probará== +cual ==es==+la calidad de la obra de cada uno.   
+ [pues]() con fuego ==será revelada==. +[Y]()+El fuego mismo ==probará== +cual ==es==+la calidad de la obra de cada uno.   
 
 [Si]() ==permanece== la obra de alguien que ==ha edificado== sobre *el fundamento,* ==recibirá== recompensa.
 
@@ -84,4 +84,4 @@ Nadie ==se engañe== a sí mismo.
 
   [Así que]() nadie ==se jacte== en los hombres,
 
-[porque]() todo ==es== de ustedes: ya sea Pablo, o Apolos, o Cefas, o el mundo, o la vida, o la muerte, o lo presente, o lo por venir, todo es suyo, y ustedes de Cristo, y Cristo de Dios.
+[porque]() todo ==es== de ustedes: ya sea Pablo, o Apolos, o Cefas, o el mundo, o la vida, o la muerte, o lo presente, o lo por venir, todo es suyo, y ustedes de Cristo, y Cristo de Dios. 
