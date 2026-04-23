@@ -1,24 +1,24 @@
 1 CORINTIOS 3 PASO 7- REUCCION
 
-hermanos no ==pude== hablarles 
+ no ==pude== hablarles 
 
-Les ==di a beber== leche
+Les ==di a beber== 
 
-​	[porque]() todavía no ==podían== *recibirlo*
+​	[porque]() no ==podían== *recibirlo*
 
-​	 [ni]() aun ahora ==pueden==, 
+​	 [ni]() aun ==pueden==, 
 
-​		[porque]() todavía ==son== carnales. 
+​		[porque]()  ==son== carnales. 
 
-​			[Pues]() habiendo celos y discusiones entre ustedes, ¿no ==son== carnales 
+​			[Pues]() ¿no ==son== carnales 
 
-​			[y]() ==andan== como hombres del mundo?
+​			[y]() ==andan== como hombres 
 
-​			[Porque]() cuando uno ==dice==:
+​			[Porque]() no ==dice==:
 
-​			+[DE HECHO]()+Yo ==soy== de Pablo»,
+​			+[DE HECHO]()+==soy== de Pablo»,
 
-​			 +[PERO]()+: «Yo soy de Apolos», ¿no ==son== *como* hombres *del mundo?* 
+​			 +[PERO]()+: «Yo soy de Apolos», ¿no ==son== *como* hombres 
 
 ​			+[POR LO TANTO]()+¿Qué ==es==, pues, Apolos? 
 
@@ -26,7 +26,7 @@ Les ==di a beber== leche
 
 Servidores mediante los cuales ustedes ==han creído==, 
 
-según el Señor ==dio== *oportunidad* a cada uno.
+según el Señor ==dio== 
 
 Yo ==planté==,
 
@@ -34,15 +34,15 @@ Apolos ==regó==,
 
 [pero]() Dios ==ha dado el crecimiento==. 
 
-[Así que]() ni el que planta ni el que riega ==es== algo, 
+[Así que]() ni el que riega ==es== algo, 
 
-el que planta y el que riega ==son== una misma cosa, 
+el que riega ==son== una misma cosa, 
 
-[pero]() cada uno ==recibirá== su propia recompensa conforme a su propio trabajo.
+[pero]() cada uno ==recibirá== 
 
-​	[Porque]() nosotros ==somos== colaboradores en la labor de Dios, 
+​	[Porque]() nosotros ==somos== colaboradores 
 
-​	[*y*]() ustedes ==son== el campo de cultivo de Dios, el edificio de Dios.
+​	[*y*]() ustedes ==son== el campo 
 
 ==puse== el fundamento, 
 
@@ -52,37 +52,37 @@ el que planta y el que riega ==son== una misma cosa,
 
 Cómo ==edifica encima==. 
 
-​	[Pues]() nadie ==puede== poner otro fundamento que el que ya está puesto
+​	[Pues]() nadie ==puede== poner otro fundamento
 
  el cual ==es== Jesucristo. 
 
-​	[Ahora bien](), si sobre *este* fundamento alguien ==edifica== con oro, plata, piedras preciosas, madera, heno, paja, 
+​	[Ahora bien](), alguien ==edifica== 
 
-la obra de cada uno ==se hará== evidente; 
+la obra  ==se hará== evidente; 
 
 ​	[porque]() el día la ==dará a conocer==,
 
 ​		[pues]() con fuego ==será revelada==
 
-​		+[Y]()+El fuego mismo ==probará== 
+​		+[Y]()+El fuego ==probará== 
 
-+cual ==es==+la calidad de la obra de cada uno.   
++cual ==es==+la calidad de la obra 
 
-​			[Si]() ==permanece== la obra de alguien
+​			[Si]() ==permanece== la obra
 
-que ==ha edificado== sobre *el fundamento,*
+que ==ha edificado== 
 
 ==recibirá== recompensa. 
 
-​			[Si]() la obra de alguien ==es consumida== *por el fuego
+​			[Si]() la obra  ==es consumida== 
 
  sufrirá ==pérdida==;
 
- [sin embargo](), él ==será salvo==, aunque así como a través del fuego.
+ [sin embargo](), él ==será salvo==
 
 ¿No ==saben== 
 
-[que]() ustedes ==son== templo de Dios 
+[que]()  ==son== templo de Dios 
 
 [y]() que el Espíritu de Dios ==habita== en ustedes?
 
@@ -94,9 +94,9 @@ Dios lo ==destruirá== a él,
 
 ​	[Y]() eso es lo que ustedes ==son==.
 
-Nadie ==se engañe== a sí mismo. 
+Nadie ==se engañe== 
 
-​	[Si]() alguien de ustedes ==se cree== sabio según este mundo,
+​	[Si]() alguien  ==se cree== sabio 
 
 ==hágase== necio
 
@@ -104,12 +104,12 @@ Nadie ==se engañe== a sí mismo.
 
 ​	[Pues]() ==escrito==
 
-==está==: *«Él es* el que prende a los sabios en su *propia* astucia». 
+==está==: *«Él es* el que prende a los sabios
 
- [Y también:]() «El Señor ==conoce== los razonamientos de los sabios,
+ [Y también:]() «El Señor ==conoce== los razonamientos 
 
  los cuales ==son== inútiles».
 
- [Así que]() nadie ==se jacte== en los hombres,
+ [Así que]() nadie ==se jacte== 
 
-​	[porque]() todo ==es== de ustedes: ya sea Pablo, o Apolos, o Cefas, o el mundo, o la vida, o la muerte, o lo presente, o lo por venir, todo es suyo, y ustedes de Cristo, y Cristo de Dios.
+​	[porque]() todo ==es== de ustedes:
