@@ -86,7 +86,7 @@ porque el día la ==dará a conocer==,
 
  pues con fuego ==será revelada==.  
 
-El fuego mismo ==probará== 
++Y+El fuego mismo ==probará== 
 
 +cual ==es==+la calidad de la obra de cada uno. 
 
@@ -134,7 +134,7 @@ los cuales ==son== inútiles».
 
 Así que nadie ==se jacte== en los hombres, 
 
-porque todo ==es== de ustedes: ya sea Pablo, o Apolos, o Cefas, o el mundo, o la vida, o la muerte, o lo presente, o lo por venir, todo es suyo, y ustedes de Cristo, y Cristo de Dios.
+porque todo ==es== de ustedes: ya sea Pablo, o Apolos, o Cefas, o el mundo, o la vida, o la muerte, o lo presente, o lo por venir, todo es suyo, y ustedes de Cristo, y Cristo de Dios. 
 
 
 
