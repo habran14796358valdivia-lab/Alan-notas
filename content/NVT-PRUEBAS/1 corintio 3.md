@@ -84,7 +84,7 @@ la obra de cada uno ==se hará== evidente;
 
 porque el día la ==dará a conocer==,
 
- pues con fuego ==será revelada==. 
+ pues con fuego ==será revelada==.  
 
 El fuego mismo ==probará== 
 
