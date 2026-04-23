@@ -403,19 +403,19 @@ cada uno ==tenga cuidado==
 ## B
 
 ```
- [y]() otro ==edifica sobre él==.
+ [Ahora bien](), si sobre *este* fundamento alguien ==edifica== con oro, plata, piedras preciosas, madera, heno, paja,
 ```
 
 ## Buscar A
 
 ```
-==puse== el fundamento, 
+nadie ==puede== poner otro fundamento que el que ya está puesto,
 ```
 
 ## Probar
 
 ```
-==puse== el fundamento,  [y]() otro ==edifica sobre él==.
+nadie ==puede== poner otro fundamento que el que ya está puesto,[Ahora bien](), si sobre *este* fundamento alguien ==edifica== con oro, plata, piedras preciosas, madera, heno, paja,
 ```
 
 ✔ conecta
@@ -425,19 +425,239 @@ cada uno ==tenga cuidado==
 ## B
 
 ```
- [y]() otro ==edifica sobre él==.
+ [porque]() el día la ==dará a conocer==,
 ```
 
 ## Buscar A
 
 ```
-==puse== el fundamento, 
+la obra de cada uno ==se hará== evidente; 
 ```
 
 ## Probar
 
 ```
-==puse== el fundamento,  [y]() otro ==edifica sobre él==.
+la obra de cada uno ==se hará== evidente;  [porque]() el día la ==dará a conocer==,
+```
+
+✔ conecta
+
+21
+
+## B
+
+```
+ [porque]() el día la ==dará a conocer==,
+```
+
+## Buscar A
+
+```
+la obra de cada uno ==se hará== evidente; 
+```
+
+## Probar
+
+```
+la obra de cada uno ==se hará== evidente;  [porque]() el día la ==dará a conocer==,
+```
+
+✔ conecta
+
+22
+
+## B
+
+```
+ [porque]() el día la ==dará a conocer==,
+```
+
+## Buscar A
+
+```
+la obra de cada uno ==se hará== evidente; 
+```
+
+## Probar
+
+```
+la obra de cada uno ==se hará== evidente;  [porque]() el día la ==dará a conocer==,
+```
+
+✔ conecta
+
+23
+
+## B
+
+```
+ [porque]() el día la ==dará a conocer==,
+```
+
+## Buscar A
+
+```
+la obra de cada uno ==se hará== evidente; 
+```
+
+## Probar
+
+```
+la obra de cada uno ==se hará== evidente;  [porque]() el día la ==dará a conocer==,
+```
+
+✔ conecta
+
+24
+
+## B
+
+```
+ [porque]() el día la ==dará a conocer==,
+```
+
+## Buscar A
+
+```
+la obra de cada uno ==se hará== evidente; 
+```
+
+## Probar
+
+```
+la obra de cada uno ==se hará== evidente;  [porque]() el día la ==dará a conocer==,
+```
+
+✔ conecta
+
+25
+
+## B
+
+```
+ [porque]() el día la ==dará a conocer==,
+```
+
+## Buscar A
+
+```
+la obra de cada uno ==se hará== evidente; 
+```
+
+## Probar
+
+```
+la obra de cada uno ==se hará== evidente;  [porque]() el día la ==dará a conocer==,
+```
+
+✔ conecta
+
+26
+
+## B
+
+```
+ [porque]() el día la ==dará a conocer==,
+```
+
+## Buscar A
+
+```
+la obra de cada uno ==se hará== evidente; 
+```
+
+## Probar
+
+```
+la obra de cada uno ==se hará== evidente;  [porque]() el día la ==dará a conocer==,
+```
+
+✔ conecta
+
+27
+
+## B
+
+```
+ [porque]() el día la ==dará a conocer==,
+```
+
+## Buscar A
+
+```
+la obra de cada uno ==se hará== evidente; 
+```
+
+## Probar
+
+```
+la obra de cada uno ==se hará== evidente;  [porque]() el día la ==dará a conocer==,
+```
+
+✔ conecta
+
+28
+
+## B
+
+```
+ [porque]() el día la ==dará a conocer==,
+```
+
+## Buscar A
+
+```
+la obra de cada uno ==se hará== evidente; 
+```
+
+## Probar
+
+```
+la obra de cada uno ==se hará== evidente;  [porque]() el día la ==dará a conocer==,
+```
+
+✔ conecta
+
+29
+
+## B
+
+```
+ [porque]() el día la ==dará a conocer==,
+```
+
+## Buscar A
+
+```
+la obra de cada uno ==se hará== evidente; 
+```
+
+## Probar
+
+```
+la obra de cada uno ==se hará== evidente;  [porque]() el día la ==dará a conocer==,
+```
+
+✔ conecta
+
+30
+
+## B
+
+```
+ [porque]() el día la ==dará a conocer==,
+```
+
+## Buscar A
+
+```
+la obra de cada uno ==se hará== evidente; 
+```
+
+## Probar
+
+```
+la obra de cada uno ==se hará== evidente;  [porque]() el día la ==dará a conocer==,
 ```
 
 ✔ conecta
