@@ -4,13 +4,19 @@
 
 Les ==di a beber== 
 
+::RESULTADO::
+
 [S-]Servidores mediante los cuales ustedes ==han creído==, [M]
 
 [S-]según el Señor ==dio== 
 
+:: RAZON
+
 [S-]Yo ==planté==,[M]
 
 [S-]Apolos ==regó==, 
+
+::CONTRASTE::
 
 [S-] [pero]() Dios ==ha dado el crecimiento==. [M]
 
@@ -18,17 +24,27 @@ Les ==di a beber==
 
 el que riega ==son== una misma cosa, 
 
+::CONTRASTE::
+
 [S-] [pero]() cada uno ==recibirá== [M]
+
+::EXPONE::
 
 [S-] ==puse== el fundamento, [M]
 
 [S-]  [y]() otro ==edifica sobre él==.
 
+::CONTRASTA::
+
 [S-] [Pero]() cada uno ==tenga cuidado== [M]
 
 Cómo ==edifica encima==. 
 
+:: RAZON::
+
 [S-] el cual ==es== Jesucristo. [M]
+
+::EXPONE::
 
 [S-]la obra  ==se hará== evidente; [M]
 
@@ -40,7 +56,11 @@ que ==ha edificado==
 
  sufrirá ==pérdida==;
 
+::CONTRASTE::
+
 [S-] [sin embargo](), él ==será salvo== [M]
+
+::EXPONE::
 
 [S-]¿No ==saben== [M]
 
@@ -48,7 +68,11 @@ que ==ha edificado==
 
 [S-] [y]() que el Espíritu de Dios ==habita== en ustedes?
 
+::RESULTADO::
+
 [S-]Dios lo ==destruirá== a él,[M]
+
+::EXPONE::
 
 [S-]Nadie ==se engañe== [M]
 
@@ -59,6 +83,8 @@ que ==ha edificado==
  [Y también:]() «El Señor ==conoce== los razonamientos 
 
  los cuales ==son== inútiles».
+
+::RESULTADO
 
 [S-]  [Así que]() nadie ==se jacte== [M]
 
