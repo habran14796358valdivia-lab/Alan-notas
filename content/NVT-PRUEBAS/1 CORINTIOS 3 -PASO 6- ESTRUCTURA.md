@@ -61,3 +61,55 @@ Cómo ==edifica encima==.
 la obra de cada uno ==se hará== evidente; 
 
 ​	[porque]() el día la ==dará a conocer==,
+
+​		[pues]() con fuego ==será revelada==
+
+​		+[Y]()+El fuego mismo ==probará== 
+
++cual ==es==+la calidad de la obra de cada uno.   
+
+​			[Si]() ==permanece== la obra de alguien
+
+que ==ha edificado== sobre *el fundamento,*
+
+==recibirá== recompensa. 
+
+​			[Si]() la obra de alguien ==es consumida== *por el fuego
+
+ sufrirá ==pérdida==;
+
+ [sin embargo](), él ==será salvo==, aunque así como a través del fuego.
+
+¿No ==saben== 
+
+[que]() ustedes ==son== templo de Dios 
+
+[y]() que el Espíritu de Dios ==habita== en ustedes?
+
+​	[Si]() alguno ==destruye== el templo de Dios,
+
+Dios lo ==destruirá== a él,
+
+​	[porque]() el templo de Dios ==es== santo,
+
+​	[Y]() eso es lo que ustedes ==son==.
+
+Nadie ==se engañe== a sí mismo. 
+
+​	[Si]() alguien de ustedes ==se cree== sabio según este mundo,
+
+==hágase== necio
+
+​	[a fin]() de ==llegar a ser== sabio.
+
+​	[Pues]() ==escrito==
+
+==está==: *«Él es* el que prende a los sabios en su *propia* astucia». 
+
+ [Y también:]() «El Señor ==conoce== los razonamientos de los sabios,
+
+ los cuales ==son== inútiles».
+
+ [Así que]() nadie ==se jacte== en los hombres,
+
+​	[porque]() todo ==es== de ustedes: ya sea Pablo, o Apolos, o Cefas, o el mundo, o la vida, o la muerte, o lo presente, o lo por venir, todo es suyo, y ustedes de Cristo, y Cristo de Dios.
