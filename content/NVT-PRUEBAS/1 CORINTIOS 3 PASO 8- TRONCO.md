@@ -72,7 +72,7 @@ Les ==di a beber==
 
 [S-]Servidores mediante los cuales ustedes ==han creído==, 
 
-[S-]según el Señor ==dio== 
+según el Señor ==dio== 
 
 [S-]Yo ==planté==,
 
