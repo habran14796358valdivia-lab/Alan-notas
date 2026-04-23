@@ -195,3 +195,8 @@ Nadie ==se engañe== [M]
  [Así que]() nadie ==se jacte== 
 
  
+
+
+
+COMBINADO SUJETO-MOVIMIENTO
+
