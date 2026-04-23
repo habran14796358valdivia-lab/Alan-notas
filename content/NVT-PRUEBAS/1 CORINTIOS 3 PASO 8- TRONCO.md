@@ -26,15 +26,15 @@ el que riega ==son== una misma cosa,
 
 [Pero]() cada uno ==tenga cuidado== 
 
-Cómo ==edifica encima==. 
+Cómo ==edifica encima==. ---
 
  el cual ==es== Jesucristo. 
 
 la obra  ==se hará== evidente; 
 
-+cual ==es==+la calidad de la obra 
++cual ==es==+la calidad de la obra ---
 
-que ==ha edificado== 
+que ==ha edificado== ---
 
 ==recibirá== recompensa. 			
 
@@ -58,7 +58,7 @@ Nadie ==se engañe==
 
  [Y también:]() «El Señor ==conoce== los razonamientos 
 
- los cuales ==son== inútiles».
+ los cuales ==son== inútiles».----
 
  [Así que]() nadie ==se jacte== 
 
