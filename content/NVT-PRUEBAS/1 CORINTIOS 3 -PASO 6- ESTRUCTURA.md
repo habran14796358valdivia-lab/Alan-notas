@@ -55,3 +55,9 @@ Cómo ==edifica encima==.
 ​	[Pues]() nadie ==puede== poner otro fundamento que el que ya está puesto
 
  el cual ==es== Jesucristo. 
+
+​	[Ahora bien](), si sobre *este* fundamento alguien ==edifica== con oro, plata, piedras preciosas, madera, heno, paja, 
+
+la obra de cada uno ==se hará== evidente; 
+
+​	[porque]() el día la ==dará a conocer==,
