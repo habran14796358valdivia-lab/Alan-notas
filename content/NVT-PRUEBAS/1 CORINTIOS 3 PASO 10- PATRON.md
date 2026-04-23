@@ -470,69 +470,37 @@ HOJA DE TRABAJO 3
 
 ::EXPONE::]
 
-
-
 [[S-] ::RESULTADO:: [M]]
-
-
 
 [[S-] ::RAZON::]
 
-
-
 [[S-] ::EXPONE::[M]]
-
-
 
 [[S-] ::EXPONE::]
 
-
-
 [[S-] ::CONTRASTESTE:: [M]]
-
-
 
 [[S-] ::RESULTADO::]
 
-
-
 [::EXPONE::]
-
-
 
 [[S-] ::CONTRASTESTE:: [M]]
 
-
-
 [[S-] ::EXPONE::[M]]
-
-
 
 [[S-]  ::EXPONE::]
 
-
-
 [[S-] ::CONTRASTESTE::[M]]
-
-
 
 [::EXPONE::]
 
-
-
 [[S-] ::RAZON:: [M]]
-
-
 
 [[S-] ::RESULTADO:: [M]
 
 ::RESULTADO::]
 
-
-
 [::EXPONE::]
-
-
 
 **REPETICION**
 
@@ -540,33 +508,21 @@ HOJA DE TRABAJO 3
 
 ::RESULTADO::]
 
-
-
 [[S-] ::CONTRASTESTE::[M]]
-
-
 
 [[S-] ::EXPONE:: [M]
 
 ::EXPONE::]
 
-
-
 [[S-] ::EXPONE::]
 
-
-
 [[S-] ::RESULTADO::[M]]
-
-
 
 **REPETICION**
 
 [[S-] ::EXPONE:: [M]
 
 ::EXPONE::]
-
- 
 
 **REPETICION**
 
@@ -575,8 +531,6 @@ HOJA DE TRABAJO 3
 ::RAZON::
 
 ::RAZON:: ]
-
-
 
 [[S-] ::RESULTADO:: [M]]
 
