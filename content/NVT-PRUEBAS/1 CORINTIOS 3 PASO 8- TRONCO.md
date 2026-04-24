@@ -1,12 +1,12 @@
 1 CORINTIOS 3 PASO 8- TRONCO
 
- no ==pude== hablarles 
+yo no ==pude== hablarles
 
-Les ==di a beber== 
+Les ==di a beber== leche
 
-Servidores mediante los cuales ustedes ==han creído==, 
+mediante los cuales ustedes ==han creído==, 
 
-según el Señor ==dio== 
++[Y]()+ según el Señor ==dio== *oportunidad* 
 
 Yo ==planté==,
 
@@ -14,119 +14,107 @@ Apolos ==regó==,
 
 [pero]() Dios ==ha dado el crecimiento==. 
 
-[Así que]() ni el que riega ==es== algo, 
+ustedes ==son== el campo de cultivo de Dios
 
-el que riega ==son== una misma cosa, 
+yo, ==puse== el fundamento,
 
-[pero]() cada uno ==recibirá== 
-
-==puse== el fundamento, 
-
- [y]() otro ==edifica sobre él==.
++[PERO]()+ [y]() otro ==edifica sobre él==.
 
 [Pero]() cada uno ==tenga cuidado== 
 
-Cómo ==edifica encima==. ---
+Cómo ==edifica encima==. 
 
  el cual ==es== Jesucristo. 
 
+[Ahora bien](), si alguien ==edifica== 
+
 la obra  ==se hará== evidente; 
-
-+cual ==es==+la calidad de la obra ---
-
-que ==ha edificado== ---
-
-==recibirá== recompensa. 			
-
- sufrirá ==pérdida==;
-
- [sin embargo](), él ==será salvo==
-
-¿No ==saben== 
-
-[que]()  ==son== templo de Dios 
-
-[y]() que el Espíritu de Dios ==habita== en ustedes?
-
-Dios lo ==destruirá== a él,
-
-Nadie ==se engañe== 
-
-==hágase== necio
-
-==está==: *«Él es* el que prende a los sabios
-
- [Y también:]() «El Señor ==conoce== los razonamientos 
-
- los cuales ==son== inútiles».----
-
- [Así que]() nadie ==se jacte== 
-
- 
-
-MARCAR SUJETO
-
- no ==pude== hablarles 
-
-Les ==di a beber== 
-
-[S-]Servidores mediante los cuales ustedes ==han creído==, 
-
-[S-]según el Señor ==dio== 
-
-[S-]Yo ==planté==,
-
-[S-]Apolos ==regó==, 
-
-[S-] [pero]() Dios ==ha dado el crecimiento==. 
-
-[S-] [Así que]() ni el que riega ==es== algo, 
-
-el que riega ==son== una misma cosa, 
-
-[S-] [pero]() cada uno ==recibirá== 
-
-[S-] ==puse== el fundamento, 
-
-[S-]  [y]() otro ==edifica sobre él==.
-
-[S-] [Pero]() cada uno ==tenga cuidado== 
-
-Cómo ==edifica encima==. 
-
-[S-] el cual ==es== Jesucristo. 
-
-[S-]la obra  ==se hará== evidente; 
 
 +cual ==es==+la calidad de la obra 
 
 que ==ha edificado== 
 
-==recibirá== recompensa. 			
+ ==recibirá== recompensa.
 
  sufrirá ==pérdida==;
 
-[S-] [sin embargo](), él ==será salvo==
+ [sin embargo](), él ==será salvo==, 
 
-[S-]¿No ==saben== 
+¿No ==saben== 
 
-[que]()  ==son== templo de Dios 
+[que]() ustedes ==son== templo de Dios 
 
-[S-] [y]() que el Espíritu de Dios ==habita== en ustedes?
+[y]() que el Espíritu de Dios ==habita== en ustedes?
 
-[S-]Dios lo ==destruirá== a él,
+Dios lo ==destruirá== a él,
 
-[S-]Nadie ==se engañe== 
+eso ==son==.
+
+Nadie ==se engañe== 
 
 ==hágase== necio
 
-[S-]==está==: *«Él es* el que prende a los sabios
 
- [Y también:]() «El Señor ==conoce== los razonamientos 
 
- los cuales ==son== inútiles».
+ 
 
-[S-]  [Así que]() nadie ==se jacte== 
+MARCAR SUJETO
+
+yo no ==pude== hablarles
+
+Les ==di a beber== leche
+
+mediante los cuales ustedes ==han creído==, 
+
++[Y]()+ según el Señor ==dio== *oportunidad* 
+
+Yo ==planté==,
+
+Apolos ==regó==, 
+
+[pero]() Dios ==ha dado el crecimiento==. 
+
+ustedes ==son== el campo de cultivo de Dios
+
+yo, ==puse== el fundamento,
+
++[PERO]()+ [y]() otro ==edifica sobre él==.
+
+[Pero]() cada uno ==tenga cuidado== 
+
+Cómo ==edifica encima==. 
+
+ el cual ==es== Jesucristo. 
+
+[Ahora bien](), si alguien ==edifica== 
+
+la obra  ==se hará== evidente; 
+
++cual ==es==+la calidad de la obra 
+
+que ==ha edificado== 
+
+ ==recibirá== recompensa.
+
+ sufrirá ==pérdida==;
+
+ [sin embargo](), él ==será salvo==, 
+
+¿No ==saben== 
+
+[que]() ustedes ==son== templo de Dios 
+
+[y]() que el Espíritu de Dios ==habita== en ustedes?
+
+Dios lo ==destruirá== a él,
+
+eso ==son==.
+
+Nadie ==se engañe== 
+
+==hágase== necio
+
+
 
 
 
