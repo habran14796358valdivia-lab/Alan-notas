@@ -1,4 +1,4 @@
-1 CORINTIOS 3 PASO 8- TRONCO
+**1 CORINTIOS 3 PASO 8- TRONCO**
 
 yo no ==pude== hablarles
 
@@ -54,11 +54,97 @@ Nadie ==se engañe==
 
 ==hágase== necio
 
+---
 
+**MARCAR SUJETO**
 
- 
+[S- YO (PABLO)]
 
-MARCAR SUJETO
+yo no ==pude== hablarles
+
+Les ==di a beber== leche
+
+[S- NOSOTROS - USTEDES]
+
+mediante los cuales ustedes ==han creído==, 
+
+[S- USTEDES - EL SEÑOR]
+
++[Y]()+ según el Señor ==dio== *oportunidad* 
+
+[S- EL SEÑOR-YO (PABLO)]
+
+Yo ==planté==,
+
+[S- YO (PABLO) - EL (APOLOS)]
+
+Apolos ==regó==, 
+
+[S- EL (APOLOS) - DIOS]
+
+[pero]() Dios ==ha dado el crecimiento==. 
+
+[S- DIOS - USTEDES]
+
+ustedes ==son== el campo de cultivo de Dios
+
+[S- USTEDES - YO (PABLO)]
+
+yo, ==puse== el fundamento,
+
+[S- YO (PABLO) - OTRO (ALGUIEN)]
+
++[PERO]()+ [y]() otro ==edifica sobre él==.
+
+[S- OTRO (ALGUIEN) - CADA UNO]
+
+[Pero]() cada uno ==tenga cuidado== 
+
+Cómo ==edifica encima==. 
+
+[S- CADA UNO - JESUCRISTO]
+
+ el cual ==es== Jesucristo. 
+
+[S- JESUCRISTO  - ALGUIEN]
+
+[Ahora bien](), si alguien ==edifica== 
+
+la obra  ==se hará== evidente; 
+
++cual ==es==+la calidad de la obra 
+
+que ==ha edificado== 
+
+ ==recibirá== recompensa.
+
+ sufrirá ==pérdida==;
+
+ [sin embargo](), él ==será salvo==, 
+
+[S- ALGUIEN - USTEDES]
+
+¿No ==saben== 
+
+[que]() ustedes ==son== templo de Dios 
+
+[y]() que el Espíritu de Dios ==habita== en ustedes?
+
+[S- USTEDES - DIOS]
+
+Dios lo ==destruirá== a él,
+
+[S-  DIOS - USTEDES]
+
+eso ==son==.
+
+Nadie ==se engañe== 
+
+==hágase== necio
+
+---
+
+**MOVIMIENTO**
 
 yo no ==pude== hablarles
 
@@ -114,73 +200,9 @@ Nadie ==se engañe==
 
 ==hágase== necio
 
+---
 
 
-
-
-MOVIMIENTO
-
-no ==pude== hablarles   
-
-Les ==di a beber== 
-
-Servidores mediante los cuales ustedes ==han creído==, [M]
-
-según el Señor ==dio== 
-
-Yo ==planté==,[M]
-
-Apolos ==regó==, 
-
-[pero]() Dios ==ha dado el crecimiento==. 
-
-[Así que]() ni el que riega ==es== algo, 
-
-el que riega ==son== una misma cosa, 
-
-[pero]() cada uno ==recibirá== [M]
-
-==puse== el fundamento, [M]
-
- [y]() otro ==edifica sobre él==.
-
-[Pero]() cada uno ==tenga cuidado== 
-
-Cómo ==edifica encima==. 
-
- el cual ==es== Jesucristo. [M]
-
-la obra  ==se hará== evidente; [M]
-
-+cual ==es==+la calidad de la obra 
-
-que ==ha edificado== 
-
-==recibirá== recompensa. 			
-
- sufrirá ==pérdida==;
-
- [sin embargo](), él ==será salvo==
-
-¿No ==saben== [M]
-
-[que]()  ==son== templo de Dios 
-
-[y]() que el Espíritu de Dios ==habita== en ustedes?
-
-Dios lo ==destruirá== a él,[M]
-
-Nadie ==se engañe== [M]
-
-==hágase== necio
-
-==está==: *«Él es* el que prende a los sabios
-
- [Y también:]() «El Señor ==conoce== los razonamientos 
-
- los cuales ==son== inútiles».
-
- [Así que]() nadie ==se jacte== 
 
  
 
