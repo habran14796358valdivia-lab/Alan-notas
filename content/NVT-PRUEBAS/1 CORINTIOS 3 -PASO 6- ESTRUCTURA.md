@@ -1,12 +1,12 @@
 1 CORINTIOS 3 -PASO 6- ESTRUCTURA 
 
-hermanos no ==pude== hablarles 
+yo, hermanos, no ==pude== hablarles como a espirituales,
 
-Les ==di a beber== leche
+Les ==di a beber== leche, no alimento sólido, 
 
-​	[porque]() todavía no ==podían== *recibirlo*
+​	[porque]() todavía no ==podían== *recibirlo*. En verdad,
 
-​	 [ni]() aun ahora ==pueden==,  
+​	+[PERO]()+ ni aun ahora ==pueden==, 
 
 ​		[porque]() todavía ==son== carnales. 
 
@@ -14,19 +14,19 @@ Les ==di a beber== leche
 
 ​			[y]() ==andan== como hombres del mundo?
 
-​			[Porque]() cuando uno ==dice==:
+​		[Porque]() cuando uno ==dice==: 
 
-​			+[DE HECHO]()+Yo ==soy== de Pablo»,
+​		+[DE HECHO]()+Yo ==soy== de Pablo»,
 
-​			 +[PERO]()+: «Yo soy de Apolos», ¿no ==son== *como* hombres *del mundo?* 
+​		+[PERO]()+«Yo soy de Apolos», ¿no ==son== *como* hombres *del mundo?* 
 
 ​			+[POR LO TANTO]()+¿Qué ==es==, pues, Apolos? 
 
-​			¿[Y]() qué ==es== Pablo?
+​			¿[Y]() qué ==es== Pablo? Servidores
 
-Servidores mediante los cuales ustedes ==han creído==, 
+mediante los cuales ustedes ==han creído==, 
 
-según el Señor ==dio== *oportunidad* a cada uno.
++[Y]()+ según el Señor ==dio== *oportunidad* a cada uno.
 
 Yo ==planté==,
 
@@ -34,47 +34,47 @@ Apolos ==regó==,
 
 [pero]() Dios ==ha dado el crecimiento==. 
 
-[Así que]() ni el que planta ni el que riega ==es== algo, 
+​	[Así que]() ni el que planta ni el que riega ==es== algo, 
 
-el que planta y el que riega ==son== una misma cosa, 
+​	[Ahora bien](), el que planta y el que riega ==son== una misma cosa,
 
-[pero]() cada uno ==recibirá== su propia recompensa conforme a su propio trabajo.
+​	[pero]() cada uno ==recibirá== su propia recompensa conforme a su propio trabajo.
 
-​	[Porque]() nosotros ==somos== colaboradores en la labor de Dios, 
+​		[Porque]() nosotros ==somos== colaboradores en la labor de Dios, 
 
-​	[*y*]() ustedes ==son== el campo de cultivo de Dios, el edificio de Dios.
+ustedes ==son== el campo de cultivo de Dios, el edificio de Dios.
 
-==puse== el fundamento, 
+yo, como sabio arquitecto, ==puse== el fundamento,
 
- [y]() otro ==edifica sobre él==.
++[PERO]()+ [y]() otro ==edifica sobre él==.
 
 [Pero]() cada uno ==tenga cuidado== 
 
 Cómo ==edifica encima==. 
 
-​	[Pues]() nadie ==puede== poner otro fundamento que el que ya está puesto
+​	[Pues]() nadie ==puede== poner otro fundamento que el que ya está puesto, 
 
  el cual ==es== Jesucristo. 
 
-​	[Ahora bien](), si sobre *este* fundamento alguien ==edifica== con oro, plata, piedras preciosas, madera, heno, paja, 
+[Ahora bien](), si sobre *este* fundamento alguien ==edifica== con oro, plata, piedras preciosas, madera, heno, paja, 
 
 la obra de cada uno ==se hará== evidente; 
 
 ​	[porque]() el día la ==dará a conocer==,
 
-​		[pues]() con fuego ==será revelada==
+​	[pues]() con fuego ==será revelada==
 
-​		+[Y]()+El fuego mismo ==probará== 
+​	+[Y]()+El fuego mismo ==probará== 
 
 +cual ==es==+la calidad de la obra de cada uno.   
 
-​			[Si]() ==permanece== la obra de alguien
+​	[Si]() ==permanece== la obra 
 
-que ==ha edificado== sobre *el fundamento,*
+de alguien que ==ha edificado== sobre *el fundamento,*
 
-==recibirá== recompensa. 
+ ==recibirá== recompensa.
 
-​			[Si]() la obra de alguien ==es consumida== *por el fuego
+​	 [Si]() la obra de alguien ==es consumida== *por el fuego,* 
 
  sufrirá ==pérdida==;
 
@@ -92,7 +92,7 @@ Dios lo ==destruirá== a él,
 
 ​	[porque]() el templo de Dios ==es== santo,
 
-​	[Y]() eso es lo que ustedes ==son==.
+ y eso es lo que ustedes ==son==.
 
 Nadie ==se engañe== a sí mismo. 
 
@@ -102,15 +102,15 @@ Nadie ==se engañe== a sí mismo.
 
 ​	[a fin]() de ==llegar a ser== sabio.
 
- [Porque]() la sabiduría de este mundo ==es== necedad ante Dios.
+​	[Porque]() la sabiduría de este mundo ==es== necedad ante Dios.
 
- [Pues]() ==escrito está==: *«Él es* el que prende a los sabios en su *propia* astucia». 
+​	[Pues]() ==escrito está==: *«Él es* el que prende a los sabios en su *propia* astucia». 
 
 
- [Y también:]() «El Señor ==conoce== los razonamientos de los sabios,
+​	[Y también:]() «El Señor ==conoce== los razonamientos de los sabios,
 
-   +[que]()+los cuales ==son== inútiles».
+​	+[que]()+los cuales ==son== inútiles».
 
- [Así que]() nadie ==se jacte== en los hombres,
+​		[Así que]() nadie ==se jacte== en los hombres,
 
-​	[porque]() todo ==es== de ustedes: ya sea Pablo, o Apolos, o Cefas, o el mundo, o la vida, o la muerte, o lo presente, o lo por venir, todo es suyo, y ustedes de Cristo, y Cristo de Dios.
+​			[porque]() todo ==es== de ustedes: ya sea Pablo, o Apolos, o Cefas, o el mundo, o la vida, o la muerte, o lo presente, o lo por venir, todo es suyo, y ustedes de Cristo, y Cristo de Dios.
