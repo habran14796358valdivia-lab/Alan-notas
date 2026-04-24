@@ -28,19 +28,19 @@ PASO 3
 
 
 
-==Damos gracias== a Dios, el Padre de nuestro Señor Jesucristo,
+==Damos gracias== a Dios
 
- y del amor que ==tienen== por todos los santos, 
+ y del amor que ==tienen== por todos 
 
-De esta esperanza ustedes ==oyeron== antes en la palabra de verdad,
+ustedes ==oyeron== antes en la palabra de verdad,
 
- Así como en todo el mundo ==está== dando fruto constantemente y creciendo, 
+ Así como en todo el mundo ==está== dando fruto 
 
-así *lo ha estado haciendo* también en ustedes, desde el día que ==oyeron==
+desde el día que ==oyeron==
 
- y ==comprendieron== la gracia de Dios en verdad
+ y ==comprendieron== la gracia de Dios 
 
-Así ustedes *lo* ==aprendieron== de Epafras, nuestro amado consiervo, 
+Así ustedes *lo* ==aprendieron== de Epafras, 
 
 quien ==es== fiel servidor de Cristo de parte nuestra, el cual también nos informó acerca del amor de ustedes en el Espíritu.
 
