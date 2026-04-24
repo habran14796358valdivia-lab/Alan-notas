@@ -16,7 +16,7 @@ Conforme a la gracia de Dios que me fue dada, yo, como sabio arquitecto, ==puse=
 
 ¿No ==saben== que ustedes ==son== templo de Dios y que el Espíritu de Dios ==habita== en ustedes? Si alguno ==destruye== el templo de Dios, Dios lo ==destruirá== a él, porque el templo de Dios ==es== santo, y eso es lo que ustedes ==son==.
 
-Nadie ==se engañe== a sí mismo. Si alguien de ustedes ==se cree== sabio según este mundo, ==hágase== necio a fin de ==llegar a ser== sabio. Porque la sabiduría de este mundo es necedad ante Dios. Pues ==escrito== ==está==: *«Él es* el que prende a los sabios en su *propia* astucia».  Y también: «El Señor ==conoce== los razonamientos de los sabios, los cuales ==son== inútiles».  Así que nadie ==se jacte== en los hombres, porque todo ==es== de ustedes: ya sea Pablo, o Apolos, o Cefas, o el mundo, o la vida, o la muerte, o lo presente, o lo por venir, todo es suyo, y ustedes de Cristo, y Cristo de Dios.
+Nadie ==se engañe== a sí mismo. Si alguien de ustedes ==se cree== sabio según este mundo, ==hágase== necio a fin de ==llegar a ser== sabio. Porque la sabiduría de este mundo ==es== necedad ante Dios. Pues ==escrito está==: *«Él es* el que prende a los sabios en su *propia* astucia».  Y también: «El Señor ==conoce== los razonamientos de los sabios, los cuales ==son== inútiles».  Así que nadie ==se jacte== en los hombres, porque todo ==es== de ustedes: ya sea Pablo, o Apolos, o Cefas, o el mundo, o la vida, o la muerte, o lo presente, o lo por venir, todo es suyo, y ustedes de Cristo, y Cristo de Dios.
 
 PASO 3
 
