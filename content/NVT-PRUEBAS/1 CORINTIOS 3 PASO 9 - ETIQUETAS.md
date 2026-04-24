@@ -186,7 +186,7 @@ que ==ha edificado==
 
 ::RESULTADO::
 
-Dios lo ==destruirá== a él,
+Dios lo ==destruirá== a él, 
 
 [S-  DIOS - USTEDES]
 
