@@ -76,9 +76,9 @@ Nadie ==se engañe== a sí mismo.
 
  [a fin]() de ==llegar a ser== sabio.
 
- [Porque]() la sabiduría de este mundo es necedad ante Dios.
+ [Porque]() la sabiduría de este mundo ==es== necedad ante Dios.
 
- [Pues]() ==escrito== ==está==: *«Él es* el que prende a los sabios en su *propia* astucia». 
+ [Pues]() ==escrito está==: *«Él es* el que prende a los sabios en su *propia* astucia». 
 
  [Y también:]() «El Señor ==conoce== los razonamientos de los sabios, los cuales ==son== inútiles».
 
