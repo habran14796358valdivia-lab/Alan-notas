@@ -154,7 +154,7 @@ mediante los cuales ustedes ==han creído==,
 
 +[Y]()+ según el Señor ==dio== *oportunidad* 
 
-Yo ==planté==, [M]
+Yo ==planté==, 
 
 Apolos ==regó==, 
 
@@ -172,7 +172,7 @@ Cómo ==edifica encima==.
 
  el cual ==es== Jesucristo. 
 
-[Ahora bien](), si alguien ==edifica== [M]
+[Ahora bien](), si alguien ==edifica== 
 
 la obra  ==se hará== evidente; 
 
@@ -186,7 +186,7 @@ que ==ha edificado==
 
  [sin embargo](), él ==será salvo==, 
 
-¿No ==saben== [M]
+¿No ==saben== 
 
 [que]() ustedes ==son== templo de Dios 
 
