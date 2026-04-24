@@ -122,11 +122,11 @@ Si alguien de ustedes ==se cree== sabio según este mundo,
 
 ==hágase== necio 
 
-a fin de ==llegar a ser== sabio. Porque la sabiduría de este mundo es necedad ante Dios. 
+a fin de ==llegar a ser== sabio.
 
-Pues ==escrito== 
+ Porque la sabiduría de este mundo ==es== necedad ante Dios. 
 
-==está==: *«Él es* el que prende a los sabios en su *propia* astucia». 
+Pues ==escrito está==: *«Él es* el que prende a los sabios en su *propia* astucia». 
 
 Y también: «El Señor ==conoce== los razonamientos de los sabios, 
 
