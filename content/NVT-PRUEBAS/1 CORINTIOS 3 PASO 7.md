@@ -1,4 +1,4 @@
-1 CORINTIOS 3 PASO 7- REUCCION
+**1 CORINTIOS 3 PASO 7- REUCCION**
 
 yo no ==pude== hablarles
 
