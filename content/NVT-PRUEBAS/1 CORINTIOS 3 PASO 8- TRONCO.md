@@ -150,11 +150,11 @@ yo no ==pude== hablarles
 
 Les ==di a beber== leche
 
-mediante los cuales ustedes ==han creído==, 
+mediante los cuales ustedes ==han creído==,  
 
 +[Y]()+ según el Señor ==dio== *oportunidad* 
 
-Yo ==planté==,
+Yo ==planté==, [M]
 
 Apolos ==regó==, 
 
@@ -162,7 +162,7 @@ Apolos ==regó==,
 
 ustedes ==son== el campo de cultivo de Dios
 
-yo, ==puse== el fundamento,
+yo, ==puse== el fundamento, [M]
 
 +[PERO]()+ [y]() otro ==edifica sobre él==.
 
@@ -172,7 +172,7 @@ Cómo ==edifica encima==.
 
  el cual ==es== Jesucristo. 
 
-[Ahora bien](), si alguien ==edifica== 
+[Ahora bien](), si alguien ==edifica== [M]
 
 la obra  ==se hará== evidente; 
 
@@ -186,7 +186,7 @@ que ==ha edificado==
 
  [sin embargo](), él ==será salvo==, 
 
-¿No ==saben== 
+¿No ==saben== [M]
 
 [que]() ustedes ==son== templo de Dios 
 
@@ -196,81 +196,96 @@ Dios lo ==destruirá== a él,
 
 eso ==son==.
 
-Nadie ==se engañe== 
+Nadie ==se engañe== [M]
 
 ==hágase== necio
 
 ---
 
-
-
- 
+**COMBINADO SUJETO-MOVIMIENTO**
 
 UN PERO MARCA UN CAMBIO DE MOVIMIENTO
 
+[S- YO (PABLO)]
 
+yo no ==pude== hablarles
 
-COMBINADO SUJETO-MOVIMIENTO
+Les ==di a beber== leche
 
- no ==pude== hablarles 
+[S- NOSOTROS - USTEDES]
 
-Les ==di a beber== 
+mediante los cuales ustedes ==han creído==, 
 
-[S-]Servidores mediante los cuales ustedes ==han creído==, [M]
+[S- USTEDES - EL SEÑOR]
 
-[S-]según el Señor ==dio== 
++[Y]()+ según el Señor ==dio== *oportunidad* 
 
-[S-]Yo ==planté==,[M]
+[S- EL SEÑOR-YO (PABLO)]
 
-[S-]Apolos ==regó==, 
+Yo ==planté==, [M]
 
-[S-] [pero]() Dios ==ha dado el crecimiento==. [M]
+[S- YO (PABLO) - EL (APOLOS)]
 
-[S-] [Así que]() ni el que riega ==es== algo, 
+Apolos ==regó==, 
 
-el que riega ==son== una misma cosa, 
+[S- EL (APOLOS) - DIOS]
 
-[S-] [pero]() cada uno ==recibirá== [M]
+[pero]() Dios ==ha dado el crecimiento==. 
 
-[S-] ==puse== el fundamento, [M]
+[S- DIOS - USTEDES]
 
-[S-]  [y]() otro ==edifica sobre él==.
+ustedes ==son== el campo de cultivo de Dios
 
-[S-] [Pero]() cada uno ==tenga cuidado== [M]
+[S- USTEDES - YO (PABLO)]
+
+yo, ==puse== el fundamento, [M]
+
+[S- YO (PABLO) - OTRO (ALGUIEN)]
+
++[PERO]()+ [y]() otro ==edifica sobre él==.
+
+[S- OTRO (ALGUIEN) - CADA UNO]
+
+[Pero]() cada uno ==tenga cuidado== 
 
 Cómo ==edifica encima==. 
 
-[S-] el cual ==es== Jesucristo. [M]
+[S- CADA UNO - JESUCRISTO]
 
-[S-]la obra  ==se hará== evidente; [M]
+ el cual ==es== Jesucristo. 
+
+[S- JESUCRISTO  - ALGUIEN]
+
+[Ahora bien](), si alguien ==edifica== [M]
+
+la obra  ==se hará== evidente; 
 
 +cual ==es==+la calidad de la obra 
 
 que ==ha edificado== 
 
-==recibirá== recompensa. 			
+ ==recibirá== recompensa.
 
  sufrirá ==pérdida==;
 
-[S-] [sin embargo](), él ==será salvo== [M]
+ [sin embargo](), él ==será salvo==, 
 
-[S-]¿No ==saben== [M]
+[S- ALGUIEN - USTEDES]
 
-[que]()  ==son== templo de Dios 
+¿No ==saben== [M]
 
-[S-] [y]() que el Espíritu de Dios ==habita== en ustedes?
+[que]() ustedes ==son== templo de Dios 
 
-[S-]Dios lo ==destruirá== a él,[M]
+[y]() que el Espíritu de Dios ==habita== en ustedes?
 
-[S-]Nadie ==se engañe== [M]
+[S- USTEDES - DIOS]
+
+Dios lo ==destruirá== a él,
+
+[S-  DIOS - USTEDES]
+
+eso ==son==.
+
+Nadie ==se engañe== [M]
 
 ==hágase== necio
-
-[S-]==está==: *«Él es* el que prende a los sabios
-
- [Y también:]() «El Señor ==conoce== los razonamientos 
-
- los cuales ==son== inútiles».
-
-[S-]  [Así que]() nadie ==se jacte== [M]
-
