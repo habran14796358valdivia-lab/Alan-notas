@@ -154,7 +154,7 @@ mediante los cuales ustedes ==han creído==,
 
 +[Y]()+ según el Señor ==dio== *oportunidad* 
 
-Yo ==planté==, 
+Yo ==planté==, [M]
 
 Apolos ==regó==, 
 
@@ -166,7 +166,7 @@ yo, ==puse== el fundamento, [M]
 
 +[PERO]()+ [y]() otro ==edifica sobre él==.
 
-[Pero]() cada uno ==tenga cuidado== 
+[Pero]() cada uno ==tenga cuidado==  IMPERATIVO
 
 Cómo ==edifica encima==. 
 
@@ -196,7 +196,7 @@ Dios lo ==destruirá== a él,
 
 eso ==son==.
 
-Nadie ==se engañe== [M]
+Nadie ==se engañe== [M]  IMPERATIVO
 
 ==hágase== necio
 
