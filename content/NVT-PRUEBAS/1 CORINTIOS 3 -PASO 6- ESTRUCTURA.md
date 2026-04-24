@@ -109,7 +109,7 @@ Nadie ==se engañe== a sí mismo.
 
  [Y también:]() «El Señor ==conoce== los razonamientos de los sabios,
 
- los cuales ==son== inútiles».
+   +[que]()+los cuales ==son== inútiles».
 
  [Así que]() nadie ==se jacte== en los hombres,
 
