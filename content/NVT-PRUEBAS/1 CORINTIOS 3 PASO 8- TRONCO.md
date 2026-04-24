@@ -266,7 +266,7 @@ que ==ha edificado==
 
  ==recibirá== recompensa.
 
- sufrirá ==pérdida==;
+ sufrirá ==pérdida==; 
 
  [sin embargo](), él ==será salvo==, 
 
