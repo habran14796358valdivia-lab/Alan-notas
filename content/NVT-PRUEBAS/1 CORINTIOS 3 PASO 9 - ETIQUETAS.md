@@ -1,252 +1,150 @@
-1 CORINTIOS PASO 9
+**1 CORINTIOS PASO 9 -  ETIQUETAS**
 
 SIN SUJETO Y MOVIMIENTO
 
 CADA CLAUSULA DEBE TENER UNA ETIQUETA
 
+---
 
+yo no ==pude== hablarles
 
-::EXPONE::
+Les ==di a beber== leche
 
-no ==pude== hablarles 
+mediante los cuales ustedes ==han creído==, 
 
-::EXPONE::
-
-Les ==di a beber== 
-
-:: RESULTADO::
-
-Servidores mediante los cuales ustedes ==han creído==, 
-
-::RAZON::
-
-según el Señor ==dio== 
-
-::EXPONE::
++[Y]()+ según el Señor ==dio== *oportunidad* 
 
 Yo ==planté==,
 
-::EXPONE::
-
 Apolos ==regó==, 
-
-::CONTRASTA::
 
 [pero]() Dios ==ha dado el crecimiento==. 
 
-::RESULTADO::
+ustedes ==son== el campo de cultivo de Dios
 
-[Así que]() ni el que riega ==es== algo, 
+yo, ==puse== el fundamento,
 
-::EXPONE::
-
-el que riega ==son== una misma cosa, 
-
-::CONTRASTA::
-
-[pero]() cada uno ==recibirá== 
-
-::EXPONE::
-
-==puse== el fundamento, 
-
-::EXPONE::
-
- [y]() otro ==edifica sobre él==.
-
-::CONTRATA::
++[PERO]()+ [y]() otro ==edifica sobre él==.
 
 [Pero]() cada uno ==tenga cuidado== 
 
-::EXPONE::
-
-Cómo ==edifica encima==.  -----
-
-::RAZON::
+Cómo ==edifica encima==. 
 
  el cual ==es== Jesucristo. 
 
-::RESULTADO::
+[Ahora bien](), si alguien ==edifica== 
 
 la obra  ==se hará== evidente; 
 
-::RESULTADO:: ------
-
 +cual ==es==+la calidad de la obra 
-
-::EXPONE:: --------
 
 que ==ha edificado== 
 
-::RESULTADO:: 
-
-==recibirá== recompensa. 
-
-::RESULTADO:: 
+ ==recibirá== recompensa.
 
  sufrirá ==pérdida==;
 
-::CONTRASTESTE::
-
- [sin embargo](), él ==será salvo==
-
-::EXPONE::
+ [sin embargo](), él ==será salvo==, 
 
 ¿No ==saben== 
 
-::EXPONE::
-
-[que]()  ==son== templo de Dios 
-
-::EXPONE::
+[que]() ustedes ==son== templo de Dios 
 
 [y]() que el Espíritu de Dios ==habita== en ustedes?
 
-::RESULTADO::
-
 Dios lo ==destruirá== a él,
 
-::EXPONE::
+eso ==son==.
 
 Nadie ==se engañe== 
 
-::EXPONE::
-
 ==hágase== necio
 
-::EXPONE:: --------
+----
 
-==está==: *«Él es* el que prende a los sabios
+**COMBINADO**
 
-::RAZON::
+[S- YO (PABLO)]
 
- [Y también:]() «El Señor ==conoce== los razonamientos 
+yo no ==pude== hablarles
 
-::RAZON::
+Les ==di a beber== leche
 
- los cuales ==son== inútiles».
+[S- NOSOTROS - USTEDES]
 
-::RESULTADO::
+mediante los cuales ustedes ==han creído==, 
 
- [Así que]() nadie ==se jacte== 
+[S- USTEDES - EL SEÑOR]
 
++[Y]()+ según el Señor ==dio== *oportunidad* 
 
+[S- EL SEÑOR-YO (PABLO)]
 
+Yo ==planté==, [M]
 
+[S- YO (PABLO) - EL (APOLOS)]
 
+Apolos ==regó==, 
 
+[S- EL (APOLOS) - DIOS]
 
-1 CORINTIOS 3 PASO 9 - ETIQUETAS
+[pero]() Dios ==ha dado el crecimiento==. 
 
- no ==pude== hablarles 
+[S- DIOS - USTEDES]
 
-Les ==di a beber== 
+ustedes ==son== el campo de cultivo de Dios
 
+[S- USTEDES - YO (PABLO)]
 
+yo, ==puse== el fundamento, [M]
 
-::**RESULTADO**::
+[S- YO (PABLO) - OTRO (ALGUIEN)]
 
-[S-]Servidores mediante los cuales ustedes ==han creído==, [M]
++[PERO]()+ [y]() otro ==edifica sobre él==.
 
-[S-]según el Señor ==dio== 
+[S- OTRO (ALGUIEN) - CADA UNO]
 
-
-
-:: **RAZON**::
-
-[S-]Yo ==planté==,[M]
-
-[S-]Apolos ==regó==, 
-
-
-
-::**CONTRASTE**::
-
-[S-] [pero]() Dios ==ha dado el crecimiento==. [M]
-
-[S-] [Así que]() ni el que riega ==es== algo, 
-
-el que riega ==son== una misma cosa, 
-
-
-
-::**CONTRASTE**::
-
-[S-] [pero]() cada uno ==recibirá== [M]
-
-::EXPONE::
-
-[S-] ==puse== el fundamento, [M]
-
-[S-]  [y]() otro ==edifica sobre él==.
-
-
-
-::**CONTRASTA**::
-
-[S-] [Pero]() cada uno ==tenga cuidado== [M]
+[Pero]() cada uno ==tenga cuidado== 
 
 Cómo ==edifica encima==. 
 
+[S- CADA UNO - JESUCRISTO]
 
+ el cual ==es== Jesucristo. 
 
-:: **RAZON**::
+[S- JESUCRISTO  - ALGUIEN]
 
-[S-] el cual ==es== Jesucristo. [M]
+[Ahora bien](), si alguien ==edifica== [M]
 
-
-
-::**EXPONE**::
-
-[S-]la obra  ==se hará== evidente; [M]
+la obra  ==se hará== evidente; 
 
 +cual ==es==+la calidad de la obra 
 
 que ==ha edificado== 
 
-==recibirá== recompensa. 			
+ ==recibirá== recompensa.
 
  sufrirá ==pérdida==;
 
+ [sin embargo](), él ==será salvo==, 
 
+[S- ALGUIEN - USTEDES]
 
-::**CONTRASTE**::
+¿No ==saben== [M]
 
-[S-] [sin embargo](), él ==será salvo== [M]
+[que]() ustedes ==son== templo de Dios 
 
+[y]() que el Espíritu de Dios ==habita== en ustedes?
 
+[S- USTEDES - DIOS]
 
-::**EXPONE**::
+Dios lo ==destruirá== a él,
 
-[S-]¿No ==saben== [M]
+[S-  DIOS - USTEDES]
 
-[que]()  ==son== templo de Dios 
+eso ==son==.
 
-[S-] [y]() que el Espíritu de Dios ==habita== en ustedes?
-
-
-
-::**RESULTADO**::
-
-[S-]Dios lo ==destruirá== a él,[M]
-
-
-
-::**EXPONE**::
-
-[S-]Nadie ==se engañe== [M]
+Nadie ==se engañe== [M]
 
 ==hágase== necio
-
-[S-]==está==: *«Él es* el que prende a los sabios
-
- [Y también:]() «El Señor ==conoce== los razonamientos 
-
- los cuales ==son== inútiles».
-
-
-
-::**RESULTADO**
-
-[S-]  [Así que]() nadie ==se jacte== [M]
 
