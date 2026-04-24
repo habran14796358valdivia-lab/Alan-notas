@@ -1,32 +1,32 @@
 1 CORINTIOS 3 PASO 7- REUCCION
 
- no ==pude== hablarles 
+yo no ==pude== hablarles
 
-Les ==di a beber== 
+Les ==di a beber== leche
 
-​	[porque]() no ==podían== *recibirlo*
+​	[porque]() no ==podían== *recibirlo*. 
 
-​	 [ni]() aun ==pueden==, 
+​	+[PERO]()+ ni ahora ==pueden==, 
 
 ​		[porque]()  ==son== carnales. 
 
-​			[Pues]() ¿no ==son== carnales 
+​			[Pues]()  ¿no ==son== carnales 
 
-​			[y]() ==andan== como hombres 
+​			[y]() ==andan== como hombres
 
-​			[Porque]() no ==dice==:
+​		[Porque]() cuando uno ==dice==: 
 
-​			+[DE HECHO]()+==soy== de Pablo»,
+​		+[DE HECHO]()+Yo ==soy== de Pablo»,
 
-​			 +[PERO]()+: «Yo soy de Apolos», ¿no ==son== *como* hombres 
+​		+[PERO]()+«Yo soy de Apolos», ¿no ==son== *como* hombres 
 
 ​			+[POR LO TANTO]()+¿Qué ==es==, pues, Apolos? 
 
-​			¿[Y]() qué ==es== Pablo?
+​			¿[Y]() qué ==es== Pablo? Servidores
 
-Servidores mediante los cuales ustedes ==han creído==, 
+mediante los cuales ustedes ==han creído==, 
 
-según el Señor ==dio== 
++[Y]()+ según el Señor ==dio== *oportunidad* 
 
 Yo ==planté==,
 
@@ -34,55 +34,55 @@ Apolos ==regó==,
 
 [pero]() Dios ==ha dado el crecimiento==. 
 
-[Así que]() ni el que riega ==es== algo, 
+​	[Así que]() ni el que planta ni el que riega ==es== algo, 
 
-el que riega ==son== una misma cosa, 
+​	[Ahora bien](), ==son== una misma cosa,
 
-[pero]() cada uno ==recibirá== 
+​	[pero]() cada uno ==recibirá== su recompensa 
 
-​	[Porque]() nosotros ==somos== colaboradores 
+​		[Porque]()  ==somos== colaboradores 
 
-​	[*y*]() ustedes ==son== el campo 
+ustedes ==son== el campo de cultivo de Dios
 
-==puse== el fundamento, 
+yo, ==puse== el fundamento,
 
- [y]() otro ==edifica sobre él==.
++[PERO]()+ [y]() otro ==edifica sobre él==.
 
 [Pero]() cada uno ==tenga cuidado== 
 
 Cómo ==edifica encima==. 
 
-​	[Pues]() nadie ==puede== poner otro fundamento
+​	[Pues]() nadie ==puede== poner otro fundamento 
 
  el cual ==es== Jesucristo. 
 
-​	[Ahora bien](), alguien ==edifica== 
+[Ahora bien](), si alguien ==edifica== 
 
 la obra  ==se hará== evidente; 
 
 ​	[porque]() el día la ==dará a conocer==,
 
-​		[pues]() con fuego ==será revelada==
+​	[pues]() con fuego ==será revelada==
 
-​		+[Y]()+El fuego ==probará== 
+​	+[Y]()+El fuego mismo ==probará== 
 
 +cual ==es==+la calidad de la obra 
 
-​			[Si]() ==permanece== la obra
+​	[Si]() ==permanece== la obra 
 
 que ==ha edificado== 
 
-==recibirá== recompensa. 
+ ==recibirá== recompensa.
 
-​			[Si]() la obra  ==es consumida== 
+​	 [Si]() la obra ==es consumida== 
 
  sufrirá ==pérdida==;
 
- [sin embargo](), él ==será salvo==
+ [sin embargo](), él ==será salvo==, 
 
 ¿No ==saben== 
 
-[que]()  ==son== templo de Dios 
+[que]() ustedes ==son== templo de Dios 
 
 [y]() que el Espíritu de Dios ==habita== en ustedes?
 
@@ -92,24 +92,25 @@ Dios lo ==destruirá== a él,
 
 ​	[porque]() el templo de Dios ==es== santo,
 
-​	[Y]() eso es lo que ustedes ==son==.
+eso ==son==.
 
 Nadie ==se engañe== 
 
-​	[Si]() alguien  ==se cree== sabio 
+​	[Si]() alguien de ustedes ==se cree== sabio 
 
 ==hágase== necio
 
 ​	[a fin]() de ==llegar a ser== sabio.
 
-​	[Pues]() ==escrito==
+​	[Porque]() la sabiduría de este mundo ==es== necedad ante Dios.
 
-==está==: *«Él es* el que prende a los sabios
+​	[Pues]() ==escrito está==: *«Él es* el que prende a los sabios 
 
- [Y también:]() «El Señor ==conoce== los razonamientos 
 
- los cuales ==son== inútiles».
+​	[Y también:]() «El Señor ==conoce== los razonamientos de los sabios,
 
- [Así que]() nadie ==se jacte== 
+​	+[que]()+los cuales ==son== inútiles».
 
-​	[porque]() todo ==es== de ustedes:
+​		[Así que]() nadie ==se jacte== 
+
+​			[porque]() todo ==es== de ustedes
