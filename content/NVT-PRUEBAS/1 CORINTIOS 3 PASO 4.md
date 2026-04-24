@@ -46,7 +46,7 @@ Apolos ==regó==,
 
  [Porque]() nosotros ==somos== colaboradores en la labor de Dios, 
 
-*y* ustedes ==son== el campo de cultivo de Dios, el edificio de Dios.
+ustedes ==son== el campo de cultivo de Dios, el edificio de Dios.
 
 Conforme a la gracia de Dios que me fue dada, 
 
