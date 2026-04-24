@@ -1,540 +1,154 @@
-1 CORINTIOS 3 PASO 10- PATRON
+**1 CORINTIOS 3 PASO 10- RUPTURA**
 
-SE UNE ETIQUETAS, SUJETO Y MOVIMIENTO
+**COMBINADO**
 
-
-
-::EXPONE::
-
-no ==pude== hablarles 
+[S- YO (PABLO)]
 
 ::EXPONE::
 
-Les ==di a beber== 
+yo no ==pude== hablarles
 
-:: RESULTADO::
+::EXPONE::
 
-Servidores mediante los cuales ustedes ==han creído==, 
+Les ==di a beber== leche
+
+[S- NOSOTROS - USTEDES]
+
+::RESULTADO::
+
+mediante los cuales ustedes ==han creído==, 
+
+[S- USTEDES - EL SEÑOR]
 
 ::RAZON::
 
-según el Señor ==dio== 
++[Y]()+ según el Señor ==dio== *oportunidad* 
+
+---
+
+[S- EL SEÑOR-YO (PABLO)]
 
 ::EXPONE::
 
-Yo ==planté==,
+Yo ==planté==, [M]
+
+[S- YO (PABLO) - EL (APOLOS)]
 
 ::EXPONE::
 
 Apolos ==regó==, 
 
-::CONTRASTA::
+[S- EL (APOLOS) - DIOS]
+
+::CONTRASTE::
 
 [pero]() Dios ==ha dado el crecimiento==. 
 
-::RESULTADO::
-
-[Así que]() ni el que riega ==es== algo, 
+[S- DIOS - USTEDES]
 
 ::EXPONE::
 
-el que riega ==son== una misma cosa, 
+ustedes ==son== el campo de cultivo de Dios
+
+---
+
+[S- USTEDES - YO (PABLO)]
+
+::EXPONE::
+
+yo, ==puse== el fundamento, [M]
+
+[S- YO (PABLO) - OTRO (ALGUIEN)]
 
 ::CONTRASTA::
 
-[pero]() cada uno ==recibirá== 
++[PERO]()+ [y]() otro ==edifica sobre él==.
 
-::EXPONE::
+[S- OTRO (ALGUIEN) - CADA UNO]
 
-==puse== el fundamento, 
-
-::EXPONE::
-
- [y]() otro ==edifica sobre él==.
-
-::CONTRATA::
+::CONTRASTA::
 
 [Pero]() cada uno ==tenga cuidado== 
 
 ::EXPONE::
 
-Cómo ==edifica encima==.  -----
+Cómo ==edifica encima==. 
 
-::RAZON::
+[S- CADA UNO - JESUCRISTO]
+
+::EXPONE::
 
  el cual ==es== Jesucristo. 
+
+---
+
+[S- JESUCRISTO  - ALGUIEN]
+
+::CONTRASTA::
+
+[Ahora bien](), si alguien ==edifica== [M]
 
 ::RESULTADO::
 
 la obra  ==se hará== evidente; 
 
-::RESULTADO:: ------
+::RESULTADO::
 
 +cual ==es==+la calidad de la obra 
 
-::EXPONE:: --------
+::EXPONE::
 
 que ==ha edificado== 
 
-::RESULTADO:: 
+::RESULTADO::
 
-==recibirá== recompensa. 
+ ==recibirá== recompensa.
 
-::RESULTADO:: 
+::RESULTADO::
 
  sufrirá ==pérdida==;
 
-::CONTRASTESTE::
+::CONTRASTE::
 
- [sin embargo](), él ==será salvo==
+ [sin embargo](), él ==será salvo==, 
+
+---
+
+[S- ALGUIEN - USTEDES]
 
 ::EXPONE::
 
-¿No ==saben== 
+¿No ==saben== [M]
 
 ::EXPONE::
 
-[que]()  ==son== templo de Dios 
+[que]() ustedes ==son== templo de Dios 
 
 ::EXPONE::
 
 [y]() que el Espíritu de Dios ==habita== en ustedes?
 
+[S- USTEDES - DIOS]
+
 ::RESULTADO::
 
 Dios lo ==destruirá== a él,
 
-::EXPONE::
-
-Nadie ==se engañe== 
+[S-  DIOS - USTEDES]
 
 ::EXPONE::
 
-==hágase== necio
-
-::RAZON::
-
-==está==: *«Él es* el que prende a los sabios
-
-::RAZON::
-
- [Y también:]() «El Señor ==conoce== los razonamientos 
-
-::RAZON::
-
- los cuales ==son== inútiles».
-
-::RESULTADO::
-
- [Así que]() nadie ==se jacte== 
-
-
+eso ==son==.
 
 ---
 
 ::EXPONE::
 
- no ==pude== hablarles 
-
-::EXPONE::
-
-Les ==di a beber== 
-
-::RESULTADO::
-
-[S-]Servidores mediante los cuales ustedes ==han creído==, [M]
-
-::RAZON::
-
-[S-]según el Señor ==dio== 
-
-::EXPONE::
-
-[S-]Yo ==planté==,[M]
-
-::EXPONE::
-
-[S-]Apolos ==regó==, 
-
-::CONTRASTESTE::
-
-[S-] [pero]() Dios ==ha dado el crecimiento==. [M]
-
-::RESULTADO::
-
-[S-] [Así que]() ni el que riega ==es== algo, 
-
-::EXPONE::
-
-el que riega ==son== una misma cosa, 
-
-::CONTRASTESTE::
-
-[S-] [pero]() cada uno ==recibirá== [M]
-
-::EXPONE::
-
-[S-] ==puse== el fundamento, [M]
-
-::EXPONE::
-
-[S-]  [y]() otro ==edifica sobre él==.
-
-::CONTRASTESTE::
-
-[S-] [Pero]() cada uno ==tenga cuidado== [M]
-
-::EXPONE::
-
-Cómo ==edifica encima==. 
-
-::RAZON::
-
-[S-] el cual ==es== Jesucristo. [M]
-
-::RESULTADO::
-
-[S-]la obra  ==se hará== evidente; [M]
-
-::RESULTADO::
-
-+cual ==es==+la calidad de la obra 
-
-::EXPONE::
-
-que ==ha edificado== 
-
-::RESULTADO::
-
-==recibirá== recompensa. 			
-
-::RESULTADO::
-
- sufrirá ==pérdida==;
-
-::CONTRASTESTE::
-
-[S-] [sin embargo](), él ==será salvo== [M]
-
-::EXPONE::
-
-[S-]¿No ==saben== [M]
-
-::EXPONE::
-
-[que]()  ==son== templo de Dios 
-
-::EXPONE::
-
-[S-] [y]() que el Espíritu de Dios ==habita== en ustedes?
-
-::RESULTADO::
-
-[S-]Dios lo ==destruirá== a él,[M]
-
-::EXPONE::
-
-[S-]Nadie ==se engañe== [M]
+Nadie ==se engañe== [M]
 
 ::EXPONE::
 
 ==hágase== necio
-
-::RAZON::
-
-[S-]==está==: *«Él es* el que prende a los sabios
-
-::RAZON::
-
- [Y también:]() «El Señor ==conoce== los razonamientos 
-
-::RAZON:: 
-
-los cuales ==son== inútiles».
-
-::RESULTADO::
-
-[S-]  [Así que]() nadie ==se jacte== [M]
-
-
-
----
-
-**TRABAJO**
-
-
-
-::EXPONE::
-
- no ==pude== hablarles 
-
-::EXPONE::
-
-Les ==di a beber== 
-
-::RESULTADO::
-
-[S-]Servidores mediante los cuales ustedes ==han creído==, [M]
-
-::RAZON::
-
-[S-]según el Señor ==dio== 
-
-::EXPONE::
-
-[S-]Yo ==planté==,[M]
-
-::EXPONE::
-
-[S-]Apolos ==regó==, 
-
-::CONTRASTESTE::
-
-[S-] [pero]() Dios ==ha dado el crecimiento==. [M]
-
-::RESULTADO::
-
-[S-] [Así que]() ni el que riega ==es== algo, 
-
-::EXPONE::
-
-el que riega ==son== una misma cosa, 
-
-::CONTRASTESTE::
-
-[S-] [pero]() cada uno ==recibirá== [M]
-
-::EXPONE::
-
-[S-] ==puse== el fundamento, [M]
-
-::EXPONE::
-
-[S-]  [y]() otro ==edifica sobre él==.
-
-::CONTRASTESTE::
-
-[S-] [Pero]() cada uno ==tenga cuidado== [M]
-
-::EXPONE::
-
-Cómo ==edifica encima==. 
-
-::RAZON::
-
-[S-] el cual ==es== Jesucristo. [M]
-
-::RESULTADO::
-
-[S-]la obra  ==se hará== evidente; [M]
-
-::RESULTADO::
-
-+cual ==es==+la calidad de la obra 
-
-::EXPONE::
-
-que ==ha edificado== 
-
-::RESULTADO::
-
-==recibirá== recompensa. 			
-
-::RESULTADO::
-
- sufrirá ==pérdida==;
-
-::CONTRASTESTE::
-
-[S-] [sin embargo](), él ==será salvo== [M]
-
-::EXPONE::
-
-[S-]¿No ==saben== [M]
-
-::EXPONE::
-
-[que]()  ==son== templo de Dios 
-
-::EXPONE::
-
-[S-] [y]() que el Espíritu de Dios ==habita== en ustedes?
-
-::RESULTADO::
-
-[S-]Dios lo ==destruirá== a él,[M]
-
-::EXPONE::
-
-[S-]Nadie ==se engañe== [M]
-
-::EXPONE::
-
-==hágase== necio
-
-::RAZON::
-
-[S-]==está==: *«Él es* el que prende a los sabios
-
-::RAZON::
-
- [Y también:]() «El Señor ==conoce== los razonamientos 
-
-::RAZON:: 
-
-los cuales ==son== inútiles».
-
-::RESULTADO::
-
-[S-]  [Así que]() nadie ==se jacte== [M]
-
-
-
----
-
-HOJA DE TRBAJO 2
-
-
-
-::EXPONE::
-
-::EXPONE::
-
-[S-] ::RESULTADO:: [M]
-
-[S-] ::RAZON::
-
-[S-] ::EXPONE::[M]
-
-[S-] ::EXPONE::
-
-[S-] ::CONTRASTESTE:: [M]
-
-[S-] ::RESULTADO::
-
-::EXPONE::
-
-[S-] ::CONTRASTESTE:: [M]
-
-[S-] ::EXPONE::[M]
-
-[S-]  ::EXPONE::
-
-[S-] ::CONTRASTESTE::[M]
-
-::EXPONE::
-
-[S-] ::RAZON:: [M]
-
-[S-] ::RESULTADO:: [M]
-
-::RESULTADO::
-
-::EXPONE::
-
-::RESULTADO::		
-
-::RESULTADO::
-
-[S-] ::CONTRASTESTE::[M]
-
-[S-] ::EXPONE:: [M]
-
-::EXPONE::
-
-[S-] ::EXPONE::
-
-[S-] ::RESULTADO::[M]
-
-[S-] ::EXPONE:: [M]
-
-::EXPONE::
-
-[S-] ::RAZON::
-
-::RAZON::
-
-::RAZON:: 
-
-[S-] ::RESULTADO:: [M]
-
-
-
-----
-
-HOJA DE TRABAJO 3
-
-**REPETICION**
-
-[::EXPONE::
-
-::EXPONE::]
-
-[[S-] ::RESULTADO:: [M]]
-
-[[S-] ::RAZON::]
-
-[[S-] ::EXPONE::[M]]
-
-[[S-] ::EXPONE::]
-
-[[S-] ::CONTRASTESTE:: [M]]
-
-[[S-] ::RESULTADO::]
-
-[::EXPONE::]
-
-[[S-] ::CONTRASTESTE:: [M]]
-
-[[S-] ::EXPONE::[M]]
-
-[[S-]  ::EXPONE::]
-
-[[S-] ::CONTRASTESTE::[M]]
-
-[::EXPONE::]
-
-[[S-] ::RAZON:: [M]]
-
-[[S-] ::RESULTADO:: [M]
-
-::RESULTADO::]
-
-[::EXPONE::]
-
-**REPETICION**
-
-[::RESULTADO::		
-
-::RESULTADO::]
-
-[[S-] ::CONTRASTESTE::[M]]
-
-[[S-] ::EXPONE:: [M]
-
-::EXPONE::]
-
-[[S-] ::EXPONE::]
-
-[[S-] ::RESULTADO::[M]]
-
-**REPETICION**
-
-[[S-] ::EXPONE:: [M]
-
-::EXPONE::]
-
-**REPETICION**
-
-[[S-] ::RAZON::
-
-::RAZON::
-
-::RAZON:: ]
-
-[[S-] ::RESULTADO:: [M]]
-
-
 
 ---
 
