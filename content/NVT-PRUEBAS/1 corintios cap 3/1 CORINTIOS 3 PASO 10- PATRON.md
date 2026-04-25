@@ -24,13 +24,11 @@ mediante los cuales ustedes ==han creído==,
 
 +[Y]()+ según el Señor ==dio== *oportunidad* 
 
----
-
 [S- EL SEÑOR-YO (PABLO)]
 
 ::EXPONE::
 
-Yo ==planté==, [M]
+Yo ==planté==, 
 
 [S- YO (PABLO) - EL (APOLOS)]
 
@@ -50,13 +48,11 @@ Apolos ==regó==,
 
 ustedes ==son== el campo de cultivo de Dios
 
----
-
 [S- USTEDES - YO (PABLO)]
 
 ::EXPONE::
 
-yo, ==puse== el fundamento, [M]
+yo, ==puse== el fundamento, 
 
 [S- YO (PABLO) - OTRO (ALGUIEN)]
 
@@ -64,11 +60,13 @@ yo, ==puse== el fundamento, [M]
 
 +[PERO]()+ [y]() otro ==edifica sobre él==.
 
+------------------------------------------RUPTURA
+
 [S- OTRO (ALGUIEN) - CADA UNO]
 
 ::CONTRASTA::
 
-[Pero]() cada uno ==tenga cuidado== 
+[Pero]() cada uno ==tenga cuidado==  [M] (IMPERATIVO)
 
 ::EXPONE::
 
@@ -80,13 +78,11 @@ Cómo ==edifica encima==.
 
  el cual ==es== Jesucristo. 
 
----
-
 [S- JESUCRISTO  - ALGUIEN]
 
 ::CONTRASTA::
 
-[Ahora bien](), si alguien ==edifica== [M]
+[Ahora bien](), si alguien ==edifica== 
 
 ::RESULTADO::
 
@@ -112,13 +108,11 @@ que ==ha edificado==
 
  [sin embargo](), él ==será salvo==, 
 
----
-
 [S- ALGUIEN - USTEDES]
 
 ::EXPONE::
 
-¿No ==saben== [M]
+¿No ==saben==
 
 ::EXPONE::
 
@@ -140,11 +134,11 @@ Dios lo ==destruirá== a él,
 
 eso ==son==.
 
----
+--------- RUPTURA
 
 ::EXPONE::
 
-Nadie ==se engañe== [M]
+Nadie ==se engañe== [M] (IMPERATIVO)
 
 ::EXPONE::
 
