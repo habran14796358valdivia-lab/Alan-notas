@@ -238,6 +238,58 @@ MARCAMOS SUJETO Y MOVIMIENTO
 
 [S: YO (PABLO)]
 
+yo no ==pude== hablarles 
+
+Les ==di a beber== leche	
+
+[S: YO (PABLO)----- USTEDES]					
+
+mediante los cuales ustedes ==han creído==, 
+
+[S: USTEDES----EL SEÑOR]
+
++[Y]()+ según el Señor ==dio== *oportunidad* 
+
+[S: EL SEÑOR----- YO (PABLO)]
+
+Yo ==planté==,
+
+[S: YO (PABLO)---- EL (APOLOS)]
+
+Apolos ==regó==, 
+
+[S: EL (APOLOS)----- DIOS]
+
+[pero]() Dios ==ha dado el crecimiento==. 
+
+[S: DIOS---- USTEDES]
+
+ Y ustedes ==son== el campo de cultivo 
+
+[S: USTEDES---- YO(PABLO)]
+
+yo, ==puse== el fundamento,
+
+[S: YO (PABLO)-----OTRO]
+
+ [y]() otro ==edifica sobre él==.
+
+ [Pero]() cada uno ==tenga cuidado==  [M] 
+
+ cómo ==edifica encima==.
+
+---
+
+
+
+---
+
+PASO 9 
+
+---
+
+[S: YO (PABLO)]
+
 ::EXPONE::
 
 yo no ==pude== hablarles 
@@ -299,54 +351,6 @@ yo, ==puse== el fundamento,
  [Pero]() cada uno ==tenga cuidado==  [M]  
 
 ::EXPONE::
-
- cómo ==edifica encima==.
-
----
-
-PASO 9 
-
----
-
-[S: YO (PABLO)]
-
-yo no ==pude== hablarles 
-
-Les ==di a beber== leche	
-
-[S: YO (PABLO)----- USTEDES]					
-
-mediante los cuales ustedes ==han creído==, 
-
-[S: USTEDES----EL SEÑOR]
-
-+[Y]()+ según el Señor ==dio== *oportunidad* 
-
-[S: EL SEÑOR----- YO (PABLO)]
-
-Yo ==planté==,
-
-[S: YO (PABLO)---- EL (APOLOS)]
-
-Apolos ==regó==, 
-
-[S: EL (APOLOS)----- DIOS]
-
-[pero]() Dios ==ha dado el crecimiento==. 
-
-[S: DIOS---- USTEDES]
-
- Y ustedes ==son== el campo de cultivo 
-
-[S: USTEDES---- YO(PABLO)]
-
-yo, ==puse== el fundamento,
-
-[S: YO (PABLO)-----OTRO]
-
- [y]() otro ==edifica sobre él==.
-
- [Pero]() cada uno ==tenga cuidado==  [M] 
 
  cómo ==edifica encima==.
 
@@ -598,190 +602,3 @@ Cómo ==edifica encima==.
 
 
 
-yo, hermanos, no ==pude== hablarles como a espirituales,
-
-Les ==di a beber== leche, no alimento sólido, 
-
-​	[porque]() todavía no ==podían== *recibirlo*. En verdad,
-
-​	+[PERO]()+ ni aun ahora ==pueden==, 
-
-​		[porque]() todavía ==son== carnales. 
-
-​			[Pues]() habiendo celos y discusiones entre ustedes, ¿no ==son== carnales 
-
-​			[y]() ==andan== como hombres del mundo?
-
-​		[Porque]() cuando uno ==dice==: 
-
-​		+[DE HECHO]()+Yo ==soy== de Pablo»,
-
-​		+[PERO]()+«Yo soy de Apolos», ¿no ==son== *como* hombres *del mundo?* 
-
-​			+[POR LO TANTO]()+¿Qué ==es==, pues, Apolos? 
-
-​			¿[Y]() qué ==es== Pablo? Servidores
-
-mediante los cuales ustedes ==han creído==, 
-
-+[Y]()+ según el Señor ==dio== *oportunidad* a cada uno.
-
-Yo ==planté==,
-
-Apolos ==regó==, 
-
-[pero]() Dios ==ha dado el crecimiento==. 
-
-​	[Así que]() ni el que planta ni el que riega ==es== algo, 
-
-​	[Ahora bien](), el que planta y el que riega ==son== una misma cosa,
-
-​	[pero]() cada uno ==recibirá== su propia recompensa conforme a su propio trabajo.
-
-​		[Porque]() nosotros ==somos== colaboradores en la labor de Dios, 
-
-ustedes ==son== el campo de cultivo de Dios, el edificio de Dios.
-
-yo, como sabio arquitecto, ==puse== el fundamento,
-
-+[PERO]()+ [y]() otro ==edifica sobre él==.
-
-[Pero]() cada uno ==tenga cuidado== 
-
-Cómo ==edifica encima==. 
-
-----
-
-Así que yo, hermanos, no ==pude== hablarles como a espirituales,
-
- [sino]() como a carnales, como a niños en Cristo.
-
-Les ==di a beber== leche, no alimento sólido, 
-
-[porque]() todavía no ==podían== *recibirlo*. En verdad,
-
- +[PERO]()+ ni aun ahora ==pueden==, 
-
-[porque]() todavía ==son== carnales. 
-
-[Pues]() habiendo celos [y]() discusiones entre ustedes, ¿no ==son== carnales 
-
-[y]() ==andan== como hombres del mundo?
-
-[Porque]() [cuando]() uno ==dice==: 
-
-«+[DE HECHO]()+Yo ==soy== de Pablo»,
-
-+[PERO]()+«Yo soy de Apolos», ¿no ==son== *como* hombres *del mundo?* 
-
-+[POR LO TANTO]()+¿Qué ==es==, pues, Apolos? 
-
-¿[Y]() qué ==es== Pablo? Servidores 
-
-mediante los cuales ustedes ==han creído==, 
-
-+[Y]()+ según el Señor ==dio== *oportunidad* a cada uno.
-
- Yo ==planté==, 
-
-Apolos ==regó==, 
-
-[pero]() Dios ==ha dado el crecimiento==. 
-
-[Así que]() ni el que planta ni el que riega ==es== algo, 
-
-[sino]() Dios, que da el crecimiento. 
-
-[Ahora bien](), el que planta y el que riega ==son== una misma cosa,
-
- [pero]() cada uno ==recibirá== su propia recompensa conforme a su propio trabajo.
-
- [Porque]() nosotros ==somos== colaboradores en la labor de Dios, 
-
-ustedes ==son== el campo de cultivo de Dios, el edificio de Dios.
-
-Conforme a la gracia de Dios que me fue dada, 
-
-yo, como sabio arquitecto, ==puse== el fundamento,
-
- +[PERO]()+ [y]() otro ==edifica sobre él==.
-
-[Pero]() cada uno ==tenga cuidado== 
-
-cómo ==edifica encima==. 
-
-
-
-
-
-
-
-
-
-[::EXPONE::
-
-::EXPONE::]
-
-[[S-] ::RESULTADO:: [M]]
-
-[[S-] ::RAZON::]
-
-[[S-] ::EXPONE::[M]]
-
-[[S-] ::EXPONE::]
-
-[[S-] ::CONTRASTESTE:: [M]]
-
-[[S-] ::RESULTADO::]
-
-[::EXPONE::]
-
-[[S-] ::CONTRASTESTE:: [M]]
-
-[[S-] ::EXPONE::[M]]
-
-[[S-]  ::EXPONE::]
-
-[[S-] ::CONTRASTESTE::[M]]
-
-[::EXPONE::]
-
-[[S-] ::RAZON:: [M]]
-
-[[S-] ::RESULTADO:: [M]
-
-::RESULTADO::]
-
-[::EXPONE::]
-
-*REPETICION*
-
-[::RESULTADO::		
-
-::RESULTADO::]
-
-[[S-] ::CONTRASTESTE::[M]]
-
-[[S-] ::EXPONE:: [M]
-
-::EXPONE::]
-
-[[S-] ::EXPONE::]
-
-[[S-] ::RESULTADO::[M]]
-
-*REPETICION*
-
-[[S-] ::EXPONE:: [M]
-
-::EXPONE::]
-
-*REPETICION*
-
-[[S-] ::RAZON::
-
-::RAZON::
-
-::RAZON:: ]
-
-[[S-] ::RESULTADO:: [M]]
