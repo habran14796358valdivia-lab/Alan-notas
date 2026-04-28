@@ -33,3 +33,17 @@ en quien ==tenemos== redención
 Él ==es== la imagen del Dios invisible
 
 ​	[Porque]() en Él ==fueron creadas== todas las cosas
+
+todo ==ha sido creado== por medio de Él 
+
+[Y]() Él ==es== antes de todas las cosas
+
+[y]() en Él todas las cosas ==permanecen==
+
++[y]()+Él ==es== también la cabeza
+
+Él ==es== el principio
+
+​	[a fin de que]() Él ==tenga== en todo la primacía
+
+​		[Porque]() ==agradó== *al Padre* que en Él habitara toda la plenitud
