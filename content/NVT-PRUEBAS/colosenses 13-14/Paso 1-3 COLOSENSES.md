@@ -32,7 +32,7 @@ Así ustedes lo ==aprendieron== de Epafras
 
 quien ==es== fiel servidor
 
-el día que *lo* ==supimos==
+nosotros el día que *lo* ==supimos==
 
 no ==hemos cesado== de orar por ustedes
 
