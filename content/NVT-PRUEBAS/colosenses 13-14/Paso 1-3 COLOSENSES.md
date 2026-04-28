@@ -28,7 +28,7 @@ el día que ==oyeron==
 
  ==comprendieron== la gracia de Dios 
 
-ustedes lo ==aprendieron== de Epafras
+Así ustedes lo ==aprendieron== de Epafras
 
 quien ==es== fiel servidor
 
