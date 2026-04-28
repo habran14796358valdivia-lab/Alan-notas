@@ -94,8 +94,6 @@ también ==trabajo==,
 
 gran lucha ==tengo== por ustedes 
 
-y por los que están en La odicea, y por todos 
-
 los que no me ==han visto== en persona
 
 con esto ==sean alentados== sus corazones
