@@ -18,7 +18,7 @@ Así ustedes lo ==aprendieron== de Epafras
 
 quien ==es== fiel servidor
 
-[también]() nosotros, desde el día que *lo* ==supimos==,
+nosotros, desde el día que *lo* ==supimos==,
 
 no ==hemos cesado== de orar por ustedes
 
@@ -47,3 +47,37 @@ todo ==ha sido creado== por medio de Él
 ​	[a fin de que]() Él ==tenga== en todo la primacía
 
 ​		[Porque]() ==agradó== *al Padre* que en Él habitara toda la plenitud
+
+Dios los ==ha reconciliado== *en Cristo* 
+
+Él hará si en verdad ==permanecen== en la fe 
+
+del evangelio que ==han oído==,
+
+yo, Pablo, ==fui hecho== ministro. 
+
+me ==alegro== de mis sufrimientos 
+
+[y]() en mi carne, ==completando== lo que falta
+
+Su cuerpo, que ==es== la iglesia. 
+
+==fui hecho== ministro 
+
+==ha sido manifestado== a sus santos
+
+Dios ==quiso== dar a conocer 
+
+entre los gentiles, que ==es== Cristo 
+
+A Él nosotros ==proclamamos==, 
+
+​	[a fin]() de poder ==presentar== a todo hombre perfecto
+
+[también]() ==trabajo==, 
+
+​	[Porque]() ==quiero== que sepan 
+
+gran lucha ==tengo== por ustedes 
+
+[y]() por todos los que no me ==han visto== en persona
