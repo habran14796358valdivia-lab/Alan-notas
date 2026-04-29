@@ -114,4 +114,84 @@ nadie los+==estara==+ haga cautivos
 
 ​	[también]() ==han resucitado== con Él
 
-​	+[tambien]()+Dios les ==dio vida juntamente== con Cristo
+Dios les ==dio vida juntamente== con Cristo
+
+nos ==era== adverso
+
+[y]() lo ==ha quitado== de en medio
+
+==hizo== de ellos un espectáculo público
+
+ [Por tanto](), que nadie ==se constituya en juez== de ustedes
+
+solo ==son== sombra 
+
+Nadie los ==defraude== de su premio
+
+en las *visiones* que ==ha visto==
+
+==crece== con un crecimiento 
+
+​	[Si]() ustedes ==han muerto== con Cristo
+
+¿por qué, como si *aún* vivieran en el mundo, ==se someten== a preceptos 
+
+no ==manipules==, 
+
+[no]() ==gustes==
+
+[no]() ==toques==
+
+se refieren a  +==ser==+ cosas destinadas a perecer 
+
+Tales cosas ==tienen== a la verdad, la apariencia 
+
+​	[Si]() ustedes, [pues](), ==han resucitado== con Cristo
+
+==busquen== las cosas de arriba
+
+donde ==está== Cristo 
+
+==Pongan la mira== en las cosas de arriba
+
+​	[Porque]() ustedes ==han muerto==
+
+​	[y]() su vida ==está escondida== con Cristo
+
+​	[Cuando]() Cristo, nuestra vida, ==sea manifestado==
+
+​	[también]() ==serán manifestados== con Él
+
+[Por tanto](), consideren los miembros de su cuerpo terrenal como ==muertos==
+
+==es== idolatría
+
+la ira de Dios ==vendrá== sobre los hijos de desobediencia
+
+[también]() ==anduvieron== en otro tiempo
+
+cuando ==vivían== en ellas.
+
+[Pero]() ahora ==desechen== también todo esto
+
+==Dejen de mentirse== los unos a los otros
+
+no ==hay distinción== entre griego y judío
+
+[Entonces](), ustedes como escogidos de Dios, santos y amados, ==revístanse== de tierna compasión
+
+​	[si]() alguien ==tiene== queja
+
+​	[Como]() Cristo los ==perdonó==
+
+amor, que ==es== el vínculo 
+
+[Que]() la paz de Cristo ==reine== en sus corazones
+
+[en verdad]() ==fueron llamados== en un solo cuerpo
+
+[y]() ==sean== agradecidos
+
+la palabra de Cristo ==habite== en abundancia 
+
+[Y]() todo lo que ==hagan==,
