@@ -102,6 +102,8 @@ en quien ==están== escondidos
 
 lo ==digo== 
 
+nadie los ==engañe== con razonamientos persuasivos
+
 aunque ==estoy ausente== en el cuerpo
 
 ==estoy== con ustedes en espíritu
@@ -114,7 +116,7 @@ como ==fueron instruidos==
 
 ==Miren== 
 
-nadie los ==haga== cautivos 
+nadie los+==estara==+ haga cautivos 
 
 la plenitud de la Deidad ==reside== corporalmente en Él
 
