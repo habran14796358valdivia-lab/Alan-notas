@@ -168,6 +168,8 @@ no ==manipules==,
 
 [no]() ==toques==
 
+
+
 se refieren a  +==ser==+ cosas destinadas a perecer 
 
 Tales cosas ==tienen== a la verdad, la apariencia 
