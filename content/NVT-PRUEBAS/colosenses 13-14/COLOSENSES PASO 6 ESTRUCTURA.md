@@ -81,3 +81,37 @@ A Él nosotros ==proclamamos==,
 gran lucha ==tengo== por ustedes 
 
 [y]() por todos los que no me ==han visto== en persona
+
+​	[Espero que]() con esto ==sean alentados== sus corazones
+
+en quien ==están== escondidos 
+
+lo ==digo== 
+
+​	[para que]() nadie los ==engañe== con razonamientos persuasivos
+
+​		[Porque]() aunque ==estoy ausente== en el cuerpo
+
+​		[sin embargo]() ==estoy== con ustedes en espíritu
+
+[Por tanto](), de la manera que ==recibieron== a Cristo Jesús
+
+así ==anden== en Él
+
+como ==fueron instruidos==
+
+==Miren== 
+
+nadie los+==estara==+ haga cautivos 
+
+​	[Porque]() toda la plenitud de la Deidad ==reside== corporalmente en Él
+
+​	[y]() +==son==+ustedes han sido hechos completos 
+
+==es== la cabeza 
+
+​	[También]() en Él ustedes ==fueron circuncidados== con una circuncisión no hecha por manos
+
+​	[también]() ==han resucitado== con Él
+
+​	+[tambien]()+Dios les ==dio vida juntamente== con Cristo
