@@ -208,7 +208,7 @@ la paz de Cristo ==reine== en sus corazones
 
 la palabra de Cristo ==habite== en abundancia 
 
-lo que ==hagan==
+todo lo que ==hagan==
 
 Mujeres, ==estén sujetas== a sus maridos, 
 
