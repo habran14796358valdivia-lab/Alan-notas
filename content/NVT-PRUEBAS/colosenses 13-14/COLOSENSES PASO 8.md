@@ -1,12 +1,20 @@
 **COLOSENSES PASO 8** 
 
+[S-- NOSOTROS]
+
 ==Damos gracias== a Dios
+
+[S-- NOSOTROS - USTEDES]
 
 del amor que ==tienen== por todos los santos
 
 ustedes ==oyeron antes== en la palabra de verdad
 
+[S--USTEDES - EL]
+
 en todo el mundo ==está== dando fruto 
+
+[S-- EL - USTEDES]
 
 [también]() en ustedes, desde el día que ==oyeron== 
 
@@ -14,23 +22,29 @@ en todo el mundo ==está== dando fruto
 
 Así ustedes lo ==aprendieron== de Epafras
 
+[S-- USTEDES - EL (EPAFRAS)]
+
 quien ==es== fiel servidor
+
+[S-- EL  (EPAFRAS)- NOSOTROS]
 
 nosotros, desde el día que *lo* ==supimos==,
 
 no ==hemos cesado== de orar por ustedes
 
-​	
+[S--  NOSOTROS - EL  (DIOS) ]
 
 Él nos ==libró== del dominio de las tinieblas 
 
 [y]() nos ==trasladó== al reino de Su Hijo amado
 
+[S-- EL (DIOS)  - NOSOTROS]
+
 en quien ==tenemos== redención
 
-Él ==es== la imagen del Dios invisible
+[S-- NOSOTROS - EL (HIJO)]
 
-​	
+Él ==es== la imagen del Dios invisible
 
 todo ==ha sido creado== por medio de Él 
 
@@ -42,13 +56,17 @@ todo ==ha sido creado== por medio de Él
 
 Él ==es== el principio
 
-
+[S-- EL (HIJO) - EL (DIOS)]
 
 Dios los ==ha reconciliado== *en Cristo* 
+
+[S--  EL (DIOS) - USTEDES]
 
 Él hará si en verdad ==permanecen== en la fe 
 
 del evangelio que ==han oído==,
+
+[S--   USTEDES -  YO (PABLO)]
 
 yo, Pablo, ==fui hecho== ministro. 
 
@@ -56,35 +74,47 @@ me ==alegro== de mis sufrimientos
 
 [y]() en mi carne, ==completando== lo que falta
 
+[S--   YO (PABLO) - EL ]
+
 Su cuerpo, que ==es== la iglesia. 
+
+[S--   EL  -  YO (PABLO)]
 
 ==fui hecho== ministro 
 
+[S--   YO (PABLO) - EL (SUS SANTOS) ]
+
 ==ha sido manifestado== a sus santos
+
+[S-- EL (SUS SANTOS)  - EL (DIOS) ]
 
 Dios ==quiso== dar a conocer 
 
 entre los gentiles, que ==es== Cristo 
 
+[S--   EL (DIOS)  - NOSOTROS ]
+
 A Él nosotros ==proclamamos==, 
 
-
+[S-- NOSOTROS  - YO (PABLO)]
 
 [también]() ==trabajo==, 
 
-
-
 gran lucha ==tengo== por ustedes 
+
+[S--  YO (PABLO) - ELLOS]
 
 [y]() por todos los que no me ==han visto== en persona
 
-
+[S-- ELLOS -  EL]
 
 en quien ==están== escondidos 
 
+[S--  EL - YO (PABLO)]
+
 lo ==digo== 
 
-​	
+[S-- YO (PABLO) - USTEDES]
 
 [Por tanto](), de la manera que ==recibieron== a Cristo Jesús
 
@@ -94,13 +124,15 @@ como ==fueron instruidos==
 
 ==Miren== 
 
+[S-- USTEDES - EL (ALGUIEN)]
+
 nadie los+==estara==+ haga cautivos 
 
-​	
+[S-- EL (ALGUIEN) - EL (CRISTO)]
 
 ==es== la cabeza 
 
-
+[S-- EL (CRISTO) - EL (DIOS)]
 
 Dios les ==dio vida juntamente== con Cristo
 
@@ -110,6 +142,8 @@ nos ==era== adverso
 
 ==hizo== de ellos un espectáculo público
 
+[S-- EL (DIOS) -  EL (ALGUIEN)]
+
  [Por tanto](), que nadie ==se constituya en juez== de ustedes
 
 solo ==son== sombra 
@@ -118,11 +152,15 @@ Nadie los ==defraude== de su premio
 
 en las *visiones* que ==ha visto==
 
+[S-- EL (ALGUIEN) - EL (ALGUIEN)]
+
 ==crece== con un crecimiento 
 
-​	
+[S-- EL (ALGUIEN) -  USTEDES]
 
 ¿por qué, como si *aún* vivieran en el mundo, ==se someten== a preceptos 
+
+[S--  USTEDES - TU]
 
 no ==manipules==, 
 
