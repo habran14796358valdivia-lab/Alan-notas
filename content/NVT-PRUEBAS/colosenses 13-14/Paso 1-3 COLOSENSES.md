@@ -148,7 +148,7 @@ en las *visiones* que ==ha visto==
 
 ustedes ==han muerto== con Cristo
 
-==se someten== a preceptos 
+¿por qué, como si *aún* vivieran en el mundo,==se someten== a preceptos 
 
 no ==manipules==, 
 
@@ -184,7 +184,7 @@ la ira de Dios ==vendrá== sobre los hijos de desobediencia
 
 ustedes también ==anduvieron== en otro tiempo 
 
-cuando ==vivían== en ellas. Pero ahora 
+cuando ==vivían== en ellas.
 
 ==desechen== también todo esto
 
