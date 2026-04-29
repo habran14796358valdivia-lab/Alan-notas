@@ -195,3 +195,51 @@ amor, que ==es== el vínculo
 la palabra de Cristo ==habite== en abundancia 
 
 [Y]() todo lo que ==hagan==,
+
+Mujeres, ==estén sujetas== a sus maridos, 
+
+como ==conviene== en el Señor
+
+Maridos, ==amen== a sus mujeres
+
+[y]() no ==sean ásperos== con ellas
+
+Hijos, ==sean obedientes== a sus padres 
+
+​	[porque]() esto ==es== agradable al Señor
+
+Padres, no ==exasperen== a sus hijos
+
+​	[para que]() no ==se desalienten==
+
+Siervos, ==obedezcan== en todo a sus amos 
+
+​	+[si alguna vez]()+Todo lo que ==hagan==
+
+ ==háganlo== de corazón
+
+ [que]() del Señor ==recibirán== la recompensa
+
+Es a Cristo el Señor a quien ==sirven==
+
+​	[Porque]() el que procede con injusticia ==sufrirá== las consecuencias
+
+del mal que ==ha cometido==,
+
+[y]() ==eso==, sin acepción de personas.
+
+Amos, ==traten== con justicia 
+
+[que]() ustedes [también]() ==tienen== un Señor
+
+==Perseveren== en la oración
+
+​	[para que]() Dios nos ==abra== una puerta
+
+​	[también]() ==he sido encarcelado==
+
+​		[para]() ==manifestarlo==
+
+como ==debo hacerlo==. 
+
+==Anden== sabiamente
