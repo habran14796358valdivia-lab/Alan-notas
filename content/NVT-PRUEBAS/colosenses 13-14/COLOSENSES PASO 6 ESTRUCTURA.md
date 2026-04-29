@@ -243,3 +243,57 @@ Amos, ==traten== con justicia
 como ==debo hacerlo==. 
 
 ==Anden== sabiamente
+
+cómo ==deben== responder
+
+les ==informará== Tíquico
+
+lo ==he enviado== a ustedes
+
+​	[para que]() ==sepan== de nuestras circunstancias
+
+​	[y]() que ==conforte== sus corazones
+
+Onesimo ==es== uno de ustedes. 
+
+Ellos les ==informarán== acerca de todo lo que aquí pasa
+
+Aristarco, mi compañero de prisión, les ==envía saludos==. 
+
+[También]() Marcos, el primo de Bernabé, (acerca del cual ustedes ==recibieron== instrucciones
+
+​	[Si]() ==va== a verlos
+
+ ==recíbanlo bien==
+
+ellos ==han resultado ser== un estímulo 
+
+Epafras les ==envía saludos==
+
+​	[para que]() ==estén firmes==
+
+​	[Porque]() de él ==soy testigo==
+
+​	[que]() ==tiene== profundo interés por ustedes
+
+Lucas les ==envía saludos==
+
+==Saluden== a los hermanos 
+
+[Cuando]() esta carta ==se haya leído== entre ustedes
+
+ ==háganla==
+
++[que tambien]()+==leer== también en la iglesia de los laodicenses
+
++[que tambien]()+==lean== la carta *que viene* de Laodicea. 
+
+==Díganle== a Arquipo
+
+==Cuida== el ministerio 
+
+==has recibido== del Señor
+
+​	[para que]() lo ==cumplas==
+
+==Acuérdense== de mis cadenas
