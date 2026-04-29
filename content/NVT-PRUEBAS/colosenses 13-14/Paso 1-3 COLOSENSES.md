@@ -268,7 +268,7 @@ lo ==he enviado== a ustedes
 
  ==conforte== sus corazones
 
-==es== uno de ustedes. 
+Onesimo ==es== uno de ustedes. 
 
 Ellos les ==informarán== acerca de todo lo que aquí pasa
 
@@ -282,7 +282,7 @@ ustedes ==recibieron== instrucciones
 
 ellos ==han resultado ser== un estímulo 
 
-les ==envía saludos==
+Epafras les ==envía saludos==
 
 ==estén firmes==
 
@@ -290,7 +290,7 @@ de él ==soy testigo==
 
 ==tiene== profundo interés por ustedes
 
-les ==envía saludos==
+Lucas les ==envía saludos==
 
 ==Saluden== a los hermanos 
 
