@@ -174,31 +174,95 @@ esto ==pido en oración==
 
 el amor de ustedes ==abunde== aún más 
 
- 
-
 ==sean== puros e irreprensibles 
 
-==Quiero== que sepan, hermanos, que las circunstancias *en que me he visto,* ==han redundado== en un mayor progreso del evangelio, de tal manera que mis prisiones por *la causa de* Cristo se han hecho notorias en toda la guardia pretoriana y a todos los demás.  La mayoría de los hermanos, confiando en el Señor por causa de mis prisiones, tienen mucho más valor para hablar la palabra de Dios sin temor. Algunos, a la verdad, ==predican== a Cristo aun por envidia y rivalidad, pero también otros *lo hacen* de buena voluntad.  Estos *lo hacen* por amor, sabiendo que ==he sido designado== para la defensa del evangelio. Aquellos ==proclaman== a Cristo por ambición personal, no con sinceridad, pensando causarme angustia en mis prisiones.
+==Quiero== que sepan, hermanos
 
-¿Entonces qué? Que de todas maneras, ya sea fingidamente o en verdad, Cristo ==es proclamado==; y en esto me ==regocijo==, sí, y me ==regocijaré==. Porque ==sé== que esto ==resultará== en mi liberación mediante las oraciones de ustedes y la provisión del Espíritu de Jesucristo,  conforme a mi anhelo y esperanza de que en nada ==seré avergonzado==, sino *que* con toda confianza, aun ahora, como siempre, Cristo ==será exaltado== en mi cuerpo, ya sea por vida o por muerte.
+==han redundado== en un mayor progreso del evangelio
 
-Pues para mí, el vivir es Cristo y el morir es ganancia. Pero si el vivir en la carne, esto *significa* para mí *una* labor fructífera, entonces, no ==sé== cuál ==escoger==. Porque de ambos *lados* me siento ==apremiado==, teniendo el deseo de partir y estar con Cristo, pues *eso* es mucho mejor.
+Algunos, a la verdad, ==predican== a Cristo 
 
-Sin embargo, continuar en la carne es más necesario por causa de ustedes. Y convencido de esto, ==sé== que ==permaneceré== y ==continuaré== con todos ustedes para su progreso y gozo en la fe, para que su profunda satisfacción por mí ==abunde== en Cristo Jesús a causa de mi visita otra vez a ustedes.
+ sabiendo que ==he sido designado== para la defensa del evangelio
 
-Solamente ==compórtense== de una manera digna del evangelio de Cristo, de modo que ya sea que vaya a verlos, o que permanezca ausente, ==pueda oír== que ustedes están ==firmes== en un mismo espíritu, luchando unánimes por la fe del evangelio. De ninguna manera estén atemorizados por *sus* adversarios, lo cual ==es==0 señal de perdición para ellos, pero de salvación para ustedes, y esto, de Dios.
+Aquellos ==proclaman== a Cristo
 
-Porque a ustedes se les ==ha concedido== por amor de Cristo, no solo creer en Él, sino también sufrir por Él, teniendo el mismo conflicto que ==vieron== en mí, y que ahora ==oyen== *que está* en mí.
+ Cristo ==es proclamado==
 
-Por tanto, si hay algún estímulo en Cristo, si hay algún consuelo de amor, si hay alguna comunión del Espíritu, si algún afecto y compasión, ==hagan completo== mi gozo, siendo del mismo ==sentir==, conservando el mismo amor, unidos en espíritu, dedicados a un mismo propósito.
+en esto me ==regocijo==
 
-No hagan nada por egoísmo o por vanagloria, sino que con actitud humilde cada uno de ustedes considere al otro como más importante que a sí mismo, no buscando cada uno sus propios intereses, sino más bien los intereses de los demás.
+me ==regocijaré==
 
-Haya, *pues,* en ustedes esta ==actitud== que hubo también en Cristo Jesús, el cual, aunque existía en forma de Dios, no ==consideró== el ser igual a Dios como algo a qué aferrarse, sino que ==se despojó== a Sí mismo tomando forma de siervo, haciéndose semejante a los hombres. Y hallándose en forma de hombre, ==se humilló== Él mismo, haciéndose obediente hasta la muerte, y muerte de cruz. Por lo cual Dios también lo ==exaltó== hasta lo sumo, y le ==confirió== el nombre que es sobre todo nombre, para que al nombre de Jesús se ==doble== toda rodilla de los que están en el cielo, y en la tierra, y debajo de la tierra, y toda lengua ==confiese== que Jesucristo es Señor, para gloria de Dios Padre.
+==sé== que
 
-Así que, amados míos, tal como siempre ==han obedecido==, no solo en mi presencia, sino ahora mucho más en mi ausencia, ==ocúpense== en su salvación con temor y temblor. Porque Dios ==es== quien obra en ustedes tanto el querer como el hacer, para *Su* buena intención.
+esto ==resultará== en mi liberación
 
-==Hagan== todas las cosas sin murmuraciones ni discusiones, para que ==sean== irreprensibles y sencillos, hijos de Dios sin tacha en medio de una generación torcida y perversa, en medio de la cual ustedes ==resplandecen== como luminares en el mundo, sosteniendo firmemente la palabra de vida, a fin de que yo tenga motivo para gloriarme en el día de Cristo, ya que no ==habré corrido== en vano ni ==habré trabajado== en vano.
+en nada ==seré avergonzado==
+
+Cristo ==será exaltado== en mi cuerpo
+
+no ==sé== 
+
+cuál ==escoger==
+
+ me siento ==apremiado==
+
+ ==sé== 
+
+==permaneceré== 
+
+==continuaré== con todos ustedes 
+
+su profunda satisfacción por mí ==abunde== en Cristo Jesús 
+
+Solamente ==compórtense== de una manera digna 
+
+ausente, ==pueda oír== 
+
+ustedes están ==firmes== en un mismo espíritu
+
+==es== señal de perdición
+
+a ustedes se les ==ha concedido== por amor de Cristo
+
+el mismo conflicto que ==vieron== en mí
+
+ahora ==oyen== *que está* en mí.
+
+==hagan completo== mi gozo
+
+siendo del mismo ==sentir==
+
+esta ==actitud== que hubo 
+
+no ==consideró== el ser igual
+
+==se despojó== a Sí mismo 
+
+==se humilló== Él mismo
+
+Dios también lo ==exaltó== hasta lo sumo
+
+le ==confirió== el nombre 
+
+se ==doble== toda rodilla 
+
+toda lengua ==confiese== que Jesucristo es Señor
+
+tal como siempre ==han obedecido==
+
+==ocúpense== en su salvación 
+
+Dios ==es== quien obra en ustedes 
+
+==Hagan==
+
+==sean== irreprensibles
+
+ustedes ==resplandecen== como luminares
+
+no ==habré corrido== en vano 
+
+ni ==habré trabajado== en vano.
 
 Pero aunque yo ==sea derramado como libación== sobre el sacrificio y servicio de su fe, me ==regocijo== y ==comparto mi gozo== con todos ustedes. Y también ustedes, *les ruego,* ==regocíjense== de la misma manera, y ==compartan su gozo== conmigo.
 
