@@ -168,27 +168,33 @@ no ==manipules==,
 
 [no]() ==toques==
 
-
+[S-- TU - ESO ]
 
 se refieren a  +==ser==+ cosas destinadas a perecer 
 
 Tales cosas ==tienen== a la verdad, la apariencia 
 
-
+[S--  EL-USTEDES ]
 
 ==busquen== las cosas de arriba
 
+[S--  USTEDES -  EL]
+
 donde ==está== Cristo 
 
-==Pongan la mira== en las cosas de arriba
+[S--  EL-USTEDES ]
 
-​	
+==Pongan la mira== en las cosas de arriba	
 
 [Por tanto](), consideren los miembros de su cuerpo terrenal como ==muertos==
+
+[S--USTEDES -  EL]
 
 ==es== idolatría
 
 la ira de Dios ==vendrá== sobre los hijos de desobediencia
+
+[S--  EL - USTEDES ]
 
 [también]() ==anduvieron== en otro tiempo
 
@@ -198,27 +204,41 @@ cuando ==vivían== en ellas.
 
 ==Dejen de mentirse== los unos a los otros
 
+[S--USTEDES -  EL]
+
 no ==hay distinción== entre griego y judío
+
+[S--  EL - USTEDES ]
 
 [Entonces](), ustedes como escogidos de Dios, santos y amados, ==revístanse== de tierna compasión
 
-​	
+[S--USTEDES -  EL]
 
 amor, que ==es== el vínculo 
 
 [Que]() la paz de Cristo ==reine== en sus corazones
 
+[S--  EL - USTEDES ]
+
 [en verdad]() ==fueron llamados== en un solo cuerpo
 
 [y]() ==sean== agradecidos
 
+[S--USTEDES -  EL]
+
 la palabra de Cristo ==habite== en abundancia 
+
+[S--  EL - USTEDES ]
 
 [Y]() todo lo que ==hagan==,
 
 Mujeres, ==estén sujetas== a sus maridos, 
 
+[S--USTEDES -  EL]
+
 como ==conviene== en el Señor
+
+[S--  EL - USTEDES ]
 
 Maridos, ==amen== a sus mujeres
 
@@ -226,15 +246,9 @@ Maridos, ==amen== a sus mujeres
 
 Hijos, ==sean obedientes== a sus padres 
 
-​	
-
 Padres, no ==exasperen== a sus hijos
 
-
-
 Siervos, ==obedezcan== en todo a sus amos 
-
-​	
 
  ==háganlo== de corazón
 
@@ -242,11 +256,13 @@ Siervos, ==obedezcan== en todo a sus amos
 
 Es a Cristo el Señor a quien ==sirven==
 
-​	
+[S--USTEDES -  EL]
 
 del mal que ==ha cometido==,
 
 [y]() ==eso==, sin acepción de personas.
+
+[S--  EL - USTEDES ]
 
 Amos, ==traten== con justicia 
 
@@ -254,15 +270,21 @@ Amos, ==traten== con justicia
 
 ==Perseveren== en la oración
 
-​	
+[S--  USTEDES - EL]
 
 como ==debo hacerlo==. 
 
+[S-- EL- USTEDES ]
+
 ==Anden== sabiamente
+
+[S--  USTEDES - EL]
 
 cómo ==deben== responder
 
 les ==informará== Tíquico
+
+[S-- EL - YO (PABLO)]
 
 lo ==he enviado== a ustedes
 
