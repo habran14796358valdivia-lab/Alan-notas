@@ -136,22 +136,22 @@ Hermanos, ==sean== imitadores míos, y ==observen== a los que andan según el ej
 
 Porque nuestra ciudadanía ==está== en los cielos, de donde también ==ansiosamente esperamos== a un Salvador, el Señor Jesucristo, el cual ==transformará== el cuerpo de nuestro estado de humillación en conformidad al cuerpo de Su gloria, por el ejercicio del poder que tiene aun para sujetar todas las cosas a Él mismo.
 
-Así que, hermanos míos, amados y añorados, gozo y corona mía, estén así firmes en el Señor, amados.
+Así que, hermanos míos, amados y añorados, gozo y corona mía, estén así ==firmes== en el Señor, amados.
 
-Ruego a Evodia y a Síntique, que vivan en armonía en el Señor. En verdad, fiel compañero, también te ruego que ayudes a estas *mujeres* que han compartido mis luchas en *la causa* del evangelio, junto con Clemente y los demás colaboradores míos, cuyos nombres están en el libro de la vida.
+==Ruego== a Evodia y +==RUEGO==+a Síntique, que vivan en armonía en el Señor. En verdad, fiel compañero, también ==te ruego== que ==ayudes== a estas *mujeres* que ==han compartido mis luchas== en *la causa* del evangelio, junto con Clemente y los demás colaboradores míos, cuyos nombres están en el libro de la vida.
 
-Regocíjense en el Señor siempre. Otra vez *lo* diré: ¡Regocíjense! La bondad de ustedes sea conocida de todos los hombres. El Señor está cerca. Por nada estén afanosos; antes bien, en todo, mediante oración y súplica con acción de gracias, sean dadas a conocer sus peticiones delante de Dios. Y la paz de Dios, que sobrepasa todo entendimiento, guardará sus corazones y sus mentes en Cristo Jesús.
+==Regocíjense== en el Señor siempre. Otra vez lo ==diré==: ==¡Regocíjense!== La bondad de ustedes ==sea conocida== de todos los hombres. El Señor está cerca. Por nada ==estén afanosos==; antes bien, en todo, mediante oración y súplica con acción de gracias, ==sean dadas a conocer== sus peticiones delante de Dios. Y la paz de Dios, que sobrepasa todo entendimiento, ==guardará== sus corazones y sus mentes en Cristo Jesús.
 
-Por lo demás, hermanos, todo lo que es verdadero, todo lo digno, todo lo justo, todo lo puro, todo lo amable, todo lo honorable, si hay alguna virtud o algo que merece elogio, en esto mediten. Lo que también han aprendido y recibido y oído y visto en mí, esto practiquen, y el Dios de paz estará con ustedes.
+Por lo demás, hermanos, todo lo que ==es== verdadero, todo lo digno, todo lo justo, todo lo puro, todo lo amable, todo lo honorable, si hay alguna virtud o algo que merece elogio, en esto ==mediten==. Lo que también ==han aprendido== y ==recibido== y ==oído== y ==visto== en mí, ==esto practiquen==, y el Dios de paz ==estará== con ustedes.
 
-Me alegré grandemente en el Señor de que ya al fin han reavivado su cuidado para conmigo. En verdad, *antes* se preocupaban, pero les faltaba la oportunidad. No que hable porque tenga escasez, pues he aprendido a contentarme cualquiera que sea mi situación.
+==Me alegré== grandemente en el Señor de que ya al fin ==han reavivado== su cuidado para conmigo. En verdad, antes ==se preocupaban==, pero ==les faltaba la oportunidad==. No que ==hable== porque tenga escasez, pues ==he aprendido== a contentarme cualquiera que ==sea== mi situación.
 
-Sé vivir en pobreza, y sé vivir en prosperidad. En todo y por todo he aprendido el secreto tanto de estar saciado como *de* tener hambre, de tener abundancia como de sufrir necesidad. Todo lo puedo en Cristo que me fortalece. Sin embargo, han hecho bien en compartir *conmigo* en mi aflicción.
+==Sé== vivir en pobreza, y ==sé== vivir en prosperidad. En todo y por todo ==he aprendido el secreto== tanto de estar saciado como de tener hambre, de tener abundancia como de sufrir necesidad. Todo ==lo puedo== en Cristo que me fortalece. Sin embargo, ==han hecho== bien en compartir conmigo en mi aflicción.
 
-Ustedes mismos también saben, filipenses, que al comienzo *de la predicación* del evangelio, después que partí de Macedonia, ninguna iglesia compartió conmigo en cuestión de dar y recibir, sino solamente ustedes. Porque aun a Tesalónica enviaron *dádivas* más de una vez para mis necesidades.
+Ustedes mismos también ==saben==, filipenses, que al comienzo de la predicación del evangelio, después que ==partí== de Macedonia, ninguna iglesia ==compartió== conmigo en cuestión de dar y recibir, sino solamente ustedes. Porque aun a Tesalónica ==enviaron== dádivas más de una vez para mis necesidades.
 
-No es que busque la dádiva en sí, sino que busco fruto que aumente en su cuenta. Pero lo he recibido todo y tengo abundancia. Estoy bien abastecido, habiendo recibido de Epafrodito lo que han enviado: fragante aroma, sacrificio aceptable, agradable a Dios. Y mi Dios proveerá a todas sus necesidades, conforme a sus riquezas en gloria en Cristo Jesús. A nuestro Dios y Padre *sea* la gloria por los siglos de los siglos. Amén.
+No es que ==busque== la dádiva en sí, sino que ==busco== fruto que aumente en su cuenta. Pero ==lo he recibido== todo y ==tengo abundancia==. ==Estoy bien abastecido==, habiendo recibido de Epafrodito lo que han enviado: fragante aroma, sacrificio aceptable, agradable a Dios. Y mi Dios ==proveerá== a todas sus necesidades, conforme a sus riquezas en gloria en Cristo Jesús. A nuestro Dios y Padre sea la gloria por los siglos de los siglos. Amén.
 
-Saluden a todos los santos en Cristo Jesús. Los hermanos que están conmigo los saludan. Todos los santos los saludan, especialmente los de la casa de César.
+==Saluden== a todos los santos en Cristo Jesús. Los hermanos que están conmigo ==los saludan==. Todos los santos ==los saludan==, especialmente los de la casa de César.
 
 La gracia del Señor Jesucristo sea con el espíritu de ustedes.
