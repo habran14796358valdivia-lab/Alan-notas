@@ -264,44 +264,227 @@ no ==habré corrido== en vano
 
 ni ==habré trabajado== en vano.
 
-Pero aunque yo ==sea derramado como libación== sobre el sacrificio y servicio de su fe, me ==regocijo== y ==comparto mi gozo== con todos ustedes. Y también ustedes, *les ruego,* ==regocíjense== de la misma manera, y ==compartan su gozo== conmigo.
+yo ==sea derramado como libación== sobre el sacrificio
 
-Pero ==espero== en el Señor Jesús enviarles pronto a Timoteo, a fin de que yo también ==sea alentado== al saber de la condición de ustedes. Pues a nadie *más* ==tengo== del mismo sentir *y* que esté sinceramente ==interesado== en el bienestar de ustedes. Porque todos ==buscan== sus propios intereses, no los de Cristo Jesús. Pero ustedes ==conocen== los probados méritos de Timoteo, que ==sirvió== conmigo en la propagación del evangelio como un hijo *sirve* a su padre.
+me ==regocijo==
 
-Por tanto, a este ==espero== enviárselo inmediatamente tan pronto ==vea== cómo *van* las cosas conmigo; y ==confío== en el Señor que también yo mismo ==iré== pronto. Pero ==creí== necesario enviarles a Epafrodito, mi hermano, colaborador y compañero de lucha, quien también es su mensajero y servidor para mis necesidades. Porque él los+==ESTABA==+ extrañaba a todos, y estaba angustiado porque ustedes ==habían oído== que ==se había enfermado==. Pues en verdad ==estuvo enfermo==, a punto de morir. Pero Dios ==tuvo misericordia== de él, y no solo de él, sino también de mí, para que yo no ==tuviera== tristeza sobre tristeza.
+==comparto mi gozo== con todos ustedes
 
-Así que lo ==he enviado== con mayor solicitud, para que ==al verlo== de nuevo, ==se regocijen== y yo ==esté== más tranquilo en cuanto a ustedes. ==Recíbanlo==, pues, en el Señor con todo gozo, y ==tengan== en alta estima a los *que son* como él. Porque ==estuvo al borde== de la muerte por la obra de Cristo, arriesgando su vida para ==completar== lo que faltaba en el servicio de ustedes hacia mí.
+les ruego, ==regocíjense== de la misma manera
 
-Por lo demás, hermanos míos, ==regocíjense== en el Señor. A mí no me es molesto escribirles *otra vez* lo mismo, y para ustedes es motivo de seguridad. ==Cuídense== de esos perros, ==cuídense== de los malos obreros, ==cuídense== de la falsa circuncisión.
+==compartan su gozo== conmigo.
 
-Porque nosotros ==somos== la *verdadera* circuncisión, que adoramos en el Espíritu de Dios y nos gloriamos en Cristo Jesús, no poniendo la confianza en la carne, aunque yo mismo podría confiar también en la carne. Si algún otro ==cree== *tener motivo para* confiar en la carne, yo mucho más circuncidado a los ocho días de nacer, del linaje de Israel, de la tribu de Benjamín, hebreo de hebreos; en cuanto a la ley, fariseo; en cuanto al celo, perseguidor de la iglesia; en cuanto a la justicia dela ley, hallado irreprensible. Pero todo lo que para mí ==era== ganancia, ==lo he estimado== como pérdida por amor de Cristo.
+==espero== en el Señor
 
-Y aún más, yo ==estimo== como pérdida todas las cosas en vista del incomparable valor de conocer a Cristo Jesús, mi Señor. Por Él ==lo he perdido== todo, y ==lo considero== como basura a fin de ==ganar== a Cristo, y ==ser hallado== en Él, no teniendo mi propia justicia derivada de *la* ley, sino la que es por la fe en Cristo, la justicia que *procede* de Dios sobre la base de la fe, y conocerlo a Él, el poder de Su resurrección y la participación en Sus padecimientos, llegando a ser como Él en Su muerte, a fin de ==llegar== a la resurrección de entre los muertos.
+yo también ==sea alentado== al saber de la condición de ustedes
 
-No es que ya ==lo haya alcanzado== o que ya ==haya llegado a ser perfecto==, sino que ==sigo adelante==, a fin de ==poder alcanzar== aquello para lo cual también ==fui alcanzado== por Cristo Jesús. Hermanos, yo mismo no ==considero== haber*lo* ya alcanzado. Pero una cosa *hago:* olvidando lo que *queda* atrás y extendiéndome a lo que *está* delante, ==prosigo== hacia la meta para *obtener* el premio del supremo llamamiento de Dios en Cristo Jesús.
+a nadie *más* ==tengo== del mismo sentir 
 
-Así que todos los que somos perfectos, ==tengamos esta misma actitud==; y si en algo ==tienen una actitud== distinta, eso también ==se lo revelará== Dios. Sin embargo, continuemos viviendo según la misma *norma* que ==hemos alcanzado==.
+sinceramente ==interesado== en el bienestar de ustedes
 
-Hermanos, ==sean== imitadores míos, y ==observen== a los que andan según el ejemplo que ==tienen== en nosotros. Porque muchos ==andan== como ==les he dicho== muchas veces, y ahora se lo ==digo== aun llorando, *que son* enemigos de la cruz de Cristo, cuyo fin es perdición, cuyo dios es *su* apetito y *cuya* gloria está en su vergüenza, los cuales piensan solo en las cosas terrenales.
+todos ==buscan== sus propios intereses
 
-Porque nuestra ciudadanía ==está== en los cielos, de donde también ==ansiosamente esperamos== a un Salvador, el Señor Jesucristo, el cual ==transformará== el cuerpo de nuestro estado de humillación en conformidad al cuerpo de Su gloria, por el ejercicio del poder que tiene aun para sujetar todas las cosas a Él mismo.
+ustedes ==conocen== los probados méritos de Timoteo
 
-Así que, hermanos míos, amados y añorados, gozo y corona mía, estén así ==firmes== en el Señor, amados.
+==sirvió== conmigo
 
-==Ruego== a Evodia y +==RUEGO==+a Síntique, que vivan en armonía en el Señor. En verdad, fiel compañero, también ==te ruego== que ==ayudes== a estas *mujeres* que ==han compartido mis luchas== en *la causa* del evangelio, junto con Clemente y los demás colaboradores míos, cuyos nombres están en el libro de la vida.
+a este ==espero== enviárselo
 
-==Regocíjense== en el Señor siempre. Otra vez lo ==diré==: ==¡Regocíjense!== La bondad de ustedes ==sea conocida== de todos los hombres. El Señor está cerca. Por nada ==estén afanosos==; antes bien, en todo, mediante oración y súplica con acción de gracias, ==sean dadas a conocer== sus peticiones delante de Dios. Y la paz de Dios, que sobrepasa todo entendimiento, ==guardará== sus corazones y sus mentes en Cristo Jesús.
+tan pronto ==vea== cómo *van* las cosas
 
-Por lo demás, hermanos, todo lo que ==es== verdadero, todo lo digno, todo lo justo, todo lo puro, todo lo amable, todo lo honorable, si hay alguna virtud o algo que merece elogio, en esto ==mediten==. Lo que también ==han aprendido== y ==recibido== y ==oído== y ==visto== en mí, ==esto practiquen==, y el Dios de paz ==estará== con ustedes.
+==confío== en el Señor 
 
-==Me alegré== grandemente en el Señor de que ya al fin ==han reavivado== su cuidado para conmigo. En verdad, antes ==se preocupaban==, pero ==les faltaba la oportunidad==. No que ==hable== porque tenga escasez, pues ==he aprendido== a contentarme cualquiera que ==sea== mi situación.
+yo mismo ==iré== pronto
 
-==Sé== vivir en pobreza, y ==sé== vivir en prosperidad. En todo y por todo ==he aprendido el secreto== tanto de estar saciado como de tener hambre, de tener abundancia como de sufrir necesidad. Todo ==lo puedo== en Cristo que me fortalece. Sin embargo, ==han hecho== bien en compartir conmigo en mi aflicción.
+==creí== necesario enviarles a Epafrodito
 
-Ustedes mismos también ==saben==, filipenses, que al comienzo de la predicación del evangelio, después que ==partí== de Macedonia, ninguna iglesia ==compartió== conmigo en cuestión de dar y recibir, sino solamente ustedes. Porque aun a Tesalónica ==enviaron== dádivas más de una vez para mis necesidades.
+él los+==ESTABA==+ extrañaba
 
-No es que ==busque== la dádiva en sí, sino que ==busco== fruto que aumente en su cuenta. Pero ==lo he recibido== todo y ==tengo abundancia==. ==Estoy bien abastecido==, habiendo recibido de Epafrodito lo que han enviado: fragante aroma, sacrificio aceptable, agradable a Dios. Y mi Dios ==proveerá== a todas sus necesidades, conforme a sus riquezas en gloria en Cristo Jesús. A nuestro Dios y Padre sea la gloria por los siglos de los siglos. Amén.
+ustedes ==habían oído== 
 
-==Saluden== a todos los santos en Cristo Jesús. Los hermanos que están conmigo ==los saludan==. Todos los santos ==los saludan==, especialmente los de la casa de César.
+==se había enfermado==. Pues en verdad 
 
-La gracia del Señor Jesucristo sea con el espíritu de ustedes.
+==estuvo enfermo==, a punto de morir
+
+Dios ==tuvo misericordia== de él
+
+yo no ==tuviera== tristeza 
+
+lo ==he enviado== con mayor solicitud
+
+==al verlo== de nuevo
+
+==se regocijen== 
+
+yo ==esté== más tranquilo 
+
+==Recíbanlo==
+
+==tengan== en alta estima
+
+==estuvo al borde== de la muerte 
+
+==completar== lo que faltaba en el servicio
+
+hermanos míos, ==regocíjense== en el Señor
+
+==Cuídense== de esos perros
+
+==cuídense== de los malos obreros
+
+==cuídense== de la falsa circuncisión.
+
+nosotros ==somos== la *verdadera* circuncisión
+
+otro ==cree== tener motivo
+
+==era== ganancia
+
+==lo he estimado== como pérdida 
+
+yo ==estimo== como pérdida
+
+==lo he perdido== todo
+
+==lo considero== como basura 
+
+==ganar== a Cristo
+
+==ser hallado== en Él
+
+==llegar== a la resurrección
+
+ya ==lo haya alcanzado== 
+
+ya ==haya llegado a ser perfecto==, sino que 
+
+==sigo adelante==
+
+==poder alcanzar== aquello
+
+==fui alcanzado== por Cristo Jesús
+
+no ==considero== haber*lo* ya alcanzado
+
+==prosigo== hacia la meta
+
+==tengamos esta misma actitud==
+
+==tienen una actitud== distinta
+
+==se lo revelará== Dios
+
+la misma *norma* que ==hemos alcanzado==.
+
+Hermanos, ==sean== imitadores míos
+
+==observen== a los que andan 
+
+según el ejemplo que ==tienen== en nosotros
+
+muchos ==andan== 
+
+como ==les he dicho== muchas veces
+
+se lo ==digo== aun llorando
+
+nuestra ciudadanía ==está== en los cielos
+
+==ansiosamente esperamos== a un Salvador
+
+==transformará== el cuerpo
+
+estén así ==firmes== en el Señor
+
+==Ruego== a Evodia 
+
++==RUEGO==+a Síntique
+
+==te ruego== 
+
+==ayudes== a estas *mujeres* 
+
+==han compartido mis luchas== en *la causa* del evangelio
+
+==Regocíjense== en el Señor siempre
+
+lo ==diré==
+
+==¡Regocíjense!== 
+
+La bondad de ustedes ==sea conocida== de todos los hombres
+
+nada ==estén afanosos==
+
+==sean dadas a conocer== sus peticiones 
+
+==guardará== sus corazones 
+
+todo lo que ==es== verdadero
+
+en esto ==mediten==
+
+==han aprendido== 
+
+==recibido== 
+
+==oído==
+
+==visto== en mí
+
+==esto practiquen==
+
+el Dios de paz ==estará== con ustedes.
+
+==Me alegré== grandemente en el Señor
+
+==han reavivado== su cuidado
+
+antes ==se preocupaban==
+
+==les faltaba la oportunidad==
+
+No que ==hable== 
+
+==he aprendido== a contentarme
+
+==sea== mi situación.
+
+==Sé== vivir en pobreza
+
+==sé== vivir en prosperidad
+
+==he aprendido el secreto== tanto de estar saciado como de tener hambre
+
+Todo ==lo puedo== en Cristo
+
+==han hecho== bien en compartir conmigo
+
+==saben==, filipenses
+
+==partí== de Macedonia
+
+ninguna iglesia ==compartió== conmigo
+
+a Tesalónica ==enviaron== dádivas
+
+No es que ==busque== la dádiva en sí
+
+==busco== fruto 
+
+que aumente en su cuenta. Pero 
+
+==lo he recibido== todo 
+
+==tengo abundancia==
+
+==Estoy bien abastecido==
+
+mi Dios ==proveerá== a todas sus necesidades
+
+==Saluden== a todos los santos
+
+Los hermanos que están conmigo ==los saludan==
+
+los santos ==los saludan==
+
