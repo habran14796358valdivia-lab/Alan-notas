@@ -100,7 +100,7 @@ Pues para mí, el vivir es Cristo y el morir es ganancia. Pero si el vivir en la
 
 Sin embargo, continuar en la carne es más necesario por causa de ustedes. Y convencido de esto, ==sé== que ==permaneceré== y ==continuaré== con todos ustedes para su progreso y gozo en la fe, para que su profunda satisfacción por mí ==abunde== en Cristo Jesús a causa de mi visita otra vez a ustedes.
 
-Solamente ==compórtense== de una manera digna del evangelio de Cristo, de modo que ya sea que vaya a verlos, o que permanezca ausente, ==pueda oír== que ustedes están ==firmes== en un mismo espíritu, luchando unánimes por la fe del evangelio. De ninguna manera estén atemorizados por *sus* adversarios, lo cual ==es==0 señal de perdición para ellos, pero de salvación para ustedes, y esto, de Dios.
+Solamente ==compórtense== de una manera digna del evangelio de Cristo, de modo que ya sea que vaya a verlos, o que permanezca ausente, ==pueda oír== que ustedes están ==firmes== en un mismo espíritu, luchando unánimes por la fe del evangelio. De ninguna manera estén atemorizados por *sus* adversarios, lo cual ==es== señal de perdición para ellos, pero de salvación para ustedes, y esto, de Dios.
 
 Porque a ustedes se les ==ha concedido== por amor de Cristo, no solo creer en Él, sino también sufrir por Él, teniendo el mismo conflicto que ==vieron== en mí, y que ahora ==oyen== *que está* en mí.
 
