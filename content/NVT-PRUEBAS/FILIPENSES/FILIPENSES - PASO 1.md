@@ -182,7 +182,7 @@ el amor de ustedes ==abunde== aún más
 
 Algunos, a la verdad, ==predican== a Cristo 
 
- sabiendo que ==he sido designado== para la defensa del evangelio
+sabiendo que ==he sido designado== para la defensa del evangelio
 
 Aquellos ==proclaman== a Cristo
 
