@@ -120,7 +120,7 @@ Pero ==espero== en el Señor Jesús enviarles pronto a Timoteo, a fin de que yo 
 
 Por tanto, a este ==espero== enviárselo inmediatamente tan pronto ==vea== cómo *van* las cosas conmigo; y ==confío== en el Señor que también yo mismo ==iré== pronto. Pero ==creí== necesario enviarles a Epafrodito, mi hermano, colaborador y compañero de lucha, quien también es su mensajero y servidor para mis necesidades. Porque él los+==ESTABA==+ extrañaba a todos, y estaba angustiado porque ustedes ==habían oído== que ==se había enfermado==. Pues en verdad ==estuvo enfermo==, a punto de morir. Pero Dios ==tuvo misericordia== de él, y no solo de él, sino también de mí, para que yo no ==tuviera== tristeza sobre tristeza.
 
-Así que lo ==he enviado== con mayor solicitud, para que ==al verlo== de nuevo, ==se regocijen== y yo ==esté== más tranquilo en cuanto a ustedes. ==Recíbanlo==, pues, en el Señor con todo gozo, y ==tengan== en alta estima a los *que son* como él. Porque ==estuvo al borde== de la muerte por la obra de Cristo, arriesgando su vida para ==completar== lo que faltaba en el servicio de ustedes hacia mí.
+Así que lo ==he enviado== con mayor solicitud, para que al verlo de nuevo, ==se regocijen== y yo ==esté== más tranquilo en cuanto a ustedes. ==Recíbanlo==, pues, en el Señor con todo gozo, y ==tengan== en alta estima a los *que son* como él. Porque ==estuvo al borde== de la muerte por la obra de Cristo, arriesgando su vida para ==completar== lo que faltaba en el servicio de ustedes hacia mí.
 
 Por lo demás, hermanos míos, ==regocíjense== en el Señor. A mí no me es molesto escribirles *otra vez* lo mismo, y para ustedes es motivo de seguridad. ==Cuídense== de esos perros, ==cuídense== de los malos obreros, ==cuídense== de la falsa circuncisión.
 
@@ -311,8 +311,6 @@ Dios ==tuvo misericordia== de él
 yo no ==tuviera== tristeza 
 
 lo ==he enviado== con mayor solicitud
-
-==al verlo== de nuevo
 
 ==se regocijen== 
 
