@@ -166,7 +166,7 @@ La gracia del Señor Jesucristo sea con el espíritu de ustedes.
 
 la ==perfeccionará== hasta el día de Cristo Jesús.
 
-==Es== justo que yo
+==Es== justo que yo sienta esto
 
 Dios me es testigo de cuánto los ==añoro== a todos 
 
