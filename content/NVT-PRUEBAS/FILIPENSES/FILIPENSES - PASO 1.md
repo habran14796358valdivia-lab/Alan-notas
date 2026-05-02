@@ -186,13 +186,13 @@ sabiendo que ==he sido designado== para la defensa del evangelio
 
 Aquellos ==proclaman== a Cristo
 
- Cristo ==es proclamado==
+Cristo ==es proclamado==
 
 en esto me ==regocijo==
 
 me ==regocijaré==
 
-==sé== que
+==sé== 
 
 esto ==resultará== en mi liberación
 
