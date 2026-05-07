@@ -242,7 +242,7 @@ Te ==saluda== Epafras
 
 [S- TU (FILEMON) - EL (FE)]
 
-[Ruego que]() la comunión de tu fe ==llegue a ser== eficaz 
+[Ruego que]() la comunión de tu fe ==llegue a ser== eficaz                             (SUBJUNTIVO)
 
 [S-EL (FE) - YO (PABLO)]
 
@@ -272,9 +272,9 @@ como ==si fuera== mi propio corazón.
 
 [S- EL(ONESIMO) - TU (FILEMON)]
 
-==acéptalo== como *me aceptarías* a mí
+==acéptalo== como *me aceptarías* a mí                                                         (IMPERATIVO)
 
-==cárgalo a mi cuenta==.
+==cárgalo a mi cuenta==.                                                                                 (IMPERATIVO)
 
 [S- TU (FILEMON) - YO (PABLO)]
 
@@ -282,11 +282,11 @@ Yo, Pablo, ==escribo== *esto*
 
 Yo *lo* ==pagaré==
 
-hermano, ==permíteme disfrutar este beneficio== de ti en el Señor. 
+hermano, ==permíteme disfrutar este beneficio== de ti en el Señor.     (OPTATIVO)
 
 [S- YO (PABLO) -TU (FILEMON) ]
 
-==Recrea== mi corazón 
+==Recrea== mi corazón                                                                                    (IMPERATIVO)
 
 [S- TU (FILEMON) - YO (PABLO)]
 
@@ -294,7 +294,7 @@ Te ==escribo== confiado en tu obediencia
 
 [S- YO (PABLO) -TU (FILEMON) ]	
 
-[Y]() al mismo tiempo, ==prepárame== también alojamiento
+[Y]() al mismo tiempo, ==prepárame== también alojamiento                       (IMPERATIVO)
 
 [S- TU (FILEMON) - YO (PABLO)]
 
