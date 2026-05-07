@@ -240,11 +240,13 @@ Te ==saluda== Epafras
 
 ==tienes== hacia el Señor Jesús 
 
+[S- TU (FILEMON) - EL (FE)]
+
 [Ruego que]() la comunión de tu fe ==llegue a ser== eficaz 
 
+[S-EL (FE) - YO (PABLO)]
+
 [Pues]() ==he llegado a tener== mucho gozo y consuelo en tu amor
-
-
 
 te hago un ==ruego==
 
@@ -254,44 +256,50 @@ a quien ==he engendrado== en mis prisiones
 
 te lo ==he vuelto a enviar== en persona
 
+[S-YO (PABLO) - EL(CORAZON)]
+
 como ==si fuera== mi propio corazón.
+
+[S- EL(CORAZON) - YO (PABLO) ]
 
 ==Hubiera querido== retenerlo conmigo
 
-
-
 [Pero]() no ==quise== hacer nada sin tu consentimiento
 
-
+[S-YO (PABLO) - EL(ONESIMO)]
 
 [Porque]() quizá por esto ==se apartó== de ti
 
-
+[S- EL(ONESIMO) - TU (FILEMON)]
 
 ==acéptalo== como *me aceptarías* a mí
 
-
-
 ==cárgalo a mi cuenta==.
+
+[S- TU (FILEMON) - YO (PABLO)]
 
 Yo, Pablo, ==escribo== *esto* 
 
 Yo *lo* ==pagaré==
 
-​	
-
 hermano, ==permíteme disfrutar este beneficio== de ti en el Señor. 
+
+[S- YO (PABLO) -TU (FILEMON) ]
 
 ==Recrea== mi corazón 
 
+[S- TU (FILEMON) - YO (PABLO)]
+
 Te ==escribo== confiado en tu obediencia
 
-​	
+[S- YO (PABLO) -TU (FILEMON) ]	
 
 [Y]() al mismo tiempo, ==prepárame== también alojamiento
 
+[S- TU (FILEMON) - YO (PABLO)]
+
 [pues]() ==espero== 
 
-
+[S- YO (PABLO) - EL (EPAFRAS) ]	
 
 Te ==saluda== Epafras
