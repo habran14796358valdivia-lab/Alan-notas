@@ -432,6 +432,8 @@ Te ==saluda== Epafras
 
 ---
 
+[INICIO]
+
 [S- YO (PABLO) ]
 
 ::EXPONE::
@@ -455,6 +457,12 @@ Te ==saluda== Epafras
 ::RAZON::
 
 [Pues]() ==he llegado a tener== mucho gozo y consuelo en tu amor
+
+[FIN]
+
+---
+
+[INICIO]
 
 ::EXPONE::
 
@@ -493,6 +501,12 @@ como ==si fuera== mi propio corazón.
 ::RAZON::
 
 [Porque]() quizá por esto ==se apartó== de ti
+
+[FIN]
+
+
+
+[INICIO]
 
 [S- EL(ONESIMO) - TU (FILEMON)]
 
@@ -544,6 +558,14 @@ Te ==escribo== confiado en tu obediencia
 
 [S- YO (PABLO) - EL (EPAFRAS) ]	
 
+[FIN]
+
+
+
+[INICIO]
+
 ::EXPONE::
 
 Te ==saluda== Epafras
+
+[FIN]
