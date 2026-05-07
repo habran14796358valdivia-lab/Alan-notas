@@ -151,3 +151,147 @@ Te ==escribo== confiado en tu obediencia, sabiendo [que]() ==harás== [aún]() m
 Te ==saluda== Epafras, mi compañero de prisión en Cristo Jesús; también* Marcos, Aristarco, Demas *y* Lucas, mis colaboradores.
 
 La gracia del Señor Jesucristo sea con el espíritu de ustedes.
+
+---
+
+PASO 6
+
+---
+
+==Doy gracias== a mi Dios siempre
+
+==tienes== hacia el Señor Jesús 
+
+[Ruego que]() la comunión de tu fe ==llegue a ser== eficaz 
+
+[Pues]() ==he llegado a tener== mucho gozo y consuelo en tu amor
+
+​	[porque]()  los corazones de los santos ==han sido confortados== por ti
+
+te hago un ==ruego==
+
+te ==ruego== por mi hijo Onésimo
+
+a quien ==he engendrado== en mis prisiones
+
+te lo ==he vuelto a enviar== en persona
+
+como ==si fuera== mi propio corazón.
+
+==Hubiera querido== retenerlo conmigo
+
+​	[para que]()me ==sirviera== en lugar tuyo
+
+[Pero]() no ==quise== hacer nada sin tu consentimiento
+
+​	[para que]() tu bondad no ==fuera== como por obligación
+
+[Porque]() quizá por esto ==se apartó== de ti
+
+​	[para que]() lo ==volvieras a recibir== para siempre
+
+​	[Si]() me ==tienes==, [pues](), por compañero, 
+
+==acéptalo== como *me aceptarías* a mí
+
+​	[Y]() [si]() te ==ha perjudicado== en alguna forma
+
+​	 [o]() te ==debe== algo
+
+==cárgalo a mi cuenta==.
+
+Yo, Pablo, ==escribo== *esto* 
+
+Yo *lo* ==pagaré==
+
+​	[por]() no ==decirte== 
+
+​		[que]() [aun]() tú mismo te me ==debes== a mí
+
+hermano, ==permíteme disfrutar este beneficio== de ti en el Señor. 
+
+==Recrea== mi corazón 
+
+Te ==escribo== confiado en tu obediencia
+
+​	[que]() ==harás== 
+
+​	[aún]() más de lo que ==digo==
+
+[Y]() al mismo tiempo, ==prepárame== también alojamiento
+
+[pues]() ==espero== 
+
+​	[que]() por las oraciones de ustedes les ==seré concedido==.
+
+Te ==saluda== Epafras
+
+---
+
+**PASO 8**
+
+---
+
+[S- YO (PABLO) ]
+
+==Doy gracias== a mi Dios siempre
+
+[S- YO (PABLO) - TU (FILEMON)]
+
+==tienes== hacia el Señor Jesús 
+
+[Ruego que]() la comunión de tu fe ==llegue a ser== eficaz 
+
+[Pues]() ==he llegado a tener== mucho gozo y consuelo en tu amor
+
+
+
+te hago un ==ruego==
+
+te ==ruego== por mi hijo Onésimo
+
+a quien ==he engendrado== en mis prisiones
+
+te lo ==he vuelto a enviar== en persona
+
+como ==si fuera== mi propio corazón.
+
+==Hubiera querido== retenerlo conmigo
+
+
+
+[Pero]() no ==quise== hacer nada sin tu consentimiento
+
+
+
+[Porque]() quizá por esto ==se apartó== de ti
+
+
+
+==acéptalo== como *me aceptarías* a mí
+
+
+
+==cárgalo a mi cuenta==.
+
+Yo, Pablo, ==escribo== *esto* 
+
+Yo *lo* ==pagaré==
+
+​	
+
+hermano, ==permíteme disfrutar este beneficio== de ti en el Señor. 
+
+==Recrea== mi corazón 
+
+Te ==escribo== confiado en tu obediencia
+
+​	
+
+[Y]() al mismo tiempo, ==prepárame== también alojamiento
+
+[pues]() ==espero== 
+
+
+
+Te ==saluda== Epafras
