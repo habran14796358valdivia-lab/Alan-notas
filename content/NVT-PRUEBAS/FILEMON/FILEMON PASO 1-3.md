@@ -446,6 +446,10 @@ Te ==saluda== Epafras
 
 ==tienes== hacia el Señor Jesús 
 
+
+
+
+
 [S- TU (FILEMON) - EL (FE)]
 
 ::PROPOSITO::
@@ -492,6 +496,10 @@ como ==si fuera== mi propio corazón.
 
 ==Hubiera querido== retenerlo conmigo
 
+
+
+
+
 ::CONTRASTE::
 
 [Pero]() no ==quise== hacer nada sin tu consentimiento
@@ -504,7 +512,7 @@ como ==si fuera== mi propio corazón.
 
 [FIN]
 
-
+---
 
 [INICIO]
 
@@ -550,6 +558,10 @@ Te ==escribo== confiado en tu obediencia
 
 [Y]() al mismo tiempo, ==prepárame== también alojamiento                       (IMPERATIVO)
 
+
+
+
+
 [S- TU (FILEMON) - YO (PABLO)]
 
 ::RAZON::
@@ -560,7 +572,7 @@ Te ==escribo== confiado en tu obediencia
 
 [FIN]
 
-
+---
 
 [INICIO]
 
