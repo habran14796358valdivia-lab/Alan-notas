@@ -425,3 +425,125 @@ Te ==escribo== confiado en tu obediencia
 ::EXPONE::
 
 Te ==saluda== Epafras
+
+---
+
+**PASO 10**
+
+---
+
+[S- YO (PABLO) ]
+
+::EXPONE::
+
+==Doy gracias== a mi Dios siempre
+
+[S- YO (PABLO) - TU (FILEMON)]
+
+::EXPONE::
+
+==tienes== hacia el Señor Jesús 
+
+[S- TU (FILEMON) - EL (FE)]
+
+::PROPOSITO::
+
+[Ruego que]() la comunión de tu fe ==llegue a ser== eficaz                             (SUBJUNTIVO)
+
+[S-EL (FE) - YO (PABLO)]
+
+::RAZON::
+
+[Pues]() ==he llegado a tener== mucho gozo y consuelo en tu amor
+
+::EXPONE::
+
+te hago un ==ruego==
+
+::EXPONE::
+
+te ==ruego== por mi hijo Onésimo
+
+::EXPONE::
+
+a quien ==he engendrado== en mis prisiones
+
+::EXPONE::
+
+te lo ==he vuelto a enviar== en persona
+
+[S-YO (PABLO) - EL(CORAZON)]
+
+::EXPONE::
+
+como ==si fuera== mi propio corazón.
+
+[S- EL(CORAZON) - YO (PABLO) ]
+
+::EXPONE::
+
+==Hubiera querido== retenerlo conmigo
+
+::CONTRASTE::
+
+[Pero]() no ==quise== hacer nada sin tu consentimiento
+
+[S-YO (PABLO) - EL(ONESIMO)]
+
+::RAZON::
+
+[Porque]() quizá por esto ==se apartó== de ti
+
+[S- EL(ONESIMO) - TU (FILEMON)]
+
+::EXPONE::
+
+==acéptalo== como *me aceptarías* a mí                                                         (IMPERATIVO)
+
+::EXPONE::
+
+==cárgalo a mi cuenta==.                                                                                 (IMPERATIVO)
+
+[S- TU (FILEMON) - YO (PABLO)]
+
+::EXPONE::
+
+Yo, Pablo, ==escribo== *esto* 
+
+::EXPONE::
+
+Yo *lo* ==pagaré==
+
+::EXPONE::
+
+hermano, ==permíteme disfrutar este beneficio== de ti en el Señor.     (OPTATIVO)
+
+[S- YO (PABLO) -TU (FILEMON) ]
+
+::EXPONE::
+
+==Recrea== mi corazón                                                                                    (IMPERATIVO)
+
+[S- TU (FILEMON) - YO (PABLO)]
+
+::EXPONE::
+
+Te ==escribo== confiado en tu obediencia
+
+[S- YO (PABLO) -TU (FILEMON) ]	
+
+::EXPONE::
+
+[Y]() al mismo tiempo, ==prepárame== también alojamiento                       (IMPERATIVO)
+
+[S- TU (FILEMON) - YO (PABLO)]
+
+::RAZON::
+
+[pues]() ==espero== 
+
+[S- YO (PABLO) - EL (EPAFRAS) ]	
+
+::EXPONE::
+
+Te ==saluda== Epafras
