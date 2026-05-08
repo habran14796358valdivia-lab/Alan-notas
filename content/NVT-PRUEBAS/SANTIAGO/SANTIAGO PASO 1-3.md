@@ -110,7 +110,7 @@ Porque cualquiera ==que guarda== toda la ley, pero ==falla== en un *punto,* ==se
 
 ¿No ==fue justificado== por las obras Abraham nuestro padre cuando ofreció a su hijo Isaac sobre el altar? ==Ya ves== que la fe ==actuaba juntamente== con sus obras, y como resultado de las obras,la fe ==fue perfeccionada==;  y ==se cumplió== la Escritura que: «Y Abraham ==creyó== a Dios y le ==fue contado== por justicia», y ==fue llamado== amigo de Dios. Ustedes ==ven== que el hombre ==es justificado== por *las* obras y no solo por *la* fe.
 
-Y de la misma manera, ¿no fue la ramera Rahab también ==justificada== por *las* obras cuando recibió a los mensajeros y los envió por otro camino? Porque así como el cuerpo sin *el* espíritu ==está== muerto, así también la fe sin *las* obras ==está== muerta.
+Y de la misma manera, ¿no fue la ramera Rahab también ==justificada== por *las* obras cuando recibió a los mensajeros y los envió por otro camino? Porque así como el cuerpo sin *el* espíritu ==está== muerto, así también la fe sin *las* obras ==está== muerta. 
 
 Hermanos míos, que no ==se hagan== maestros muchos *de ustedes*, sabiendo que ==recibiremos== un juicio más severo. Porque todos ==fallamos== de muchas maneras. Si alguien no ==falla== en lo que dice, es un hombre perfecto, capaz también de refrenar todo el cuerpo. Ahora bien, si ==ponemos== el freno en la boca de los caballos para que nos obedezcan, ==dirigimos== también todo su cuerpo. ==Miren== también las naves; aunque son tan grandes e impulsadas por fuertes vientos, son, sin embargo, ==dirigidas== mediante un timón muy pequeño por donde la voluntad del piloto ==quiere==.
 
