@@ -162,7 +162,7 @@ PASO 6
 
 ==tienes== hacia el Señor Jesús 
 
-[Ruego que]() la comunión de tu fe ==llegue a ser== eficaz 
+​	[Ruego que]() la comunión de tu fe ==llegue a ser== eficaz 
 
 [Pues]() ==he llegado a tener== mucho gozo y consuelo en tu amor
 
