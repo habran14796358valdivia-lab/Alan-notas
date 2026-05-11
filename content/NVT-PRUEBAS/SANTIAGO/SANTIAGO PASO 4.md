@@ -69,3 +69,6 @@ Más bien, *debieran* decir: [Si]() el Señor ==quiere==,+[TAMBIEN]()+ ==vivirem
 [Por tanto](), ==confiésense== sus pecados unos a otros, [y]() ==oren== unos por otros [para que]() ==sean sanados==. La oración eficaz del justo ==puede lograr mucho==. Elías ==era== un hombre de pasiones semejantes a las nuestras, [y]() ==oró== fervientemente para que no lloviera, [y]() no ==llovió== sobre la tierra por tres años y seis meses.+[Y]()+ ==Oró== de nuevo, [y]() el cielo ==dio== lluvia [y]() la tierra ==produjo== su fruto.
 
 Hermanos míos, [si]() alguien de entre ustedes ==se extravía== de la verdad [y]() alguien le ==hace volver==, ==sepa== [que]() el que hace volver a un pecador del error de su camino ==salvará== su alma de muerte, [y]() ==cubrirá== multitud de pecados. 
+
+
+
