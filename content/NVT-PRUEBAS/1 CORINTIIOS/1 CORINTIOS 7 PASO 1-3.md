@@ -80,9 +80,23 @@ no ==abandone== a su marido.
 
 ​	 [pero]() ahora ==son== santos. 
 
-[Sin embargo](), [si]() el que no es creyente ==se separa==, que ==se separe==. En tales casos el hermano o la hermana no ==están obligados==, [sino]() que Dios nos ==ha llamado== para vivir en paz.
+[Sin embargo](),
 
- [Pues]() ¿cómo ==sabes== tú, mujer, [si]() ==salvarás== a tu marido? ¿[O]() cómo ==sabes== tú, marido, [si]() ==salvarás== a tu mujer? 
+​	[si]() el que no es creyente ==se separa==, 
+
+que ==se separe==. 
+
+En tales casos el hermano o la hermana no ==están obligados==, 
+
+[sino]() que Dios nos ==ha llamado== para vivir en paz.
+
+[Pues]() ¿cómo ==sabes== tú, mujer,
+
+​	 [si]() ==salvarás== a tu marido? 
+
+¿[O]() cómo ==sabes== tú, marido, 
+
+​	[si]() ==salvarás== a tu mujer? 
 
 Fuera de esto, según el Señor ==ha asignado== a cada uno, según Dios ==llamó== a cada cual, así ==ande==.+[Y]()+  ==Esto ordeno== en todas las iglesias. 
 
