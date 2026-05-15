@@ -94,7 +94,7 @@ En tales casos el hermano o la hermana no ==están obligados==,
 
 ​	 [si]() ==salvarás== a tu marido? 
 
-¿[O]() cómo ==sabes== tú, marido, 
+¿[O]() cómo ==sabes== tú, marido,  
 
 ​	[si]() ==salvarás== a tu mujer? 
 
