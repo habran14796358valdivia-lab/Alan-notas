@@ -177,3 +177,140 @@ No ==sean== motivo de tropiezo ni a judíos, ni a griegos, ni a la iglesia de Di
 así como también yo ==procuro agradar== a todos en todo, no buscando mi propio beneficio, sino el de muchos
 
 ​	 [para que]() ==sean salvos==. 
+
+---
+
+TRONCO
+
+---
+
+[Porque]() no ==quiero== que ignoren, hermanos, 
+
+como ellos lo ==codiciaron==. 
+
+[No(NI)]() ==sean,== pues, idólatras, como fueron algunos de ellos, 
+
+según ==está escrito==: 
+
+«EL PUEBLO ==SE SENTÓ== A COMER Y A BEBER, 
+
+[Y]() ==SE LEVANTÓ== A JUGAR».
+
+ [Ni]() ==forniquemos==, 
+
+como algunos de ellos ==fornicaron==, 
+
+[y]() en un día ==cayeron== veintitrés mil. 
+
+[Ni]() ==provoquemos== al Señor,
+
+como algunos de ellos lo ==provocaron==, 
+
+[y]() ==fueron destruidos== por las serpientes.
+
+ [Ni]() ==murmuren==,
+
+ como algunos de ellos ==murmuraron==, 
+
+[y]() ==fueron destruidos== por el destructor.
+
+ +[PERO]()+ Estas cosas ==les sucedieron== como ejemplo, 
+
+[y]() ==fueron escritas== como enseñanza para nosotros, 
+
+para quienes ==ha llegado== el fin de los siglos.
+
+Por tanto, el que cree que está firme, ==tenga cuidado==, 
+
+no ==sea que caiga==. 
+
+No les ==ha sobrevenido== ninguna tentación que no sea común a los hombres.
+
++[PERO]()+ Fiel es Dios, que no ==permitirá== 
+
+que ustedes sean tentados más allá de lo que ==pueden soportar==, 
+
+[sino]() que con la tentación ==proveerá== también la vía de escape, a fin de que puedan resistirla.
+
+ [Por tanto](), amados míos, ==huyan== de la idolatría. 
+
+Les ==hablo== como a sabios
+
+; ==juzguen== ustedes
+
+ lo que ==digo==. 
+
+La copa de bendición que ==bendecimos==, 
+
+¿no ==es== la participación en la sangre de Cristo?
+
+ El pan que ==partimos==,
+
+ ¿no ==es== la participación en el cuerpo de Cristo? 
+
+[Puesto que]() el pan es uno, nosotros, que somos muchos, ==somos== un cuerpo; 
+
+[porque]() todos ==participamos== de aquel mismo pan.
+
+ ==Consideren== al pueblo de Israel: los que comen los sacrificios, 
+
+¿no +==SON==+ participan del altar? 
+
++[POR TANTO]()+¿Qué quiero ==decir==, entonces? 
+
+[sino]() 
+
+[que]() digo que lo que los gentiles ==sacrifican==, 
+
+lo ==sacrifican== a los demonios y no a Dios;
+
++[PERO]()+ no ==quiero== que ustedes sean partícipes con los demonios. 
+
+Ustedes no ==pueden== beber la copa del Señor y la copa de los demonios; 
+
+no ==pueden== participar de la mesa del Señor y de la mesa de los demonios. 
+
+¿[O]() ==provocaremos== a celos al Señor?
+
+¿==Somos==, acaso, más fuertes que Él? 
+
+Todo ==es lícito==, 
+
+[pero]() no todo ==es de provecho==.
+
+ Todo ==es lícito==, 
+
+[pero]() no todo ==edifica==. 
+
+Nadie ==busque== su propio bien, sino el de su prójimo.
+
+ ==Coman== de todo lo que se vende en la carnicería sin preguntar nada por motivos de conciencia,
+
+ ==coman== de todo lo que se les ponga delante sin preguntar nada por motivos de conciencia. 
+
+«Esto ==ha sido== sacrificado a los ídolos», 
+
+no lo ==coman==, por causa del que se lo dijo, y por motivos de conciencia, PORQUE DEL SEÑOR ES LA TIERRA Y TODO LO QUE EN ELLA HAY. 
+
++[PERO]()+ Quiero ==decir==, no la conciencia de ustedes, sino la del otro. 
+
+[Pues]() ¿por qué ==ha de ser juzgada== mi libertad por la conciencia ajena? 
+
+¿por qué ==he de ser censurado== a causa de aquello
+
+ por lo cual ==doy gracias==? 
+
+[Entonces](), 
+
+[ya sea que]() ==coman==,
+
+ [que]() ==beban==, 
+
+[o que]() ==hagan== cualquier otra cosa,
+
+ ==háganlo== todo para la gloria de Dios. 
+
+No ==sean== motivo de tropiezo ni a judíos, ni a griegos, ni a la iglesia de Dios; 
+
+así como también yo ==procuro agradar== a todos en todo, no buscando mi propio beneficio, sino el de muchos
+
