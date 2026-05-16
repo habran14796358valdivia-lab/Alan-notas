@@ -157,3 +157,111 @@ de esta manera peleo, no como ==dando golpes== al aire,
 [y]() lo ==hago mi esclavo==, no sea que habiendo predicado a otros, 
 
 yo mismo ==sea== descalificado. 
+
+---
+
+TRONCO
+
+---
+
+¿No ==soy== libre?
+
+ ¿No ==soy== apóstol? 
+
+¿No ==he visto== a Jesús nuestro Señor? 
+
+¿No ==son== ustedes mi obra en el Señor?
+
+[por lo menos]() para ustedes sí lo ==soy==; 
+
+[pues]() ustedes ==son== el sello de mi apostolado en el Señor. 
+
+Mi defensa contra los que me examinan ==es== esta: 
+
+¿Acaso no ==tenemos== derecho a comer y beber? 
+
+¿No ==tenemos== derecho a llevar con nosotros una esposa creyente, así como los demás apóstoles y los hermanos del Señor y Cefas? 
+
+¿[O]() acaso solo Bernabé y yo no ==tenemos== el derecho a no trabajar? 
+
+¿Quién ==ha servido== alguna vez como soldado a sus propias expensas?
+
+ ¿Quién ==planta== una viña
+
+ [y]() no ==come== de su fruto?
+
+ ¿[O]() quién ==cuida== un rebaño
+
+ [y]() no ==bebe== de la leche del rebaño?
+
+ ¿Acaso ==digo== esto según el juicio humano? 
+
+¿+[O]()+ No ==dice== también la ley esto mismo?
+
+ [Pues]() en la ley de Moisés ==está escrito==: 
+
+«NO ==PONDRÁS BOZAL== AL BUEY CUANDO TRILLA». 
+
+¿Acaso le ==preocupan== a Dios los bueyes?
+
+ ¿[O]() lo ==dice== especialmente por nosotros? 
+
+Sí,+[PORQUE]()+ ==se escribió== por nosotros, porque el 
+
+[que(SI)]() de ustedes ==cosechemos== lo material?
+
+[Sin embargo](), no ==hemos usado== este derecho, 
+
+[sino]() que ==sufrimos== todo 
+
+¿No ==saben== 
+
+del altar ==reciben== su parte? 
+
+Así [también]() ==ordenó== el Señor que los que proclaman el evangelio, vivan del evangelio.
+
+ [Pero]() yo de nada de esto me ==he aprovechado==.
+
+ [Y]() no ==escribo== esto 
+
+no ==tengo== nada de qué gloriarme, 
+
+[pues]() ==estoy bajo el deber== de hacerlo. 
+
+[Pues]() ¡ay de mí +==ESTA SIENDO==+
+
+ ==tengo== recompensa;
+
+ [pero]() si lo hago en contra de mi voluntad, un encargo se ==me ha confiado==. 
+
++[POR LO TANTO]()+ ¿Cuál ==es==, entonces, mi recompensa?
+
+[Porque]() aunque soy libre de todos, de todos ==me he hecho esclavo== 
+
++[Y]()+ A los judíos ==me hice== como judío,
+
+ A los débiles ==me hice== débil
+
+A todos ==me he hecho== todo,
+
+ [Y]() todo lo ==hago== por amor del evangelio, 
+
+¿No ==saben== que los que corren en el estadio, 
+
+todos en verdad ==corren==, 
+
+[pero]() solo uno ==obtiene== el premio?
+
+ ==Corran== 
+
+[Y]() todo el que compite en los juegos ==se abstiene== de todo. +POR LO TANTO DE HECHO+Ellos lo hacen 
+
+ [Por tanto](), yo de esta manera ==corro==, no como sin tener meta; 
+
+de esta manera peleo, no como ==dando golpes== al aire,
+
+[sino]() que ==golpeo== mi cuerpo 
+
+[y]() lo ==hago mi esclavo==, no sea que habiendo predicado a otros, 
+
+yo mismo ==sea== descalificado. 
