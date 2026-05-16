@@ -84,26 +84,76 @@ Así [también]() ==ordenó== el Señor que los que proclaman el evangelio, viva
 
 ​	,[que+O+]() permitir que alguien me ==prive== de esta gloria.
 
- [Porque]() [si]() ==predico== el evangelio, no ==tengo== nada de qué gloriarme, [pues]() ==estoy bajo el deber== de hacerlo. [Pues]() ¡ay de mí +==ESTA SIENDO==+[si]() no ==predico== el evangelio! 
+ [Porque]()
 
-[Porque]() [si]() ==hago== esto voluntariamente, ==tengo== recompensa; [pero]() [si]() lo hago en contra de mi voluntad, un encargo se ==me ha confiado==. 
+​	 [si]() ==predico== el evangelio, 
 
-+[POR LO TANTO]()+ ¿Cuál ==es==, entonces, mi recompensa? [+PARA+Que]() al predicar el evangelio, ==pueda ofrecerlo== gratuitamente sin hacer pleno uso de mi derecho como predicador del evangelio. 
+no ==tengo== nada de qué gloriarme, 
 
-[Porque]() aunque soy libre de todos, de todos ==me he hecho esclavo== [para+QUE+]() ==ganar== al mayor número posible.
+[pues]() ==estoy bajo el deber== de hacerlo. 
 
- +[Y]()+ A los judíos ==me hice== como judío, [para+QUE+]() ==poder ganar== a los judíos. A los que están bajo la ley, como bajo la ley, aunque yo no estoy bajo la ley, [para+QUE+]() ==poder ganar== a los que están bajo la ley. 
+[Pues]() ¡ay de mí +==ESTA SIENDO==+
 
-A los que están sin ley, como sin ley, aunque no estoy sin la ley de Dios, sino bajo la ley de Cristo, [para+QUE+]() ==poder ganar== a los que están sin ley.
+​	[si]() no ==predico== el evangelio! 
 
- A los débiles ==me hice== débil, [para+QUE+]() ==ganar== a los débiles. A todos ==me he hecho== todo, [para que]() por todos los medios ==salve== a algunos.
+[Porque]()
 
- [Y]() todo lo ==hago== por amor del evangelio, [para+QUE+]() ==ser== partícipe de él. 
+​	 [si]() ==hago== esto voluntariamente,
 
-¿No ==saben== [que]() los que corren en el estadio, todos [en verdad]() ==corren==, [pero]() solo uno ==obtiene== el premio? ==Corran== [de tal modo que]() ==ganen==. 
+ ==tengo== recompensa;
 
-[Y]() todo el que compite en los juegos ==se abstiene== de todo. +[POR LO TANTO]() [DE HECHO]()+Ellos lo hacen [para+QUE+]() ==recibir== una corona corruptible, pero nosotros, una incorruptible.
+ [pero]() si lo hago en contra de mi voluntad, un encargo se ==me ha confiado==. 
 
- [Por tanto](), yo de esta manera ==corro==, no como sin tener meta; de esta manera peleo, no como ==dando golpes== al aire,
++[POR LO TANTO]()+ ¿Cuál ==es==, entonces, mi recompensa?
 
-[sino]() que ==golpeo== mi cuerpo [y]() lo ==hago mi esclavo==, no sea que habiendo predicado a otros, yo mismo ==sea== descalificado. 
+​	 [+PARA+Que]() al predicar el evangelio, ==pueda ofrecerlo== gratuitamente sin hacer pleno uso de mi derecho como predicador del evangelio. 
+
+[Porque]() aunque soy libre de todos, de todos ==me he hecho esclavo== 
+
+​	[para+QUE+]() ==ganar== al mayor número posible.
+
++[Y]()+ A los judíos ==me hice== como judío,
+
+​	 [para+QUE+]() ==poder ganar== a los judíos. A los que están bajo la ley, como bajo la ley, aunque yo no estoy bajo la ley
+
+​	, [para+QUE+]() ==poder ganar== a los que están bajo la ley. 
+
+A los que están sin ley, como sin ley, aunque no estoy sin la ley de Dios, sino bajo la ley de Cristo, 
+
+​	[para+QUE+]() ==poder ganar== a los que están sin ley.
+
+ A los débiles ==me hice== débil
+
+​	[para+QUE+]() ==ganar== a los débiles. 
+
+A todos ==me he hecho== todo,
+
+​	[para que]() por todos los medios ==salve== a algunos.
+
+ [Y]() todo lo ==hago== por amor del evangelio, 
+
+​	[para+QUE+]() ==ser== partícipe de él. 
+
+¿No ==saben== que los que corren en el estadio, 
+
+todos en verdad ==corren==, 
+
+[pero]() solo uno ==obtiene== el premio?
+
+ ==Corran== 
+
+​	[de tal modo que]() ==ganen==. 
+
+[Y]() todo el que compite en los juegos ==se abstiene== de todo. +POR LO TANTO DE HECHO+Ellos lo hacen 
+
+​	[para+QUE+]() ==recibir== una corona corruptible, pero nosotros, una incorruptible.
+
+ [Por tanto](), yo de esta manera ==corro==, no como sin tener meta; 
+
+de esta manera peleo, no como ==dando golpes== al aire,
+
+[sino]() que ==golpeo== mi cuerpo 
+
+[y]() lo ==hago mi esclavo==, no sea que habiendo predicado a otros, 
+
+yo mismo ==sea== descalificado. 
