@@ -276,11 +276,7 @@ La mujer no ==tiene autoridad== sobre su propio cuerpo
 
  No ==se priven== el uno del otro, excepto de común acuerdo y por cierto tiempo,
 
-​	
-
  +[Y]()+ ==Vuelvan(ES)== después a juntarse,
-
-​	
 
  [Pero]() esto lo ==digo== por vía de concesión, no como una orden.
 
@@ -290,47 +286,25 @@ La mujer no ==tiene autoridad== sobre su propio cuerpo
 
 +[PERO]()+ A los solteros y a las viudas ==digo== que es bueno para ellos 
 
-​	
-
- [Pero]() 
-
-
-
 ==cásense==
 
 [+POR+Que]() mejor ==es== casarse que quemarse. 
 
-+[PERO]()+ A los casados ==instruyo==, no yo, sino el Señor: que la mujer no debe dejar al marido. 
-
-[Pero]() 
-
-​	
++[PERO]()+ A los casados ==instruyo==, no yo, sino el Señor: que la mujer no debe dejar al marido. 	
 
 ==quédese== sin casar, 
 
 [o]() de lo contrario que ==se reconcilie== con su marido, y que el marido no abandone a su mujer. 
 
-[Pero]() a los demás ==digo== yo, no el Señor, que
-
-​	
+[Pero]() a los demás ==digo== yo, no el Señor, que	
 
 no la ==abandone==.
-
-[Y]() 
-
-​	
 
 no ==abandone== a su marido. 
 
 [Porque]() el marido que no es creyente ==es santificado== por medio de su mujer;
 
- [y]() la mujer que no es creyente ==es santificada== por medio de su marido creyente. 
-
-​	
-
-[Sin embargo](),
-
-​	
+ [y]() la mujer que no es creyente ==es santificada== por medio de su marido creyente. 	
 
 que ==se separe==. 
 
@@ -340,11 +314,7 @@ En tales casos el hermano o la hermana no ==están obligados==,
 
 [Pues]() ¿cómo ==sabes== tú, mujer,
 
-​	
-
 ¿[O]() cómo ==sabes== tú, marido,  
-
-
 
 Fuera de esto, según el Señor ==ha asignado== a cada uno, 
 
@@ -374,10 +344,6 @@ en que ==fue llamado==.
 
 No te ==preocupes==.
 
- [Aunque]() 
-
-
-
  ==prefiérelo==.
 
  [Porque]() el que fue llamado por el Señor siendo esclavo, hombre libre ==es== del Señor. 
@@ -404,19 +370,9 @@ en la condición en que ==fue llamado==.
 
  ¿==Estás libre== de mujer? 
 
-No ==busques== mujer.
+No ==busques== mujer.	
 
- +[PERO]()+
-
- [Y]() 
-
-​	
-
-no ==has pecado==;
-
-[y]() 
-
-​	
+no ==has pecado==;	
 
 no ==ha pecado==. 
 
@@ -427,8 +383,6 @@ no ==ha pecado==.
 [Pero]() esto ==digo==, hermanos: 
 
 el tiempo ha sido acortado+==ES== EL RESTANTE+;
-
-​	
 
 [porque]() la apariencia de este mundo ==es pasajera==. 
 
@@ -446,19 +400,11 @@ de cómo ==agradar== a su mujer,
 
 +[Y]()+ La mujer que no está casada y la virgen ==se preocupan== por las cosas del Señor, 
 
-
-
  [pero]() la casada ==se preocupa== por las cosas del mundo, 
 
 de cómo ==agradar== a su marido.
 
  +[PERO]()+ Esto ==digo== para su propio beneficio; no 
-
-​	
-
- [Y]()
-
-
 
 que ==haga== 
 
@@ -467,8 +413,6 @@ lo que ==quiera==,
 no ==peca==;
 
 que ==se case==. 
-
-
 
  bien ==hará==. 
 
@@ -479,10 +423,6 @@ que ==se case==.
 La mujer ==está ligada== 
 
 mientras el marido ==vive==; 
-
-[pero]()
-
-
 
  ==está== en libertad de casarse 
 
