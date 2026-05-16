@@ -75,3 +75,54 @@ no ==sea== que esta libertad de ustedes de alguna manera se convierta en piedra 
 no ==comeré== carne jamás,
 
 ​	 [para+QUE+]() no ==hacer== pecar a mi hermano. 
+
+---
+
+TRONCO
+
+---
+
++[PERO]()+ En cuanto a lo sacrificado a los ídolos, ==sabemos==
+
+El conocimiento ==envanece==, 
+
+[pero]() el amor ==edifica==. 
+
+no ==ha aprendido== todavía
+
+como ==debe== saber;
+
+ ese ==es conocido== por Él.
+
+ [Por tanto](), en cuanto a comer de lo sacrificado a los ídolos, ==sabemos== que un ídolo no es nada en el mundo, y que no hay sino un solo Dios.
+
+ [Porque]() [aunque]()
+
++[SI]()+ ==haya== algunos llamados dioses, ya sea en el cielo o en la tierra, 
+
+como por cierto ==hay== muchos dioses y muchos señores, 
+
+==comen== alimento como si este fuera sacrificado a un ídolo,
+
+ [y]() su conciencia, siendo débil, ==se mancha==.
+
+[Pero]() la comida no nos ==recomendará== a Dios, pues 
+
+[ni]() ==somos menos== 
+
+[ni]() ==somos más== 
+
+[Pero]() ==tengan cuidado==, 
+
+no ==sea== que esta libertad de ustedes de alguna manera se convierta en piedra de tropiezo para el débil.
+
+¿no ==será estimulada== su conciencia, si él es débil, a comer lo sacrificado a los ídolos? 
+
++[PORQUE]()+ Por tu conocimiento ==se perderá== el que es débil,
+
+ el hermano por quien Cristo ==murió==. 
+
+[Y]() así, al pecar contra los hermanos y herir su conciencia cuando esta es débil, ==pecan== contra Cristo.
+
+no ==comeré== carne jamás,
+
