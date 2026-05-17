@@ -90,4 +90,98 @@ no los ==alabo==,
 
 ​	 [a fin]() de que ==se== manifiesten entre ustedes los que son aprobados.
 
- [Por tanto](), cuando se reúnen, esto ya no ==es== comer la Cena del Señor. [Porque]() al comer, cada uno ==toma primero== su propia cena, [y]() +[DE HECHO]()+ uno ==pasa hambre== [y]() otro ==se embriaga==. +[PORQUE]()+ ¿Qué? ¿No ==tienen== casas para comer y beber? ¿[O]() ==desprecian== la iglesia de Dios [y]() ==avergüenzan== a los que nada tienen? ¿Qué les ==diré==? ¿Los ==alabaré==? En esto no los ==alabaré==. [Porque]() yo ==recibí== del Señor lo mismo [que]() les ==he enseñado==: [que]() el Señor Jesús, la noche en que ==fue entregado==, ==tomó== pan, [y]() después de dar gracias, lo ==partió== [y]() ==dijo==: «Esto ==es== Mi cuerpo que es para ustedes; ==hagan== esto en memoria de Mí». De la misma manera tomó también la copa después de haber cenado, diciendo: «Esta copa ==es== el nuevo pacto en Mi sangre; ==hagan== esto [cuantas veces]() +[SI]()+ la ==beban== en memoria de Mí». [Porque]() [todas las veces]() [que]() ==coman== este pan [y]() ==beban== esta copa, ==proclaman== la muerte del Señor hasta que Él ==venga==. [De manera que]() el que ==coma== el pan [o]() ==beba== la copa del Señor indignamente, ==será== culpable del cuerpo y de la sangre del Señor. [Por tanto](), ==examínese== cada uno a sí mismo, [y]() entonces ==coma== del pan [y]() ==beba== de la copa. [Porque]() el que come y bebe sin discernir correctamente el cuerpo del Señor, ==come== [y]() ==bebe== juicio para sí. Por esta razón hay muchos débiles y enfermos entre ustedes, y muchos ==duermen==. [Pero]() [si]() nos ==juzgáramos== a nosotros mismos, no ==seríamos juzgados==. [Pero]() cuando somos juzgados, el Señor nos ==disciplina== [para que]() no ==seamos condenados== con el mundo. [Así que](), hermanos míos, cuando se reúnan para comer, ==espérense== unos a otros. [Si]() alguien ==tiene hambre==, ==coma== en su casa, [para que]() no ==se reúnan== para juicio. +[PERO]()+ Los demás asuntos los ==arreglaré== cuando ==vaya==. 
+ [Por tanto](), cuando se reúnen, esto ya no ==es== comer la Cena del Señor.
+
+ [Porque]() al comer, cada uno ==toma primero== su propia cena, 
+
+[y]() +DE HECHO+ uno ==pasa hambre== 
+
+[y]() otro ==se embriaga==.
+
++[PORQUE]()+ ¿Qué? ¿No ==tienen== casas para comer y beber?
+
+¿[O]() ==desprecian== la iglesia de Dios
+
+ [y]() ==avergüenzan== a los que nada tienen? 
+
+¿Qué les ==diré==? 
+
+¿Los ==alabaré==? 
+
+En esto no los ==alabaré==. 
+
+[Porque]() yo ==recibí== del Señor lo mismo
+
+[que](KAI) les ==he enseñado==:
+
+​	[que]() el Señor Jesús, la noche en que ==fue entregado==, 
+
+==tomó== pan,
+
+ [y]() después de dar gracias, lo ==partió== 
+
+[y]() ==dijo==: 
+
+«Esto ==es== Mi cuerpo que es para ustedes;
+
+ ==hagan== esto en memoria de Mí».
+
+ De la misma manera tomó también la copa después de haber cenado, diciendo: 
+
+«Esta copa ==es== el nuevo pacto en Mi sangre;
+
+ ==hagan== esto cuantas veces 
+
+​	+[SI]()+ la ==beban== en memoria de Mí».
+
+ [Porque]() todas las veces que
+
+​	+[SI]()+ ==coman== este pan
+
+​	 [y]() ==beban== esta copa, 
+
+==proclaman== la muerte del Señor
+
+ hasta que Él ==venga==. 
+
+[De manera que]() el que ==coma== el pan 
+
+[o]() ==beba== la copa del Señor indignamente, 
+
+==será== culpable del cuerpo y de la sangre del Señor.
+
+[Por tanto](DE), ==examínese== cada uno a sí mismo,
+
+ [y]() entonces ==coma== del pan 
+
+[y]() ==beba== de la copa.
+
+ [Porque]() el que come y bebe sin discernir correctamente el cuerpo del Señor, 
+
+==come== 
+
+[y]() ==bebe== juicio para sí. 
+
+Por esta razón hay muchos débiles y enfermos entre ustedes, y muchos ==duermen==.
+
+ [Pero]() 
+
+​	[si]() nos ==juzgáramos== a nosotros mismos, 
+
+no ==seríamos juzgados==.
+
+[Pero]() cuando somos juzgados, el Señor nos ==disciplina== 
+
+​	[para que]() no ==seamos condenados== con el mundo.
+
+ [Así que](), hermanos míos, cuando se reúnan para comer, ==espérense== unos a otros. 
+
+​	[Si]() alguien ==tiene hambre==,
+
+ ==coma== en su casa,
+
+​	 [para que]() no ==se reúnan== para juicio. 
+
++[PERO]()+ Los demás asuntos los ==arreglaré==
+
+ cuando ==vaya==. 
