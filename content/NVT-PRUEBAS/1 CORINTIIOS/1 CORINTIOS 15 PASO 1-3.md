@@ -460,7 +460,7 @@ que la carne y la sangre no ==pueden== heredar el reino de Dios;
 
 ==Así que(MIRA)== 
 
-les ==digo== un misterio:
+les ==digo== un misterio: 
 
  no todos ==dormiremos==, 
 
