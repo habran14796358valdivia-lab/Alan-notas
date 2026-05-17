@@ -112,3 +112,74 @@ TRONCO
 
 ---
 
+==he llegado a ser== como metal que resuena o címbalo que retiñe.
+
+ nada ==soy==.
+
+de nada ==me aprovecha==.
+
+ El amor ==es paciente==, 
+
+==es bondadoso==. 
+
+El amor no ==tiene envidia==;
+
+ el amor no ==es jactancioso==, 
+
+no ==es arrogante==. 
+
+No ==se porta indecorosamente==; 
+
+no ==busca== lo suyo, 
+
+no ==se irrita==,
+
+ no ==toma en cuenta== el mal recibido. 
+
+El amor no ==se regocija== de la injusticia, 
+
+[sino]() que ==se alegra== con la verdad. 
+
+Todo lo ==sufre==, 
+
+todo lo ==cree==, 
+
+todo lo ==espera==,
+
+ todo lo ==soporta==. 
+
+El amor nunca ==deja de ser==.
+
+[Pero]() si hay dones de profecía, 
+
+==se acabarán==; si hay lenguas,
+
+ ==cesarán==; si hay conocimiento,
+
+ ==se acabará==.
+
+ [Porque]() en parte ==conocemos==, 
+
+[y]() en parte ==profetizamos==; 
+
+ lo incompleto ==se acabará==. 
+
+Cuando yo ==era== niño, 
+
+==hablaba== como niño, 
+
+==pensaba== como niño,
+
+ ==razonaba== como niño; 
+
+pero cuando ==llegué a ser== hombre,
+
+ ==dejé== las cosas de niño. 
+
+[Porque]() ahora ==vemos== por un espejo, veladamente, pero entonces veremos cara a cara.
+
+Ahora ==conozco== en parte, 
+
+[pero]() entonces ==conoceré plenamente==, 
+
+ [Y]() ahora ==permanecen== la fe, la esperanza, el amor: estos tres; pero el mayor de ellos es el amor. 
