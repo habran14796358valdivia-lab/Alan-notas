@@ -8,4 +8,124 @@ PASO 6
 
 ---
 
-==Procuren alcanzar== el amor; [pero]() también ==deseen ardientemente== los dones espirituales, sobre todo [+PARA+que]() ==profeticen==. [Porque]() el que habla en lenguas no ==habla== a los hombres, sino a Dios, [pues]() nadie lo ==entiende==, [sino]() que en su espíritu ==habla== misterios. [Pero]() el que profetiza ==habla== a los hombres para edificación, exhortación y consolación. El que habla en lenguas, a sí mismo ==se edifica==, [pero]() el que profetiza ==edifica== a la iglesia. +[PERO]()+ Yo ==quisiera== que todos hablaran en lenguas, [pero]() aún más, [+PARA+que]() ==profetizaran==. Porque el que profetiza es superior al que habla en lenguas, a menos de que +[SI]()+ las ==interprete== [para que]() la iglesia ==reciba== edificación. +[PERO]()+ Ahora bien, hermanos, [si]() yo ==voy== a ustedes hablando en lenguas, ¿de qué ==provecho les seré== [(a menos de que](EAN ME)) les ==hable== por medio de revelación, o de conocimiento, o de profecía, o de enseñanza? Aun las cosas inanimadas, como la flauta o el arpa, al producir un sonido, [si]() no ==dan== con distinción los sonidos, ¿cómo ==se sabrá== lo que se toca en la flauta o en el arpa? [Porque]() [si]() la trompeta ==da== un sonido incierto, ¿quién ==se preparará== para la batalla? Así también ustedes, ([a menos de que](EAN ME)) con la boca ==pronuncien== palabras inteligibles, ¿cómo ==se sabrá== lo que dicen? [Pues]() +==ESTARAN==+ hablarán al aire. +[SI]()+ Hay, ==quizás==, muchas variedades de idiomas en el mundo, [y]() ninguno ==carece(ES)== de significado. [Pues](OUN) [si]() yo no ==sé== el significado de las palabras, ==seré== para el que habla un extranjero, y el que habla será un extranjero para mí. Así [también]() ustedes, [puesto que]() +==ESTAN==+anhelan dones espirituales, ==procuren== ==abundar== en ellos para la edificación de la iglesia. [Por tanto](), el que habla en lenguas, ==pida en oración== [para que]() ==pueda interpretar==. [Porque]() [si]() yo ==oro== en lenguas, mi espíritu ==ora==, [pero]() mi entendimiento ==queda(ES)== sin fruto. [Entonces](OUN) ¿qué +==ES==+? ==Oraré== con el espíritu, [pero]() [también]() ==oraré== con el entendimiento. ==Cantaré== con el espíritu, [pero]() [también]() ==cantaré== con el entendimiento. [De otra manera](EPEI), [si]() ==bendices== solo en el espíritu, ¿cómo ==dirá== el «Amén» a tu acción de gracias el que ocupa el lugar del que no tiene ese don, [puesto que](EPEIDE) no ==sabe== lo que ==dices==? [Porque]() tú, bien ==das gracias==, [pero]() el otro no ==es edificado==. ==Doy gracias== a Dios porque ==hablo== en lenguas más que todos ustedes. [Sin embargo](), en la iglesia ==prefiero== hablar cinco palabras con mi entendimiento, [para+QUE+]() ==instruir== también a otros, antes que diez mil palabras en lenguas. Hermanos, no ==sean== niños en la manera de pensar. [Más bien](), ==sean== niños en la malicia, [pero]() en la manera de pensar ==sean== maduros. 
+==Procuren alcanzar== el amor; 
+
+[pero]() también ==deseen ardientemente== los dones espirituales, sobre todo 
+
+​	[+PARA+que]() ==profeticen==. 
+
+​	[Porque]() el que habla en lenguas no ==habla== a los hombres, sino a Dios, 
+
+​	[pues]() nadie lo ==entiende==, 
+
+​	[sino]() que en su espíritu ==habla== misterios. 
+
+​	[Pero]() el que profetiza ==habla== a los hombres para edificación, exhortación y consolación.
+
+ El que habla en lenguas, a sí mismo ==se edifica==,
+
+ [pero]() el que profetiza ==edifica== a la iglesia. 
+
++[PERO]()+ Yo ==quisiera== que todos hablaran en lenguas, pero aún más,
+
+​	 [+PARA+que]() ==profetizaran==. Porque el que profetiza es superior al que habla en lenguas, a menos de que 
+
++[SI]()+ las ==interprete==
+
+​	 [para que]() la iglesia ==reciba== edificación. 
+
++[PERO]()+ Ahora bien, hermanos,
+
+​	 [si]() yo ==voy== a ustedes hablando en lenguas, 
+
+¿de qué ==provecho les seré== 
+
+​	[(a menos de que](EAN ME)) les ==hable== por medio de revelación, o de conocimiento, o de profecía, o de enseñanza? 
+
+Aun las cosas inanimadas, como la flauta o el arpa, al producir un sonido, 
+
+​	[si]() no ==dan== con distinción los sonidos, 
+
+¿cómo ==se sabrá== lo que se toca en la flauta o en el arpa?
+
+ [Porque]()
+
+​	 [si]() la trompeta ==da== un sonido incierto, 
+
+¿quién ==se preparará== para la batalla? 
+
+Así también ustedes,
+
+​	 ([a menos de que](EAN ME)) con la boca ==pronuncien== palabras inteligibles,
+
+ ¿cómo ==se sabrá== lo que dicen? 
+
+[Pues]() +==ESTARAN==+ hablarán al aire. 
+
+​	+[SI]()+ Hay, ==quizás==, muchas variedades de idiomas en el mundo, 
+
+​	[y]() ninguno ==carece(ES)== de significado. 
+
+[Pues](OUN)
+
+​	 [si]() yo no ==sé== el significado de las palabras,
+
+ ==seré== para el que habla un extranjero, y el que habla será un extranjero para mí. 
+
+Así [también]() ustedes,
+
+​	 [puesto que](EPEI) +==ESTAN==+anhelan dones espirituales,
+
+ ==procuren== 
+
+​	+[PARA QUE]()+ ==abundar== en ellos para la edificación de la iglesia.
+
+ [Por tanto](), el que habla en lenguas, ==pida en oración== 
+
+​	[para que]() ==pueda interpretar==. 
+
+[Porque]() 
+
+​	[si]() yo ==oro== en lenguas, 
+
+mi espíritu ==ora==,
+
+ [pero]() mi entendimiento ==queda(ES)== sin fruto.
+
+ [Entonces](OUN) ¿qué +==ES==+?
+
+ ==Oraré== con el espíritu,
+
+ [pero]() también ==oraré== con el entendimiento.
+
+ ==Cantaré== con el espíritu, 
+
+[pero]() también ==cantaré== con el entendimiento.
+
+[De otra manera](EPEI),
+
+​	 [si]() ==bendices== solo en el espíritu,
+
+ ¿cómo ==dirá== el «Amén» a tu acción de gracias el que ocupa el lugar del que no tiene ese don,
+
+​	 [puesto que](EPEIDE) no ==sabe== 
+
+lo que ==dices==? 
+
+[Porque]() tú, bien ==das gracias==, 
+
+[pero]() el otro no ==es edificado==. 
+
+==Doy gracias== a Dios porque 
+
+==hablo== en lenguas más que todos ustedes. 
+
+[Sin embargo](), en la iglesia ==prefiero== hablar cinco palabras con mi entendimiento, 
+
+​	[para+QUE+]() ==instruir== también a otros, antes que diez mil palabras en lenguas. 
+
+Hermanos, no ==sean== niños en la manera de pensar. 
+
+[Más bien](), ==sean== niños en la malicia, 
+
+[pero]() en la manera de pensar ==sean== maduros. 
