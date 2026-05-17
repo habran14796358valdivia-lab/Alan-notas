@@ -210,4 +210,4 @@ Todos los hermanos los ==saludan==.
 
 ==Salúdense== los unos a los otros con un beso santo. 
 
-que ==sea== anatema. 
+que ==sea== anatema.  
