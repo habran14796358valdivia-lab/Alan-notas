@@ -129,3 +129,271 @@ Hermanos, no ==sean== niños en la manera de pensar.
 [Más bien](), ==sean== niños en la malicia, 
 
 [pero]() en la manera de pensar ==sean== maduros. 
+
+En la ley ==está escrito==: 
+
+​	«+[QUE]()+ POR HOMBRES DE LENGUAS EXTRAÑAS Y POR BOCA DE EXTRAÑOS ==HABLARÉ== A ESTE PUEBLO,
+
+​	 [Y]() NI AUN ASÍ ME ==ESCUCHARÁN==»,
+
+ ==dice== el Señor. 
+
+[Así que](JOSTE) las lenguas ==son== una señal, no para los que creen, sino para los incrédulos; pero la profecía es una señal, no para los incrédulos, sino para los creyentes. 
+
+[Por tanto](OUN),
+
+​	 [si]() toda la iglesia ==se reúne== 
+
+​	[y]() todos ==hablan== en lenguas, 
+
+​	[y]() ==entran== algunos sin ese don o que son incrédulos, 
+
+¿no ==dirán==
+
+​	 [que]() ustedes ==están locos==? 
+
+[Pero]() 
+
+​	[si]() todos ==profetizan==,
+
+​	 [y]() ==entra== un incrédulo, o uno sin ese don,
+
+por todos ==será convencido==,
+
+por todos ==será juzgado==. 
+
+Los secretos de su corazón ==quedarán== al descubierto, 
+
+[y]() él se postrará y ==adorará== a Dios, declarando 
+
+​	[que]() en verdad Dios ==está== entre ustedes.
+
++[POR TANTO](OUN)+ ¿Qué ==hay== que hacer, pues, hermanos? 
+
+​	[Cuando](JOTAN) ==se reúnan==, 
+
+cada cual ==aporte== salmo
+
+,+==TENGA==+ enseñanza,
+
+ +==TENGA==+revelación, 
+
++==TENGA==+lenguas o 
+
++==TENGA==+interpretación.
+
+ Que todo ==se haga== para edificación. 
+
+​	[Si]() alguien ==habla== en lenguas, que hablen dos, o a lo más tres, y por turno, 
+
+​	[y]() que uno ==interprete==. 
+
+[Pero]() 
+
+​	[si]() no ==hay== intérprete, 
+
+que ==guarde silencio== en la iglesia 
+
+[y]() que ==hable== para sí y para Dios.
+
+ [Y]() que dos o tres profetas ==hablen==, 
+
+[y]() los demás ==juzguen==. 
+
+[Pero]() 
+
+​	[si]() a otro que está sentado le ==es revelado== algo, 
+
+que ==calle== el primero. 
+
+[Porque]() todos ==pueden== profetizar uno por uno, 
+
+​	[para que]() todos ==aprendan== 
+
+​	[y]() todos ==sean exhortados==.
+
++[Y]()+ Los espíritus de los profetas ==están sujetos== a los profetas. 
+
+[Porque]() Dios no ==es== Dios de confusión, sino de paz, como en todas las iglesias de los santos. 
+
+Las mujeres ==guarden silencio== en las iglesias,
+
+[porque]() no les ==es permitido== hablar,
+
+[antes bien](ALLA), que ==se sujeten== 
+
+​	[como](KATHOS) ==dice== también la ley. 
+
+[Y]() 
+
+​	[si]() ==quieren== aprender algo, 
+
+que ==pregunten== a sus propios maridos en casa, 
+
+[porque]() no ==es== correcto que la mujer hable en la iglesia.
+
+ ¿[Acaso](E) la palabra de Dios ==salió== de ustedes, 
+
+[o]() solo a ustedes ==ha llegado==? 
+
+​	[Si]() alguien ==piensa== que es profeta o espiritual,
+
+ ==reconozca== que lo
+
+ 	[que]() les ==escribo==
+
+ ==es== mandamiento del Señor. 
+
+[Pero]()
+
+​	 [si]() alguien ==no reconoce esto==, 
+
+él ==no es reconocido==. 
+
+[Por tanto](JOSTE), hermanos míos, ==anhelen== el profetizar, 
+
+[y]() no ==prohíban== hablar en lenguas. 
+
+[Pero]() que todo ==se haga== decentemente y con orden. 
+
+---
+
+TRONCO
+
+---
+
+==Procuren alcanzar== el amor; 
+
+[pero]() también ==deseen ardientemente== los dones espirituales, sobre todo 
+
+ El que habla en lenguas, a sí mismo ==se edifica==,
+
+ [pero]() el que profetiza ==edifica== a la iglesia. 
+
++[PERO]()+ Yo ==quisiera== que todos hablaran en lenguas, pero aún más,
+
++[SI]()+ las ==interprete==
+
++[PERO]()+ Ahora bien, hermanos,
+
+¿de qué ==provecho les seré== 
+
+¿cómo ==se sabrá== lo que se toca en la flauta o en el arpa?
+
+¿quién ==se preparará== para la batalla? 
+
+ ¿cómo ==se sabrá== lo que dicen? 
+
+[Pues]() +==ESTARAN==+ hablarán al aire. 
+
+ ==seré== para el que habla un extranjero, y el que habla será un extranjero para mí. 
+
+ ==procuren== 
+
+ [Por tanto](), el que habla en lenguas, ==pida en oración== 
+
+mi espíritu ==ora==,
+
+ [pero]() mi entendimiento ==queda(ES)== sin fruto.
+
+ [Entonces](OUN) ¿qué +==ES==+?
+
+ ==Oraré== con el espíritu,
+
+ [pero]() también ==oraré== con el entendimiento.
+
+ ==Cantaré== con el espíritu, 
+
+[pero]() también ==cantaré== con el entendimiento.
+
+ ¿cómo ==dirá== el «Amén» a tu acción de gracias el que ocupa el lugar del que no tiene ese don,
+
+lo que ==dices==? 
+
+[Porque]() tú, bien ==das gracias==, 
+
+[pero]() el otro no ==es edificado==. 
+
+==Doy gracias== a Dios porque 
+
+==hablo== en lenguas más que todos ustedes. 
+
+[Sin embargo](), en la iglesia ==prefiero== hablar cinco palabras con mi entendimiento, 
+
+Hermanos, no ==sean== niños en la manera de pensar. 
+
+[Más bien](), ==sean== niños en la malicia, 
+
+[pero]() en la manera de pensar ==sean== maduros. 
+
+En la ley ==está escrito==: 
+
+ ==dice== el Señor. 
+
+[Así que](JOSTE) las lenguas ==son== una señal, no para los que creen, sino para los incrédulos; pero la profecía es una señal, no para los incrédulos, sino para los creyentes. 
+
+¿no ==dirán==
+
+por todos ==será convencido==,
+
+por todos ==será juzgado==. 
+
+Los secretos de su corazón ==quedarán== al descubierto, 
+
+[y]() él se postrará y ==adorará== a Dios, declarando 
+
++[POR TANTO](OUN)+ ¿Qué ==hay== que hacer, pues, hermanos? 
+
+cada cual ==aporte== salmo
+
+,+==TENGA==+ enseñanza,
+
+ +==TENGA==+revelación, 
+
++==TENGA==+lenguas o 
+
++==TENGA==+interpretación.
+
+ Que todo ==se haga== para edificación. 
+
+que ==guarde silencio== en la iglesia 
+
+[y]() que ==hable== para sí y para Dios.
+
+ [Y]() que dos o tres profetas ==hablen==, 
+
+[y]() los demás ==juzguen==. 
+
+que ==calle== el primero. 
+
+[Porque]() todos ==pueden== profetizar uno por uno, 
+
++[Y]()+ Los espíritus de los profetas ==están sujetos== a los profetas. 
+
+[Porque]() Dios no ==es== Dios de confusión, sino de paz, como en todas las iglesias de los santos. 
+
+Las mujeres ==guarden silencio== en las iglesias,
+
+[porque]() no les ==es permitido== hablar,
+
+[antes bien](ALLA), que ==se sujeten== 
+
+que ==pregunten== a sus propios maridos en casa, 
+
+[porque]() no ==es== correcto que la mujer hable en la iglesia.
+
+ ¿[Acaso](E) la palabra de Dios ==salió== de ustedes, 
+
+[o]() solo a ustedes ==ha llegado==? 
+
+ ==reconozca== que lo
+
+ ==es== mandamiento del Señor. 
+
+él ==no es reconocido==. 
+
+[Por tanto](JOSTE), hermanos míos, ==anhelen== el profetizar, 
+
+[y]() no ==prohíban== hablar en lenguas. 
+
+[Pero]() que todo ==se haga== decentemente y con orden. 
