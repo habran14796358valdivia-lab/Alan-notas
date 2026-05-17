@@ -189,3 +189,107 @@ No ==se dejen engañar==:
 [porque]() algunos no ==tienen== conocimiento de Dios. 
 
 Para vergüenza de ustedes lo ==digo==.
+
+[Pero]() alguien ==dirá:== 
+
+«¿Cómo ==resucitan== los muertos? 
+
+¿[Y]() con qué clase de cuerpo ==vienen==?». 
+
+¡Necio! Lo que tú ==siembras== 
+
+no ==llega a tener vida==
+
+​	 [si]() antes no ==muere==. 
+
+[Y]() lo que ==siembras==,
+
+ no ==siembras== 
+
+el cuerpo que ==nacerá==,
+
+ [sino]() el grano desnudo, 
+
+​	+[SI]()+ ==quizás== de trigo o de alguna otra especie. 
+
+[Pero]() Dios ==le da== un cuerpo 
+
+​	[como](KATHOS) Él ==quiso==, y a cada semilla su propio cuerpo.
+
+ No toda carne es la misma carne, sino que una es la de los hombres, otra la de las bestias, otra la de las aves y otra la de los peces. Hay, asimismo, cuerpos celestiales y cuerpos terrestres, pero la gloria del celestial es una, y la del terrestre es otra. 
+
+Hay una gloria del sol, y otra gloria de la luna, y otra gloria de las estrellas;
+
+[pues]() una estrella ==es distinta== de otra estrella en gloria. 
+
+Así es también la resurrección de los muertos.
+
+ ==Se siembra== un cuerpo corruptible, 
+
+==se resucita== un cuerpo incorruptible;
+
+ ==se siembra== en deshonra,
+
+ ==se resucita== en gloria; 
+
+==se siembra== en debilidad,
+
+ ==se resucita== en poder; 
+
+==se siembra== un cuerpo natural,
+
+ ==se resucita== un cuerpo espiritual.
+
+​	 [Si]() ==hay== un cuerpo natural, 
+
+==hay== también un cuerpo espiritual. Así
+
+ [también]() ==está escrito==: 
+
+«El primer HOMBRE, Adán, ==FUE HECHO== ALMA VIVIENTE». 
+
+El último Adán, espíritu que da vida. Sin embargo, el espiritual no es primero, sino el natural; luego el espiritual. El primer hombre es de la tierra, terrenal; el segundo hombre es del cielo. Como es el terrenal, así son también los que son terrenales; y como es el celestial, así son también los que son celestiales.
+
+ [Y]() tal 
+
+​	[como]() ==hemos traído== la imagen del terrenal, 
+
+==traeremos== también la imagen del celestial.
+
++[PERO]()+  Esto ==digo==, hermanos: 
+
+que la carne y la sangre no ==pueden== heredar el reino de Dios; 
+
+[ni]() lo que se corrompe ==hereda== lo incorruptible. 
+
+==Así que(MIRA)== 
+
+les ==digo== un misterio:
+
+ no todos ==dormiremos==, 
+
+[pero]() todos ==seremos transformados== en un momento, en un abrir y cerrar de ojos, a la trompeta final. 
+
+[Pues]() ==la trompeta sonará==
+
+ [y]() los muertos ==resucitarán== incorruptibles, 
+
+[y]() nosotros ==seremos transformados==. 
+
+[Porque]() ==es necesario== que esto corruptible se vista de incorrupción, y esto mortal se vista de inmortalidad. 
+
+[Pero]() 
+
+​	[cuando]() esto corruptible ==se haya vestido== de incorrupción, 
+
+​	[y]() esto mortal ==se haya vestido== de inmortalidad, 
+
+entonces ==se cumplirá== la palabra que está escrita:
+
+ «==DEVORADA HA SIDO== LA MUERTE en victoria. 
+
+»¿DÓNDE ESTÁ, OH MUERTE, TU VICTORIA? ¿DÓNDE, OH SEPULCRO, TU AGUIJÓN?». El aguijón de la muerte es el pecado, y el poder del pecado es la ley; pero a Dios gracias, que nos da la victoria por medio de nuestro Señor Jesucristo. 
+
+[Por tanto](JOSTE), mis amados hermanos, ==estén== firmes, constantes, abundando siempre en la obra del Señor, sabiendo 
+
+​	[que]() ==su trabajo== en el Señor no es en vano. 
