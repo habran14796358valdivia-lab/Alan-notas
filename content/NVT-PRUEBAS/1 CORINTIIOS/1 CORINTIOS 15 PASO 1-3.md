@@ -293,3 +293,190 @@ entonces ==se cumplirá== la palabra que está escrita:
 [Por tanto](JOSTE), mis amados hermanos, ==estén== firmes, constantes, abundando siempre en la obra del Señor, sabiendo 
 
 ​	[que]() ==su trabajo== en el Señor no es en vano. 
+
+---
+
+TRONCO
+
+---
+
+[Ahora](de) les ==hago saber==, hermanos, 
+
+el evangelio que les ==prediqué==, el cual
+
+[también]() ustedes ==recibieron==, en el cual
+
+[también]() ==están firmes==, 
+
+por el cual también ==son salvos==, 
+
+que les ==prediqué==, a no ser que 
+
+[Porque]() yo les ==entregué== en primer lugar lo mismo que 
+
++[TAMBIEN]()+ ==recibí==: 
+
+Luego ==se apareció== a más de 500 hermanos a la vez, 
+
+la mayoría de los cuales ==viven aún==, 
+
+[pero]() algunos ==ya duermen==.
+
+[Después](EPEITA) ==se apareció== a Jacobo, luego a todos los apóstoles.
+
+ [Y]() al último de todos, como a uno nacido fuera de tiempo, ==se me apareció== también a mí. 
+
+[Porque]() yo ==soy== el más insignificante de los apóstoles, 
+
+que no ==soy== digno 
+
+de ==ser llamado== apóstol,
+
+[pues]() ==perseguí== a la iglesia de Dios. 
+
+[Pero]() por la gracia de Dios ==soy== lo que 
+
+==soy==,
+
+ [y]() Su gracia para conmigo no ==resultó== vana.
+
+ [Antes bien]() ==he trabajado== mucho más que todos ellos, aunque no yo, sino la gracia de Dios en mí. 
+
+[Sin embargo](OUN), haya sido yo o ellos, así ==predicamos== 
+
+[y]() así ==creyeron== ustedes. 
+
+¿cómo ==dicen== algunos entre ustedes
+
+entonces ni siquiera Cristo ==ha resucitado==; 
+
+ [Aún más](DE), ==somos hallados== testigos falsos de Dios,
+
+ [porque]() ==hemos testificado== contra Dios
+
+a quien no ==resucitó==,
+
+entonces ni siquiera Cristo ==ha resucitado==; 
+
+ todavía ==están== en sus pecados. 
+
+[Entonces](ARA) también los que han dormido en Cristo ==están perdidos==.
+
+==somos==, de todos los hombres, los más dignos de lástima.
+
+ [Pero]() ahora Cristo ==ha resucitado== de entre los muertos, primicias de los que durmieron. Porque ya que la muerte entró por un hombre, también por un hombre vino la resurrección de los muertos. 
+
+[Porque]() así como en Adán todos ==mueren==, 
+
+[también]() en Cristo todos ==serán vivificados==. 
+
+ [cuando]() Él ==entregue== el reino al Dios y Padre,
+
+ [Pues]() Cristo ==debe== reinar
+
+ hasta que ==haya puesto== a todos Sus enemigos debajo de Sus pies. 
+
+Y el último enemigo que ==será eliminado== es la muerte. 
+
+[Porque]() DIOS ==HA PUESTO TODO EN SUJECIÓN== BAJO SUS PIES. 
+
+[De no ser así](EPEI YA QUE), ¿qué ==harán== los que se bautizan por los muertos? 
+
+¿por qué, entonces, ==se bautizan== por ellos? Y 
+
+[también](), ¿por qué ==estamos en peligro== a toda hora?
+
+ Les aseguro, hermanos, por la satisfacción que ==siento== por ustedes en Cristo Jesús nuestro Señor, 
+
+que cada día ==estoy en peligro de muerte==.
+
+==COMAMOS== 
+
+[Y]() ==BEBAMOS==,
+
+No ==se dejen engañar==: 
+
+«Las malas compañías ==corrompen== las buenas costumbres». 
+
+==Sean sobrios==, como conviene, 
+
+[y]() ==dejen de pecar==; 
+
+[porque]() algunos no ==tienen== conocimiento de Dios. 
+
+Para vergüenza de ustedes lo ==digo==.
+
+[Pero]() alguien ==dirá:== 
+
+«¿Cómo ==resucitan== los muertos? 
+
+¿[Y]() con qué clase de cuerpo ==vienen==?». 
+
+¡Necio! Lo que tú ==siembras== 
+
+no ==llega a tener vida==
+
+[Y]() lo que ==siembras==,
+
+ no ==siembras== 
+
+el cuerpo que ==nacerá==,
+
+ [sino]() el grano desnudo, 
+
+[Pero]() Dios ==le da== un cuerpo 
+
+[pues]() una estrella ==es distinta== de otra estrella en gloria. 
+
+ ==Se siembra== un cuerpo corruptible, 
+
+==se resucita== un cuerpo incorruptible;
+
+ ==se siembra== en deshonra,
+
+ ==se resucita== en gloria; 
+
+==se siembra== en debilidad,
+
+ ==se resucita== en poder; 
+
+==se siembra== un cuerpo natural,
+
+ ==se resucita== un cuerpo espiritual.
+
+==hay== también un cuerpo espiritual. Así
+
+ [también]() ==está escrito==: 
+
+«El primer HOMBRE, Adán, ==FUE HECHO== ALMA VIVIENTE». 
+
+==traeremos== también la imagen del celestial.
+
++[PERO]()+  Esto ==digo==, hermanos: 
+
+que la carne y la sangre no ==pueden== heredar el reino de Dios; 
+
+[ni]() lo que se corrompe ==hereda== lo incorruptible. 
+
+==Así que(MIRA)== 
+
+les ==digo== un misterio:
+
+ no todos ==dormiremos==, 
+
+[pero]() todos ==seremos transformados== en un momento, en un abrir y cerrar de ojos, a la trompeta final. 
+
+[Pues]() ==la trompeta sonará==
+
+ [y]() los muertos ==resucitarán== incorruptibles, 
+
+[y]() nosotros ==seremos transformados==. 
+
+[Porque]() ==es necesario== que esto corruptible se vista de incorrupción, y esto mortal se vista de inmortalidad. 
+
+entonces ==se cumplirá== la palabra que está escrita:
+
+ «==DEVORADA HA SIDO== LA MUERTE en victoria. 
+
+[Por tanto](JOSTE), mis amados hermanos, ==estén== firmes, constantes, abundando siempre en la obra del Señor, sabiendo 
+
