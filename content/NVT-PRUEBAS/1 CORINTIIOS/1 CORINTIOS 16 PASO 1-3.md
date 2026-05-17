@@ -140,3 +140,74 @@ TRONCO
 
 ---
 
+[Ahora bien](DE), en cuanto a la ofrenda para los santos, ==hagan== ustedes 
+
+también como ==instruí== a las iglesias de Galacia. 
+
+Que el primer día de la semana, cada uno de ustedes ==aparte== y guarde 
+
+según ==haya prosperado==,
+
+no ==se recojan== entonces ofrendas. 
+
+==enviaré== con cartas a quienes 
+
+ ellos ==irán== conmigo.
+
++[PERO]()+ ==Iré== a ustedes
+
+[Y]() tal vez me ==quede== con ustedes,
+
+ [o]() aun ==pase allí el invierno==, 
+
+[Pues]() no ==deseo== verlos ahora solo de paso,
+
+[porque]() ==espero== permanecer con ustedes por algún tiempo, 
+
+ [Pero]() ==me quedaré== en Éfeso hasta Pentecostés, 
+
+[porque]() se me ==ha abierto== una puerta grande para el servicio eficaz, aunque también hay muchos adversarios.
+
+ ==vean== 
+
+ [Por tanto](OUN), nadie lo ==menosprecie==.
+
+ [Más bien](DE), ==envíenlo== en paz 
+
+[En cuanto](DE) a nuestro hermano Apolos, mucho ==lo animé== 
+
+ [pero]() de ninguna manera ==tuvo== ahora el deseo 
+
+ [Sin embargo](DE), ==irá==
+
+==Estén alerta==,
+
+ ==permanezcan firmes== en la fe,
+
+ ==pórtense varonilmente==, 
+
+==sean fuertes==. 
+
+Todas sus cosas ==sean hechas== con amor. 
+
++[PERO]()+ Los ==exhorto==, hermanos
+
+ (==ya conocen== a los de la casa de Estéfanas,
+
+ [Y]() ==me regocijo== por la venida de Estéfanas, de Fortunato y de Acaico, 
+
+[pues](JOTI) ellos ==han suplido== lo que faltaba de parte de ustedes. 
+
+[Porque]() ellos ==han recreado== mi espíritu [y]() el de ustedes. 
+
+[Por tanto](OUN), ==reconozcan== a tales personas. 
+
+Las iglesias de Asia los ==saludan==. 
+
+Aquila y Priscila, con la iglesia que está en su casa, los ==saludan== muy afectuosamente en el Señor. 
+
+Todos los hermanos los ==saludan==. 
+
+==Salúdense== los unos a los otros con un beso santo. 
+
+que ==sea== anatema. 
