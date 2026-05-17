@@ -134,3 +134,76 @@ TRONCO
 
 ---
 
++[PERO]()+ En cuanto a los dones espirituales, no ==quiero==, hermanos, que sean ignorantes.
+
+Ustedes ==saben==
+
+de una manera u otra ==eran arrastrados== hacia los ídolos mudos.
+
+ [Por tanto](), les ==hago saber== 
+
+[Ahora bien](), ==hay== diversidad de dones, pero el Espíritu es el mismo.
+
++[Y]()+ ==Hay== diversidad de ministerios, pero el Señor es el mismo. 
+
+[Y]() ==hay== diversidad de operaciones, pero es el mismo Dios el que hace todas las cosas en todos.
+
+[Pero]() a cada uno ==se le da== la manifestación del Espíritu para el bien común. 
+
+[Pues]() a uno ==le es dada== palabra de sabiduría por el Espíritu; a otro, palabra de conocimiento según el mismo Espíritu;
+
+[Pero]() todas estas cosas las ==hace== uno y el mismo Espíritu, distribuyendo individualmente a cada uno 
+
+aunque son muchos, ==constituyen== un solo cuerpo, así también es Cristo. 
+
+[Pues]() por un mismo Espíritu todos ==fuimos bautizados== en un solo cuerpo, ya judíos o griegos, ya esclavos o libres. 
+
+A todos ==se nos dio a beber== del mismo Espíritu. 
+
+[Porque]() el cuerpo no ==es== un solo miembro, sino muchos.
+
+ no ==soy== parte del cuerpo», 
+
+no por eso deja de ==ser== parte del cuerpo.
+
+no ==soy== parte del cuerpo», 
+
+no por eso deja de ==ser== parte del cuerpo. 
+
++[PERO]()+ Ahora bien, Dios ==ha colocado== a cada uno de los miembros en el cuerpo 
+
+ [Y]() el ojo no ==puede== decirle a la mano: 
+
+«No te ==necesito==»;
+
+ [ni]() tampoco la cabeza a los pies: «No los ==necesito==».
+
+ [Por el contrario](), la verdad es que los miembros del cuerpo que parecen ser los más débiles, ==son== los más necesarios;
+
+[y]() las partes del cuerpo que ==estimamos== menos honrosas,
+
+ a estas las ==vestimos== con más honra. 
+
+[Así que](kai) las partes que consideramos más íntimas, ==reciben un trato== más honroso, 
+
+[ya que](de) nuestras partes presentables no lo +==TIENEN==+ necesitan.
+
+[Pero]() así ==formó== Dios el cuerpo, dando mayor honra a la parte que carecía de ella, 
+
+ todos los miembros ==sufren== con él;
+
+todos los miembros ==se regocijan== con él. 
+
+[Ahora bien](), ustedes ==son== el cuerpo de Cristo, y cada uno individualmente un miembro de él.
+
+ [Y]() en la iglesia, Dios ==ha designado== primeramente, apóstoles; en segundo lugar, profetas; en tercer lugar, maestros; luego, milagros; después, dones de sanidad, ayudas, administraciones, diversas clases de lenguas. 
+
+¿Acaso ==tienen== todos dones de sanidad? 
+
+¿Acaso ==hablan== todos en lenguas? 
+
+¿Acaso ==interpretan== todos?
+
+ [Pero]() ==deseen ardientemente== los mejores dones. 
+
+[Y]() aun yo les ==muestro== un camino más excelente. 
