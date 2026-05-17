@@ -8,4 +8,184 @@ PASO 6
 
 ---
 
-[Ahora](de) les ==hago saber==, hermanos, el evangelio que les ==prediqué==, el cual [también]() ustedes ==recibieron==, en el cual [también]() ==están firmes==, por el cual [también]() ==son salvos==, [si]() ==retienen== la palabra que les ==prediqué==, a no ser que +[SI]()+==hayan creído== en vano. [Porque]() yo les ==entregué== en primer lugar lo mismo que +[TAMBIEN]()+ ==recibí==: [que]() Cristo ==murió== por nuestros pecados, conforme a las Escrituras; +[Y]()+ [que]() ==fue sepultado== [y]() [que]() ==resucitó== al tercer día, conforme a las Escrituras; +[Y]()+ [que]() ==se apareció== a Cefas y después a los doce. Luego ==se apareció== a más de 500 hermanos a la vez, la mayoría de los cuales ==viven aún==, [pero]() algunos ==ya duermen==. [Después](EPEITA) ==se apareció== a Jacobo, luego a todos los apóstoles. [Y]() al último de todos, como a uno nacido fuera de tiempo, ==se me apareció== también a mí. [Porque]() yo ==soy== el más insignificante de los apóstoles, que no ==soy== digno de ==ser llamado== apóstol, [pues]() ==perseguí== a la iglesia de Dios. [Pero]() por la gracia de Dios ==soy== lo que ==soy==, [y]() Su gracia para conmigo no ==resultó== vana. [Antes bien]() ==he trabajado== mucho más que todos ellos, aunque no yo, sino la gracia de Dios en mí. [Sin embargo](OUN), haya sido yo o ellos, así ==predicamos== [y]() así ==creyeron== ustedes. [Ahora bien](), [si]() ==se predica== [que]() Cristo ==ha resucitado== de entre los muertos, ¿cómo ==dicen== algunos entre ustedes [que]() no ==hay== resurrección de muertos? [Y]() [si]() no ==hay== resurrección de muertos, entonces ni siquiera Cristo ==ha resucitado==; [y]() [si]() Cristo no ==ha resucitado==, vana es entonces nuestra predicación, y vana también la fe de ustedes. [Aún más](DE), ==somos hallados== testigos falsos de Dios, [porque]() ==hemos testificado== contra Dios [que]() Él ==resucitó== a Cristo, a quien no ==resucitó==,+[POR TANTO](ARA)+ [si]() en verdad los muertos no ==resucitan==. [Porque]() [si]() los muertos no ==resucitan==, entonces ni siquiera Cristo ==ha resucitado==; [y]() [si]() Cristo no ==ha resucitado==, la fe de ustedes es falsa; todavía ==están== en sus pecados. [Entonces](ARA) también los que han dormido en Cristo ==están perdidos==. [Si]() +==SOMOS==+ hemos esperado en Cristo para esta vida solamente, ==somos==, de todos los hombres, los más dignos de lástima. [Pero]() ahora Cristo ==ha resucitado== de entre los muertos, primicias de los que durmieron. Porque ya que la muerte entró por un hombre, también por un hombre vino la resurrección de los muertos. [Porque]() así como en Adán todos ==mueren==, [también]() en Cristo todos ==serán vivificados==. [Pero]() cada uno en su debido orden: Cristo, las primicias; luego los que son de Cristo en Su venida. Entonces vendrá el fin, [cuando]() Él ==entregue== el reino al Dios y Padre, [después que](JOTAN) ==haya terminado== con todo dominio y toda autoridad y poder. [Pues]() Cristo ==debe== reinar hasta que ==haya puesto== a todos Sus enemigos debajo de Sus pies. Y el último enemigo que ==será eliminado== es la muerte. [Porque]() DIOS ==HA PUESTO TODO EN SUJECIÓN== BAJO SUS PIES. [Pero]() [cuando]() ==dice== [que]() todas las cosas ==están sujetas== a Él, es evidente que se exceptúa a Aquel que ha sometido a Él todas las cosas. [Y]() [cuando]() todo ==haya sido sometido== a Él, entonces [también]() el Hijo mismo ==se sujetará== a Aquel que sujetó a Él todas las cosas, [para que]() Dios ==sea== todo en todos. [De no ser así](EPEI YA QUE), ¿qué ==harán== los que se bautizan por los muertos? [Si]() de ninguna manera los muertos ==resucitan==, ¿por qué, entonces, ==se bautizan== por ellos? Y [también](), ¿por qué ==estamos en peligro== a toda hora? Les aseguro, hermanos, por la satisfacción que ==siento== por ustedes en Cristo Jesús nuestro Señor, que cada día ==estoy en peligro de muerte==. [Si]() por motivos humanos ==luché contra fieras== en Éfeso, ¿de qué me aprovecha? [Si]() los muertos no ==resucitan==, ==COMAMOS== [Y]() ==BEBAMOS==, [+POR+QUE]() MAÑANA ==MORIREMOS==. No ==se dejen engañar==: «Las malas compañías ==corrompen== las buenas costumbres». ==Sean sobrios==, como conviene, [y]() ==dejen de pecar==; [porque]() algunos no ==tienen== conocimiento de Dios. Para vergüenza de ustedes lo ==digo==.
+[Ahora](de) les ==hago saber==, hermanos, 
+
+el evangelio que les ==prediqué==, el cual
+
+[también]() ustedes ==recibieron==, en el cual
+
+[también]() ==están firmes==, 
+
+por el cual también ==son salvos==, 
+
+​	[si]() ==retienen== la palabra 
+
+que les ==prediqué==, a no ser que 
+
+​	+[SI]()+==hayan creído== en vano.
+
+[Porque]() yo les ==entregué== en primer lugar lo mismo que 
+
++[TAMBIEN]()+ ==recibí==: 
+
+​	[que]() Cristo ==murió== por nuestros pecados, conforme a las Escrituras; 
+
+​	+[Y]()+
+
+​	 [que]() ==fue sepultado== 
+
+​	[y]()
+
+​	 [que]() ==resucitó== al tercer día, conforme a las Escrituras;
+
+​	 +[Y]()+ 
+
+​	[que]() ==se apareció== a Cefas y después a los doce. 
+
+Luego ==se apareció== a más de 500 hermanos a la vez, 
+
+la mayoría de los cuales ==viven aún==, 
+
+[pero]() algunos ==ya duermen==.
+
+[Después](EPEITA) ==se apareció== a Jacobo, luego a todos los apóstoles.
+
+ [Y]() al último de todos, como a uno nacido fuera de tiempo, ==se me apareció== también a mí. 
+
+[Porque]() yo ==soy== el más insignificante de los apóstoles, 
+
+que no ==soy== digno 
+
+de ==ser llamado== apóstol,
+
+[pues]() ==perseguí== a la iglesia de Dios. 
+
+[Pero]() por la gracia de Dios ==soy== lo que 
+
+==soy==,
+
+ [y]() Su gracia para conmigo no ==resultó== vana.
+
+ [Antes bien]() ==he trabajado== mucho más que todos ellos, aunque no yo, sino la gracia de Dios en mí. 
+
+[Sin embargo](OUN), haya sido yo o ellos, así ==predicamos== 
+
+[y]() así ==creyeron== ustedes. 
+
+[Ahora bien](), 
+
+​	[si]() ==se predica==
+
+​	 	[que]() Cristo ==ha resucitado== de entre los muertos, 
+
+¿cómo ==dicen== algunos entre ustedes
+
+ 	[que]() no ==hay== resurrección de muertos?
+
+ [Y]() 
+
+​	[si]() no ==hay== resurrección de muertos, 
+
+entonces ni siquiera Cristo ==ha resucitado==; 
+
+[y]() 
+
+​	[si]() Cristo no ==ha resucitado==, vana es entonces nuestra predicación, y vana también la fe de ustedes.
+
+ [Aún más](DE), ==somos hallados== testigos falsos de Dios,
+
+ [porque]() ==hemos testificado== contra Dios
+
+​	 [que]() Él ==resucitó== a Cristo, 
+
+a quien no ==resucitó==,
+
++[POR TANTO](ARA)+
+
+​	 [si]() en verdad los muertos no ==resucitan==.
+
+ [Porque]() 
+
+​	[si]() los muertos no ==resucitan==, 
+
+entonces ni siquiera Cristo ==ha resucitado==; 
+
+[y]() 
+
+​	[si]() Cristo no ==ha resucitado==, la fe de ustedes es falsa;
+
+ todavía ==están== en sus pecados. 
+
+[Entonces](ARA) también los que han dormido en Cristo ==están perdidos==.
+
+​	 [Si]() +==SOMOS==+ hemos esperado en Cristo para esta vida solamente, 
+
+==somos==, de todos los hombres, los más dignos de lástima.
+
+ [Pero]() ahora Cristo ==ha resucitado== de entre los muertos, primicias de los que durmieron. Porque ya que la muerte entró por un hombre, también por un hombre vino la resurrección de los muertos. 
+
+[Porque]() así como en Adán todos ==mueren==, 
+
+[también]() en Cristo todos ==serán vivificados==. 
+
+[Pero]() cada uno en su debido orden: Cristo, las primicias; luego los que son de Cristo en Su venida. Entonces vendrá el fin,
+
+ [cuando]() Él ==entregue== el reino al Dios y Padre,
+
+​	 [después que](JOTAN) ==haya terminado== con todo dominio y toda autoridad y poder.
+
+ [Pues]() Cristo ==debe== reinar
+
+ hasta que ==haya puesto== a todos Sus enemigos debajo de Sus pies. 
+
+Y el último enemigo que ==será eliminado== es la muerte. 
+
+[Porque]() DIOS ==HA PUESTO TODO EN SUJECIÓN== BAJO SUS PIES. 
+
+[Pero]() 
+
+​	[cuando]() ==dice== 
+
+​		[que]() todas las cosas ==están sujetas== a Él, es evidente que se exceptúa a Aquel que ha sometido a Él todas las cosas. 
+
+[Y]()
+
+​	 [cuando]() todo ==haya sido sometido== a Él, entonces
+
+​	 [también]() el Hijo mismo ==se sujetará== a Aquel que sujetó a Él todas las cosas,
+
+​		 [para que]() Dios ==sea== todo en todos. 
+
+[De no ser así](EPEI YA QUE), ¿qué ==harán== los que se bautizan por los muertos? 
+
+​	[Si]() de ninguna manera los muertos ==resucitan==, 
+
+¿por qué, entonces, ==se bautizan== por ellos? Y 
+
+[también](), ¿por qué ==estamos en peligro== a toda hora?
+
+ Les aseguro, hermanos, por la satisfacción que ==siento== por ustedes en Cristo Jesús nuestro Señor, 
+
+que cada día ==estoy en peligro de muerte==.
+
+​	 [Si]() por motivos humanos ==luché contra fieras== en Éfeso, ¿de qué me aprovecha?
+
+​	 [Si]() los muertos no ==resucitan==, 
+
+==COMAMOS== 
+
+[Y]() ==BEBAMOS==,
+
+​	 [+POR+QUE]() MAÑANA ==MORIREMOS==. 
+
+No ==se dejen engañar==: 
+
+«Las malas compañías ==corrompen== las buenas costumbres». 
+
+==Sean sobrios==, como conviene, 
+
+[y]() ==dejen de pecar==; 
+
+[porque]() algunos no ==tienen== conocimiento de Dios. 
+
+Para vergüenza de ustedes lo ==digo==.
