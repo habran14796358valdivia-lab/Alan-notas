@@ -198,8 +198,6 @@ Así ==hablen== ustedes
 
 La misericordia ==triunfa== sobre el juicio.
 
-
-
 ¿De qué sirve, hermanos míos, 
 
 ​	[si]() alguien ==dice== que tiene fe, 
@@ -250,21 +248,147 @@ Tú ==crees==
 
 ​	[que]() la fe sin obras ==es== estéril?
 
-¿No ==fue justificado== por las obras Abraham nuestro padre cuando ofreció a su hijo Isaac sobre el altar? ==Ya ves== [que]() la fe ==actuaba juntamente== con sus obras, [y]() como resultado de las obras,la fe ==fue perfeccionada==;  [y]() ==se cumplió== la Escritura que: «[Y]() Abraham ==creyó== a Dios [y]() le ==fue contado== por justicia», [y]() ==fue llamado== amigo de Dios. Ustedes ==ven== [que]() el hombre ==es justificado== por *las* obras y no solo por *la* fe.
 
-+[PERO]()+ [Y]() de la misma manera, ¿no fue la ramera Rahab también ==justificada== por *las* obras cuando recibió a los mensajeros y los envió por otro camino? [Porque]() así como el cuerpo sin *el* espíritu ==está== muerto, así [también]() la fe sin *las* obras ==está== muerta. 
 
-Hermanos míos, que no ==se hagan== maestros muchos *de ustedes*, sabiendo [que]() ==recibiremos== un juicio más severo. [Porque]() todos ==fallamos== de muchas maneras. [Si]() alguien no ==falla== en lo que dice, es un hombre perfecto, capaz también de refrenar todo el cuerpo. [Ahora bien](), [si]() ==ponemos== el freno en la boca de los caballos para que nos obedezcan, ==dirigimos== [también]() todo su cuerpo. ==Miren== [también]() las naves; aunque son tan grandes e impulsadas por fuertes vientos, son, sin embargo, ==dirigidas== mediante un timón muy pequeño por donde la voluntad del piloto ==quiere==.
+¿No ==fue justificado== por las obras Abraham nuestro padre cuando ofreció a su hijo Isaac sobre el altar? 
 
-Así [también]() la lengua ==es== un miembro pequeño, [y]() *sin embargo,* ==se jacta== de grandes cosas. ¡==Pues(MIRA)== qué gran bosque ==se incendia== con tan pequeño fuego! También la lengua es un fuego, un mundo de iniquidad. La lengua ==está puesta== entre nuestros miembros, la cual contamina todo el cuerpo, es encendida por el infierno e inflama el curso de *nuestra* vida. [Porque]() toda clase de fieras y de aves, de reptiles y de *animales* marinos, ==se puede domar== [y]() ==ha sido domado== por el ser humano, [pero]() ningún hombre ==puede== domar la lengua. *Es* un mal turbulento *y* lleno de veneno mortal.
+==Ya ves== 
 
-Con ella ==bendecimos== a *nuestro* Señor y Padre, [y]() con ella ==maldecimos== a los hombres, que han sido hechos a la imagen de Dios. De la misma boca ==proceden== bendición y maldición. Hermanos míos, esto no ==debe== ser así. ¿Acaso una fuente ==echa== *agua* dulce y amarga por la misma abertura? ¿Acaso, hermanos míos, ==puede== una higuera producir aceitunas, o una vid higos? Tampoco *la fuente de agua* salada *puede* producir agua dulce.
+​	[que]() la fe ==actuaba juntamente== con sus obras, y como resultado de las obras,
 
-¿Quién es sabio y entendido entre ustedes? Que ==muestre== por su buena conducta sus obras en sabia mansedumbre. [Pero]() [si]() ==tienen== celos amargos y ambición personal en su corazón, no ==sean arrogantes== [y]() ==mientan== *así* contra la verdad. Esta sabiduría no ==es== la que viene de lo alto, sino que es terrenal, natural, diabólica. Porque donde hay celos y ambición personal, allí hay confusión y toda cosa mala.
+la fe ==fue perfeccionada==;  
 
-[Pero]() la sabiduría de lo alto+[DE HECHO]()+ ==es== primeramente pura, después pacífica, amable, condescendiente, llena de misericordia y de buenos frutos, sin vacilación, sin hipocresía. [Y]() la semilla cuyo fruto es la justicia ==se siembra== en paz por aquellos que hacen la paz.
+[y]() ==se cumplió== la Escritura que: «
 
-¿De dónde *vienen* las guerras y los conflictos entre ustedes? ¿No vienen de las pasiones que combaten en sus miembros? Ustedes ==codician== [y]() no ==tienen==, *por eso* ==cometen homicidio==. +[Y]()+==Son envidiosos== [y]() no ==pueden== obtener, *por eso* ==combaten== [y]() ==hacen guerra==.+[Y]()+ No ==tienen==, porque no piden. ==Piden== [y]() no ==reciben==, [porque]() ==piden== con malos propósitos, [para]() ==gastarlo== en sus placeres.
+[Y](de) Abraham ==creyó== a Dios
+
+[y]() le ==fue contado== por justicia», 
+
+[y]() ==fue llamado== amigo de Dios. 
+
+Ustedes ==ven== 
+
+​	[que]() el hombre ==es justificado== por *las* obras y no solo por *la* fe.
+
++[PERO]()+ [Y]() de la misma manera,
+
+ ¿no fue la ramera Rahab también ==justificada== por *las* obras cuando recibió a los mensajeros y los envió por otro camino? 
+
+[Porque]() así como el cuerpo sin *el* espíritu ==está== muerto, 
+
+así [también]() la fe sin *las* obras ==está== muerta. 
+
+Hermanos míos, que no ==se hagan== maestros muchos *de ustedes*, sabiendo [que]() 
+
+==recibiremos== un juicio más severo. 
+
+[Porque]() todos ==fallamos== de muchas maneras. 
+
+Si alguien no ==falla== en lo que dice, es un hombre perfecto, capaz también de refrenar todo el cuerpo. 
+
+[Ahora bien](de), 
+
+​	[si]() ==ponemos== el freno en la boca de los caballos para que nos obedezcan,
+
+==dirigimos== [también]() todo su cuerpo.
+
+==Miren== [también]() las naves; aunque son tan grandes e impulsadas por fuertes vientos, 
+
+son, sin embargo, ==dirigidas== mediante un timón muy pequeño por 
+
+​	[donde](jopu) la voluntad del piloto ==quiere==.
+
+Así [también]() la lengua ==es== un miembro pequeño,
+
+ [y]() *sin embargo,* ==se jacta== de grandes cosas. 
+
+¡==Pues(MIRA)== 
+
+qué gran bosque ==se incendia== con tan pequeño fuego! 
+
+También la lengua es un fuego, un mundo de iniquidad.
+
+ La lengua ==está puesta== entre nuestros miembros,
+
+ la cual contamina todo el cuerpo, es encendida por el infierno e inflama el curso de *nuestra* vida. 
+
+[Porque]() toda clase de fieras y de aves, de reptiles y de *animales* marinos, ==se puede domar== 
+
+[y]() ==ha sido domado== por el ser humano, 
+
+[pero]() ningún hombre ==puede== domar la lengua. 
+
+*Es* un mal turbulento *y* lleno de veneno mortal.
+
+Con ella ==bendecimos== a *nuestro* Señor y Padre, 
+
+[y]() con ella ==maldecimos== a los hombres, que han sido hechos a la imagen de Dios. 
+
+De la misma boca ==proceden== bendición y maldición. 
+
+Hermanos míos, 
+
+esto no ==debe== ser así. 
+
+¿Acaso una fuente ==echa== *agua* dulce y amarga por la misma abertura? 
+
+¿Acaso, hermanos míos, ==puede== una higuera producir aceitunas, o una vid higos? 
+
+Tampoco *la fuente de agua* salada *puede* producir agua dulce.
+
+¿Quién es sabio y entendido entre ustedes? 
+
+Que ==muestre== por su buena conducta sus obras en sabia mansedumbre. 
+
+[Pero]() 
+
+​	[si]() ==tienen== celos amargos y ambición personal en su corazón, 
+
+no ==sean arrogantes==
+
+ [y]() ==mientan== *así* contra la verdad. 
+
+Esta sabiduría no ==es== la que viene de lo alto,
+
+ sino que es terrenal, natural, diabólica. 
+
+Porque donde hay celos y ambición personal, allí hay confusión y toda cosa mala.
+
+[Pero]() la sabiduría de lo alto+DE HECHO+ ==es== primeramente pura, 
+
+después pacífica, amable, condescendiente, llena de misericordia y de buenos frutos, sin vacilación, sin hipocresía. 
+
+[Y](de) la semilla cuyo fruto es la justicia ==se siembra== en paz por aquellos que hacen la paz.
+
+¿De dónde *vienen* las guerras y los conflictos entre ustedes? 
+
+¿No vienen de las pasiones que combaten en sus miembros? 
+
+Ustedes ==codician== 
+
+[y]() no ==tienen==, 
+
+*por eso* ==cometen homicidio==.
+
+ +[Y]()+==Son envidiosos== 
+
+[y]() no ==pueden== obtener, 
+
+*por eso* ==combaten== 
+
+[y]() ==hacen guerra==.
+
++[Y]()+ No ==tienen==, porque no piden.
+
+ ==Piden== 
+
+[y]() no ==reciben==, 
+
+​	[porque](dioti) ==piden== con malos propósitos, 
+
+​		[para+QUE+]() ==gastarlo== en sus placeres.
+
+
 
 ¡*Oh almas* adúlteras! ¿No ==saben== ustedes [que]() la amistad del mundo ==es== enemistad hacia Dios? [Por tanto](), +[SI]()+ el que ==quiere== ser amigo del mundo, ==se constituye== enemigo de Dios. ¿[O]() ==piensan== [que]() la Escritura ==dice== en vano: «Dios celosamente ==anhela== el Espíritu que ==ha hecho== morar en nosotros.»? [Pero]() Él ==da== mayor gracia. [Por eso]() ==dice==: «Dios ==resiste== a los soberbios, [pero]() ==da== gracia a los humildes». [Por tanto](), ==sométanse== a Dios. +[PERO]()+==Resistan==, pues, al diablo [y]() ==huirá== de ustedes.
 
