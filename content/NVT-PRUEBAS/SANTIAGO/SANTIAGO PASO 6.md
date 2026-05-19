@@ -388,30 +388,242 @@ Ustedes ==codician==
 
 ​		[para+QUE+]() ==gastarlo== en sus placeres.
 
+¡*Oh almas* adúlteras! 
+
+¿No ==saben== ustedes 
+
+​	[que]() la amistad del mundo ==es== enemistad hacia Dios? 
+
+[Por tanto](oun), 
+
+​	+[SI]()+ el que ==quiere== ser amigo del mundo,
+
+ ==se constituye== enemigo de Dios.
+
+ ¿[O]() ==piensan== 
+
+​	[que]() la Escritura ==dice== en vano: 
+
+«Dios celosamente ==anhela== el Espíritu
+
+ que ==ha hecho== morar en nosotros.»? 
+
+[Pero]() Él ==da== mayor gracia. 
+
+[Por eso](dio) ==dice==: 
+
+«Dios ==resiste== a los soberbios,
+
+ [pero]() ==da== gracia a los humildes». 
+
+[Por tanto](oun), ==sométanse== a Dios. 
+
++[PERO]()+==Resistan==, (pues), al diablo 
+
+[y]() ==huirá== de ustedes.
+
+==Acérquense== a Dios,
+
+ [y]() Él ==se acercará== a ustedes.
+
+ ==Limpien== sus manos, pecadores; 
+
+[y]() ustedes de doble ánimo, ==purifiquen== sus corazones. 
+
+==Aflíjanse==,
+
+ ==laméntense== 
+
+[y]() ==lloren==. 
+
+Que su risa ==se convierta== en lamento y su gozo en tristeza. 
+
+==Humíllense== en la presencia del Señor 
+
+[y]() Él los ==exaltará==.
+
+Hermanos, no ==hablen mal== los unos de los otros. 
+
+El que habla mal de un hermano o juzga a su hermano
+
+, ==habla mal== de la ley 
+
+[y]() ==juzga== a la ley. 
+
+[Pero]() 
+
+​	[si]() tú ==juzgas== a la ley, 
+
+no ==eres== cumplidor de la ley, sino juez *de ella.*
+
+ Solo ==hay== un Legislador y Juez, que es poderoso para salvar y para destruir.
+
+ [Pero]() tú, ¿quién ==eres== que juzgas a tu prójimo?
+
+==Oigan== ahora, ustedes que dicen:
+
+«Hoy o mañana ==iremos== a tal o cual ciudad 
+
+[y]() ==pasaremos== allá un año, 
+
++[Y]()+==haremos negocio== 
+
+[y]() ==tendremos ganancia==». 
+
+Sin embargo, ustedes no ==saben== cómo será su vida mañana. 
+
++[POR QUE]()+*Solo* ==son== un vapor que aparece por un poco de tiempo y luego se desvanece.
+
+Más bien, *debieran* decir:
+
+​	 [Si]() el Señor ==quiere==,
+
++TAMBIEN+ ==viviremos== 
+
+[y]() ==haremos== esto o aquello.
+
+ [Pero]() ahora ==se jactan== en su arrogancia. 
+
+Toda jactancia semejante ==es== mala.
+
++[POR LO TANTO](oun)+A aquel, pues, que sabe hacer *lo* bueno y no lo hace,
+
+ le ==es== pecado.
+
+¡==Oigan== ahora, ricos! 
+
+==Lloren== y aúllen por las miserias que vienen sobre ustedes. 
+
+Sus riquezas se ==han podrido== 
+
+[y]() sus ropas ==están comidas== de polilla. 
+
+Su oro y su plata ==se han oxidado==, 
+
++[Y]()+su herrumbre ==será== un testigo contra ustedes
+
+ [y]() ==consumirá== su carne como fuego. 
+
+Es en los últimos días que ==han acumulado tesoros==. 
+
+==Miren==,
+
+ el jornal de los obreros que han segado sus campos y que ha sido retenido por ustedes,
+
+ ==clama== *contra ustedes.* 
+
+El clamor de los segadores ==ha llegado== a los oídos del Señor de los ejércitos.
+
+==Han vivido lujosamente== sobre la tierra, 
+
+[y]() ==*han* llevado una vida de placer== desenfrenado.
+
+ ==Han engordado== sus corazones en el día de la matanza. 
+
+==Han condenado== *y* 
+
+==dado muerte== al justo. 
+
+Él no les ==hace resistencia==.
+
+[Por tanto](oun), hermanos, ==sean pacientes== hasta la venida del Señor.
+
+ ==Miren== *cómo* 
+
+el labrador ==espera== el fruto precioso de la tierra, 
+
+siendo paciente en ello hasta que ==recibe== *la lluvia* temprana y *la* tardía. 
+
+(Sean) [también]() ustedes ==+SEAN+pacientes==. 
+
+==Fortalezcan== sus corazones, 
+
+[porque](joti) la venida del Señor ==está cerca==. 
+
+Hermanos, no ==se quejen== unos contra otros, 
+
+​	[para que]() no ==sean juzgados==. 
+
+==Ya(MIRA)== 
+
+el Juez ==está== a las puertas. 
+
+Hermanos, ==tomen== como ejemplo de paciencia y aflicción a los profetas 
+
+que ==hablaron== en el nombre del Señor. 
+
+==Miren== *que* 
+
+==tenemos por bienaventurados== a los que sufrieron.
+
+ ==Han oído== de la paciencia de Job, 
+
+[y]() ==han visto== el resultado del proceder del Señor,
+
+[que]() el Señor ==es== muy compasivo y misericordioso.
 
 
-¡*Oh almas* adúlteras! ¿No ==saben== ustedes [que]() la amistad del mundo ==es== enemistad hacia Dios? [Por tanto](), +[SI]()+ el que ==quiere== ser amigo del mundo, ==se constituye== enemigo de Dios. ¿[O]() ==piensan== [que]() la Escritura ==dice== en vano: «Dios celosamente ==anhela== el Espíritu que ==ha hecho== morar en nosotros.»? [Pero]() Él ==da== mayor gracia. [Por eso]() ==dice==: «Dios ==resiste== a los soberbios, [pero]() ==da== gracia a los humildes». [Por tanto](), ==sométanse== a Dios. +[PERO]()+==Resistan==, pues, al diablo [y]() ==huirá== de ustedes.
 
-==Acérquense== a Dios, [y]() Él ==se acercará== a ustedes. ==Limpien== sus manos, pecadores; [y]() ustedes de doble ánimo, ==purifiquen== sus corazones. ==Aflíjanse==, ==laméntense== [y]() ==lloren==. Que su risa ==se convierta== en lamento y su gozo en tristeza. ==Humíllense== en la presencia del Señor [y]() Él los ==exaltará==.
+[Y](de) sobre todo, hermanos míos, no ==juren==, ni por el cielo, ni por la tierra, 
 
-Hermanos, no ==hablen mal== los unos de los otros. El que habla mal de un hermano o juzga a su hermano, ==habla mal== de la ley [y]() ==juzga== a la ley. [Pero]() [si]() tú ==juzgas== a la ley, no ==eres== cumplidor de la ley, sino juez *de ella.* Solo ==hay== un Legislador y Juez, que es poderoso para salvar y para destruir. [Pero]() tú, ¿quién ==eres== que juzgas a tu prójimo?
+[ni]() +==SEA==+con ningún otro juramento. 
 
-==Oigan== ahora, ustedes que dicen: «Hoy [o]() mañana ==iremos== a tal o cual ciudad [y]() ==pasaremos== allá un año, +[Y]()+==haremos negocio== [y]() ==tendremos ganancia==». Sin embargo, ustedes no ==saben== cómo será su vida mañana. +[POR QUE]()+*Solo* ==son== un vapor que aparece por un poco de tiempo y luego se desvanece.
+[Antes bien](de), sea el sí de ustedes, sí, y su no, no, 
 
-Más bien, *debieran* decir: [Si]() el Señor ==quiere==,+[TAMBIEN]()+ ==viviremos== [y]() ==haremos== esto o aquello. [Pero]() ahora ==se jactan== en su arrogancia. Toda jactancia semejante ==es== mala.+[POR LO TANTO]()+A aquel, pues, que sabe hacer *lo* bueno y no lo hace, le ==es== pecado.
+​	[para que]() no ==caigan== bajo juicio.
 
-¡==Oigan== ahora, ricos! ==Lloren== y aúllen por las miserias que vienen sobre ustedes. Sus riquezas se ==han podrido== [y]() sus ropas ==están comidas== de polilla. Su oro [y]() su plata ==se han oxidado==, +[Y]()+su herrumbre ==será== un testigo contra ustedes [y]() ==consumirá== su carne como fuego. Es en los últimos días que ==han acumulado tesoros==. ==Miren==, el jornal de los obreros que han segado sus campos [y]() que ha sido retenido por ustedes, ==clama== *contra ustedes.* El clamor de los segadores ==ha llegado== a los oídos del Señor de los ejércitos.
+¿==Sufre== alguien entre ustedes? 
 
-==Han vivido lujosamente== sobre la tierra, [y]() ==*han* llevado una vida de placer== desenfrenado. ==Han engordado== sus corazones en el día de la matanza. ==Han condenado== *y* ==dado muerte== al justo. Él no les ==hace resistencia==.
+Que ==haga oración==. 
 
-[Por tanto](), hermanos, ==sean pacientes== hasta la venida del Señor. ==Miren== *cómo* el labrador ==espera== el fruto precioso de la tierra, siendo paciente en ello hasta que ==recibe== *la lluvia* temprana y *la* tardía. Sean [también]() ustedes ==pacientes==. ==Fortalezcan== sus corazones, [porque]() la venida del Señor ==está cerca==. Hermanos, no ==se quejen== unos contra otros, [para que]() no ==sean juzgados==. ==Ya== el Juez ==está== a las puertas. Hermanos, ==tomen== como ejemplo de paciencia [y]() aflicción a los profetas que ==hablaron== en el nombre del Señor. ==Miren== *que* ==tenemos por bienaventurados== a los que sufrieron. ==Han oído== de la paciencia de Job, [y]() ==han visto== el resultado del proceder del Señor, [que]() el Señor ==es== muy compasivo y misericordioso.
+¿Está alguien ==alegre==? 
 
-[Y]() sobre todo, hermanos míos, no ==juren==, ni por el cielo, ni por la tierra, [ni]() +==SEA==+con ningún otro juramento. [Antes bien](), sea el sí de ustedes, sí, y su no, no, [para que]() no ==caigan== bajo juicio.
+Que ==cante alabanzas==. 
 
-¿==Sufre== alguien entre ustedes? Que ==haga oración==. ¿Está alguien ==alegre==? Que ==cante alabanzas==. ¿Está alguien entre ustedes ==enfermo==? Que ==llame== a los ancianos de la iglesia [y]() que ellos ==oren== por él, ungiéndolo con aceite en el nombre del Señor. +[Y]()+La oración de fe ==restaurará== al enfermo, [y]() el Señor lo ==levantará==. [Si]() +==ESTA SIENDO==+ha cometido pecados le ==serán perdonados==.
+¿Está alguien entre ustedes ==enfermo==? 
 
-[Por tanto](), ==confiésense== sus pecados unos a otros, [y]() ==oren== unos por otros [para que]() ==sean sanados==. La oración eficaz del justo ==puede lograr mucho==. Elías ==era== un hombre de pasiones semejantes a las nuestras, [y]() ==oró== fervientemente para que no lloviera, [y]() no ==llovió== sobre la tierra por tres años y seis meses.+[Y]()+ ==Oró== de nuevo, [y]() el cielo ==dio== lluvia [y]() la tierra ==produjo== su fruto.
+Que ==llame== a los ancianos de la iglesia 
 
-Hermanos míos, [si]() alguien de entre ustedes ==se extravía== de la verdad [y]() alguien le ==hace volver==, ==sepa== [que]() el que hace volver a un pecador del error de su camino ==salvará== su alma de muerte, [y]() ==cubrirá== multitud de pecados. 
+[y]() que ellos ==oren== por él, ungiéndolo con aceite en el nombre del Señor. 
+
++[Y]()+La oración de fe ==restaurará== al enfermo, 
+
+[y]() el Señor lo ==levantará==.
+
+​	 [Si](kan) +==ESTA SIENDO==+ha cometido pecados 
+
+le ==serán perdonados==.
+
+[Por tanto](oun), ==confiésense== sus pecados unos a otros,
+
+ [y]() ==oren== unos por otros 
+
+​	[para que](jopos) ==sean sanados==. 
+
+La oración eficaz del justo ==puede lograr mucho==. 
+
+Elías ==era== un hombre de pasiones semejantes a las nuestras,
+
+ [y]() ==oró== fervientemente para que no lloviera,
+
+ [y]() no ==llovió== sobre la tierra por tres años y seis meses.
+
++[Y]()+ ==Oró== de nuevo, 
+
+[y]() el cielo ==dio== lluvia 
+
+[y]() la tierra ==produjo== su fruto.
+
+Hermanos míos,
+
+​	 [si]() alguien de entre ustedes ==se extravía== de la verdad 
+
+​	[y]() alguien le ==hace volver==, 
+
+==sepa== 
+
+​	[que]() el que hace volver a un pecador del error de su camino ==salvará== su alma de muerte, 
+
+​	[y]() ==cubrirá== multitud de pecados. 
 
  
