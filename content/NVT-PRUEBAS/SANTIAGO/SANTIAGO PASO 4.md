@@ -16,13 +16,19 @@ Bienaventurado el hombre que ==persevera== bajo la prueba, [porque]() una vez qu
 
 
 
-Amados hermanos míos, no ==se engañen==. Toda buena dádiva [y]() todo don perfecto ==viene== de lo alto, desciende del Padre de las luces, con el cual no ==hay== cambio ni sombra de variación. En el ejercicio de Su voluntad, Él nos ==hizo nacer== por la palabra de verdad, para que fuéramos las primicias de sus criaturas.
 
-Esto lo ==saben==, mis amados hermanos. [Pero que]() cada uno ==sea== pronto para oír, tardo para hablar, tardo para la ira; [pues]() la ira del hombre no ==obra== la justicia de Dios. [Por lo cual](), desechando toda inmundicia y *todo* resto de malicia, ==reciban== ustedes con humildad la palabra implantada, que es poderosa para salvar sus almas.
 
-+[PERO]()+==Sean== hacedores de la palabra y no solamente oidores que se engañan a sí mismos. [Porque]() [si]() alguien ==es== oidor de la palabra, [y]() no hacedor, ==es semejante== a un hombre que mira su rostro natural en un espejo; [pues]() después de ==mirarse== a sí mismo [e]() ==irse==,+[Y]()+ inmediatamente ==se olvida== de qué clase de persona ==es==. [Pero]() el que mira atentamente a la ley perfecta, la *ley* de la libertad, y permanece *en ella,* no habiéndose vuelto un oidor olvidadizo [sino]() un hacedor eficaz, este ==será== bienaventurado en lo que hace.
+Amados hermanos míos, no ==se engañen==. Toda buena dádiva y todo don perfecto ==viene== de lo alto, desciende del Padre de las luces, [con el cual](JO) no ==hay== cambio ni sombra de variación. En el ejercicio de Su voluntad, Él nos ==hizo nacer== por la palabra de verdad, para que fuéramos las primicias de sus criaturas.
 
-[Si]() alguien ==se cree== religioso, pero no refrena su lengua, sino que engaña a su *propio* corazón, la religión del tal es vana. La religión pura y sin mancha delante de *nuestro* Dios [y]() Padre ==es== esta: visitar a los huérfanos y a las viudas en sus aflicciones, *y* guardarse sin mancha del mundo.
+Esto lo ==saben==, mis amados hermanos. [Pero que](de) cada uno ==sea== pronto para oír, tardo para hablar, tardo para la ira; [pues]() la ira del hombre no ==obra== la justicia de Dios. Por lo cual, desechando toda inmundicia y *todo* resto de malicia, ==reciban== ustedes con humildad la palabra implantada, que es poderosa para salvar sus almas.
+
++[PERO]()+==Sean== hacedores de la palabra y no solamente oidores que se engañan a sí mismos. [Porque](joti) [si]() alguien ==es== oidor de la palabra, y no hacedor, ==es semejante== a un hombre que mira su rostro natural en un espejo; [pues]() después de ==mirarse== a sí mismo [e]() ==irse==,+[Y]()+ inmediatamente ==se olvida== de qué clase de persona ==es==. Pero el que mira atentamente a la ley perfecta, la *ley* de la libertad, y permanece *en ella,* no habiéndose vuelto un oidor olvidadizo sino un hacedor eficaz, este ==será== bienaventurado en lo que hace.
+
+[Si]() alguien ==se cree== religioso, pero no refrena su lengua, sino que engaña a su *propio* corazón, la religión del tal es vana. La religión pura y sin mancha delante de *nuestro* Dios y Padre ==es== esta: visitar a los huérfanos y a las viudas en sus aflicciones, *y* guardarse sin mancha del mundo.
+
+
+
+
 
 Hermanos míos, no ==tengan== su fe en nuestro glorioso Señor Jesucristo con *una actitud* de favoritismo. [Porque]() [si]() en su congregación ==entra== un hombre con anillo de oro y vestido de ropa lujosa, [y]() [también]() ==entra== un pobre con ropa sucia, [y]() ==dan atención especial== al que lleva la ropa lujosa, [y]() ==dicen==: «==Siéntese== aquí, en un buen lugar»; [y]() al pobre ==dicen==: «Tú ==estate allí de pie==, [o]() ==siéntate== junto a mi estrado»; ¿acaso no ==han hecho distinciones== entre ustedes mismos, [y]() ==han venido a ser== jueces con malos pensamientos?
 
