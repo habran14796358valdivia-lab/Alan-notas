@@ -12,7 +12,7 @@ A las doce tribus que están en la dispersión: Saludos.
 
 [Pero]() que el hermano de condición humilde ==se gloríe== en su alta posición, y el rico en su humillación, [pues](joti) él ==pasará== como la flor de la hierba. [Porque]() el sol ==sale== con calor abrasador [y]() ==seca== la hierba, [y]() su flor ==se cae== [y]() la hermosura de su apariencia ==perece==. [Así también](jutos kai) ==se marchitará== el rico en medio de sus empresas.
 
-Bienaventurado el hombre que ==persevera== bajo la prueba, [porque]() una vez que ha sido aprobado, ==recibirá== la corona de la vida [que](jon) *el Señor* ==ha prometido== a los que lo aman. (Que) nadie ==diga== cuando es tentado +[QUE](joti)+: «Soy ==tentado== por Dios». [Porque]() Dios no puede ==ser== tentado por el mal [y]() Él mismo no ==tienta== a nadie. [Sino que](de) cada uno ==es tentado== cuando es llevado y seducido por su propia pasión. Después, cuando la pasión ha concebido, ==da a luz== el pecado; [y](de) cuando el pecado es consumado, ==engendra== la muerte.
+Bienaventurado el hombre que ==persevera== bajo la prueba, [porque]() una vez que ha sido aprobado, ==recibirá== la corona de la vida [que](jon) *el Señor* ==ha prometido== a los que lo aman. (Que) nadie ==diga== cuando es tentado +[QUE](joti)+: «Soy ==tentado== por Dios». [Porque]() Dios no puede ==ser== tentado por el mal [y]() Él mismo no ==tienta== a nadie. [Sino que](de) cada uno ==es tentado== cuando es llevado y seducido por su propia pasión. [Después](eita), cuando la pasión ha concebido, ==da a luz== el pecado; [y](de) cuando el pecado es consumado, ==engendra== la muerte.
 
 
 
@@ -140,6 +140,6 @@ Bienaventurado el hombre que ==persevera== bajo la prueba,
 
 ​	[Sino que](de) cada uno ==es tentado== cuando es llevado y seducido por su propia pasión. 
 
-Después, cuando la pasión ha concebido, ==da a luz== el pecado; 
+​	[Después](eita), cuando la pasión ha concebido, ==da a luz== el pecado; 
 
-[y](de) cuando el pecado es consumado, ==engendra== la muerte.
+[	y](de) cuando el pecado es consumado, ==engendra== la muerte.
