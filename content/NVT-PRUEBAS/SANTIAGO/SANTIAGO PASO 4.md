@@ -14,6 +14,8 @@ A las doce tribus que están en la dispersión: Saludos.
 
 Bienaventurado el hombre que ==persevera== bajo la prueba, [porque]() una vez que ha sido aprobado, ==recibirá== la corona de la vida [que](jon) *el Señor* ==ha prometido== a los que lo aman. (Que) nadie ==diga== cuando es tentado +[QUE](joti)+: «Soy ==tentado== por Dios». [Porque]() Dios no puede ==ser== tentado por el mal [y]() Él mismo no ==tienta== a nadie. [Sino que](de) cada uno ==es tentado== cuando es llevado y seducido por su propia pasión. Después, cuando la pasión ha concebido, ==da a luz== el pecado; [y](de) cuando el pecado es consumado, ==engendra== la muerte.
 
+
+
 Amados hermanos míos, no ==se engañen==. Toda buena dádiva [y]() todo don perfecto ==viene== de lo alto, desciende del Padre de las luces, con el cual no ==hay== cambio ni sombra de variación. En el ejercicio de Su voluntad, Él nos ==hizo nacer== por la palabra de verdad, para que fuéramos las primicias de sus criaturas.
 
 Esto lo ==saben==, mis amados hermanos. [Pero que]() cada uno ==sea== pronto para oír, tardo para hablar, tardo para la ira; [pues]() la ira del hombre no ==obra== la justicia de Dios. [Por lo cual](), desechando toda inmundicia y *todo* resto de malicia, ==reciban== ustedes con humildad la palabra implantada, que es poderosa para salvar sus almas.
@@ -72,3 +74,72 @@ Hermanos míos, [si]() alguien de entre ustedes ==se extravía== de la verdad [y
 
 
 
+---
+
+TRONCO
+
+---
+
+Santiago, siervo de Dios y del Señor Jesucristo: 
+
+A las doce tribus que están en la dispersión: Saludos.
+
+==Tengan== por sumo gozo, hermanos míos, 
+
+​	[cuando]() ==se hallen== en diversas pruebas, sabiendo que 
+
+la prueba de su fe ==produce== paciencia, 
+
+[y que](de) la paciencia ==tenga== *su* perfecto resultado, 
+
+​	[para que]() ==sean== perfectos y completos, sin que nada *les* falte.
+
+[Y](de) 
+
+​	[si]() a alguno de ustedes le ==falta== sabiduría, 
+
+que se *la* ==pida== a Dios, quien da a todos abundantemente y sin reproche, 
+
+[y]() le ==será dada==. 
+
+[Pero que](de) ==pida== con fe, sin dudar. 
+
+[Porque]() el que duda ==es semejante== a la ola del mar, impulsada por el viento y echada de una parte a otra. 
+
++[PORQUE]()+ No ==piense==, (pues), ese hombre, 
+
+​	[que]() ==recibirá== cosa alguna del Señor, *siendo* hombre de doble ánimo, inestable en todos sus caminos.
+
+[Pero]() que el hermano de condición humilde ==se gloríe== en su alta posición, y el rico en su humillación, 
+
+[pues](joti) él ==pasará== como la flor de la hierba. 
+
+[Porque]() el sol ==sale== con calor abrasador 
+
+[y]() ==seca== la hierba, 
+
+[y]() su flor ==se cae== 
+
+[y]() la hermosura de su apariencia ==perece==. 
+
+[Así también](jutos kai) ==se marchitará== el rico en medio de sus empresas.
+
+Bienaventurado el hombre que ==persevera== bajo la prueba, 
+
+[porque]() una vez que ha sido aprobado, ==recibirá== la corona de la vida 
+
+​	[que](jon) *el Señor* ==ha prometido== a los que lo aman. 
+
+(Que) nadie ==diga== cuando es tentado 
+
+​	+[QUE](joti)+: «Soy ==tentado== por Dios».
+
+​	[Porque]() Dios no puede ==ser== tentado por el mal 
+
+​	[y]() Él mismo no ==tienta== a nadie.
+
+​	[Sino que](de) cada uno ==es tentado== cuando es llevado y seducido por su propia pasión. 
+
+Después, cuando la pasión ha concebido, ==da a luz== el pecado; 
+
+[y](de) cuando el pecado es consumado, ==engendra== la muerte.
