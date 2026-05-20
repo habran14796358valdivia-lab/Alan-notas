@@ -2,7 +2,7 @@
 
 ---
 
-Santiago, siervo de Dios y del Señor Jesucristo:
+Santiago, siervo de Dios y del Señor Jesucristo: 
 
 A las doce tribus que están en la dispersión: Saludos.
 
