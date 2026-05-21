@@ -52,7 +52,7 @@ Con ella ==bendecimos== a *nuestro* Señor y Padre, [y]() con ella ==maldecimos=
 
 Hermanos, no ==hablen mal== los unos de los otros. El que habla mal de un hermano o juzga a su hermano, ==habla mal== de la ley [y]() ==juzga== a la ley. [Pero]() [si]() tú ==juzgas== a la ley, no ==eres== cumplidor de la ley, sino juez *de ella.* Solo ==hay== un Legislador y Juez, que es poderoso para salvar y para destruir. [Pero]() tú, ¿quién ==eres== que juzgas a tu prójimo?
 
-==Oigan== ahora, ustedes que dicen: «Hoy [o]() mañana ==iremos== a tal o cual ciudad [y]() ==pasaremos== allá un año, +[Y]()+==haremos negocio== [y]() ==tendremos ganancia==». Sin embargo, ustedes no ==saben== cómo será su vida mañana. +[POR QUE]()+*Solo* ==son== un vapor que aparece por un poco de tiempo y luego se desvanece.
+==Oigan== ahora, ustedes que dicen: «Hoy o mañana ==iremos== a tal o cual ciudad [y]() ==pasaremos== allá un año, +[Y]()+==haremos negocio== [y]() ==tendremos ganancia==». Sin embargo, ustedes no ==saben== cómo será su vida mañana. +[POR QUE]()+*Solo* ==son== un vapor que aparece por un poco de tiempo y luego se desvanece.
 
 Más bien, *debieran* decir: [Si]() el Señor ==quiere==,+TAMBIEN+ ==viviremos== [y]() ==haremos== esto o aquello. [Pero]() ahora ==se jactan== en su arrogancia. Toda jactancia semejante ==es== mala.+[POR LO TANTO]()+A aquel, pues, que sabe hacer *lo* bueno y no lo hace, le ==es== pecado.
 
@@ -60,11 +60,15 @@ Más bien, *debieran* decir: [Si]() el Señor ==quiere==,+TAMBIEN+ ==viviremos==
 
 
 
-¡==Oigan== ahora, ricos! ==Lloren== y aúllen por las miserias que vienen sobre ustedes. Sus riquezas se ==han podrido== [y]() sus ropas ==están comidas== de polilla. Su oro [y]() su plata ==se han oxidado==, +[Y]()+su herrumbre ==será== un testigo contra ustedes [y]() ==consumirá== su carne como fuego. Es en los últimos días que ==han acumulado tesoros==. ==Miren==, el jornal de los obreros que han segado sus campos [y]() que ha sido retenido por ustedes, ==clama== *contra ustedes.* El clamor de los segadores ==ha llegado== a los oídos del Señor de los ejércitos.
+¡==Oigan== ahora, ricos! ==Lloren== y aúllen por las miserias que vienen sobre ustedes. Sus riquezas se ==han podrido== [y]() sus ropas ==están comidas== de polilla. Su oro y su plata ==se han oxidado==, +[Y]()+su herrumbre ==será== un testigo contra ustedes [y]() ==consumirá== su carne como fuego. Es en los últimos días que ==han acumulado tesoros==. ==Miren==, el jornal de los obreros que han segado sus campos y que ha sido retenido por ustedes, ==clama== *contra ustedes.* +[Y]()+ El clamor de los segadores ==ha llegado== a los oídos del Señor de los ejércitos.
 
 ==Han vivido lujosamente== sobre la tierra, [y]() ==*han* llevado una vida de placer== desenfrenado. ==Han engordado== sus corazones en el día de la matanza. ==Han condenado== *y* ==dado muerte== al justo. Él no les ==hace resistencia==.
 
-[Por tanto](), hermanos, ==sean pacientes== hasta la venida del Señor. ==Miren== *cómo* el labrador ==espera== el fruto precioso de la tierra, siendo paciente en ello hasta que ==recibe== *la lluvia* temprana y *la* tardía. Sean [también]() ustedes ==pacientes==. ==Fortalezcan== sus corazones, [porque]() la venida del Señor ==está cerca==. Hermanos, no ==se quejen== unos contra otros, [para que]() no ==sean juzgados==. ==Ya== el Juez ==está== a las puertas. Hermanos, ==tomen== como ejemplo de paciencia [y]() aflicción a los profetas que ==hablaron== en el nombre del Señor. ==Miren== *que* ==tenemos por bienaventurados== a los que sufrieron. ==Han oído== de la paciencia de Job, [y]() ==han visto== el resultado del proceder del Señor, [que]() el Señor ==es== muy compasivo y misericordioso.
+[Por tanto](oun), hermanos, ==sean pacientes== hasta la venida del Señor. ==Miren== *cómo* el labrador ==espera== el fruto precioso de la tierra, siendo paciente en ello [hasta que](jeos) ==recibe== *la lluvia* temprana y *la* tardía. Sean (también) ustedes ==pacientes==. +[Y]()+ ==Fortalezcan== sus corazones, [porque](joti) la venida del Señor ==está cerca==. Hermanos, no ==se quejen== unos contra otros, [para que]() no ==sean juzgados==. ==Ya== el Juez ==está== a las puertas. Hermanos, ==tomen== como ejemplo de paciencia [y]() aflicción a los profetas que ==hablaron== en el nombre del Señor. ==Miren== *que* ==tenemos por bienaventurados== a los que sufrieron. ==Han oído== de la paciencia de Job, [y]() ==han visto== el resultado del proceder del Señor, [que]() el Señor ==es== muy compasivo y misericordioso.
+
+
+
+
 
 [Y]() sobre todo, hermanos míos, no ==juren==, ni por el cielo, ni por la tierra, [ni]() +==SEA==+con ningún otro juramento. [Antes bien](), sea el sí de ustedes, sí, y su no, no, [para que]() no ==caigan== bajo juicio.
 
