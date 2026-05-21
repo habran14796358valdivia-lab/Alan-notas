@@ -22,10 +22,6 @@ Esto lo ==saben==, mis amados hermanos. [Pero que](de) cada uno ==sea== pronto p
 
 Si alguien ==se cree== religioso, pero no refrena su lengua, sino que engaña a su *propio* corazón, la religión del tal es vana. La religión pura y sin mancha delante de *nuestro* Dios y Padre ==es== esta: visitar a los huérfanos y a las viudas en sus aflicciones, *y* guardarse sin mancha del mundo.
 
-
-
-
-
 Hermanos míos, no ==tengan== su fe en nuestro glorioso Señor Jesucristo con *una actitud* de favoritismo. [Porque]() [si]() en su congregación ==entra== un hombre con anillo de oro y vestido de ropa lujosa, [y](de) también ==entra== un pobre con ropa sucia, [y]() ==dan atención especial== al que lleva la ropa lujosa, [y]() ==dicen==: «==Siéntese== aquí, en un buen lugar»; [y]() al pobre ==dicen==: «Tú ==estate allí de pie==, [o]() ==siéntate== junto a mi estrado»; ¿acaso no ==han hecho distinciones== entre ustedes mismos, [y]() ==han venido a ser== jueces con malos pensamientos?
 
 Hermanos míos amados, ==escuchen==: ¿No ==escogió== Dios a los pobres de este mundo *para ser* ricos en fe y herederos del reino [que](jes) Él ==prometió== a los que lo aman? [Pero]() ustedes ==han despreciado== al pobre. ¿No son los ricos los que los ==oprimen== [y]() personalmente los ==arrastran== a los tribunales? ¿No ==blasfeman== ellos el buen nombre por el cual ustedes han sido llamados? [Si]() en verdad ustedes ==cumplen== la ley real conforme a la Escritura: «==Amarás== a tu prójimo como a ti mismo», bien ==hacen==. [Pero]() [si]() ==muestran favoritismo==, ==cometen== pecado *y* son hallados culpables por la ley como transgresores.
@@ -36,11 +32,15 @@ Hermanos míos amados, ==escuchen==: ¿No ==escogió== Dios a los pobres de este
 
 
 
-¿De qué sirve, hermanos míos, [si]() alguien ==dice== que tiene fe, [pero]() no ==tiene== obras? ¿Acaso ==puede== esa fe salvarlo? [Si]() un hermano [o]() una hermana no ==tienen== ropa [y]() carecen del sustento diario, [y]() uno de ustedes les ==dice==: «==Vayan== en paz, ==caliéntense== [y]() ==sáciense==», [pero]() no les ==dan== lo necesario para *su* cuerpo, ¿de qué sirve? [Así también]() la fe por sí misma, [si]() no ==tiene== obras, ==está== muerta. [Pero]() alguien ==dirá==: «Tú ==tienes== fe y yo ==tengo== obras. ==Muéstrame== tu fe sin las obras, y yo te ==mostraré== mi fe por mis obras». Tú ==crees== [que]() Dios ==es== uno. ==Haces== bien; [también]() los demonios ==creen==, [y]() ==tiemblan==. [Pero](), ¿==estás dispuesto== a admitir, oh hombre vano, [que]() la fe sin obras ==es== estéril?
+¿De qué sirve, hermanos míos, [si]() alguien ==dice== que tiene fe, [pero]() no ==tiene== obras? ¿Acaso ==puede== esa fe salvarlo? [Si]() un hermano o una hermana no ==tienen== ropa y carecen del sustento diario, [y](de) uno de ustedes les ==dice==: «==Vayan== en paz, ==caliéntense== [y]() ==sáciense==», [pero]() no les ==dan== lo necesario para *su* cuerpo, ¿de qué sirve? Así también la fe por sí misma, [si]() no ==tiene== obras, ==está== muerta. [Pero]() alguien ==dirá==: «Tú ==tienes== fe y yo ==tengo== obras. ==Muéstrame== tu fe sin las obras, y yo te ==mostraré== mi fe por mis obras». Tú ==crees== [que](joti) Dios ==es== uno. ==Haces== bien; [también](kai) los demonios ==creen==, [y]() ==tiemblan==. [Pero](), ¿==estás dispuesto== a admitir, oh hombre vano, [que](joti) la fe sin obras ==es== estéril?
 
-¿No ==fue justificado== por las obras Abraham nuestro padre cuando ofreció a su hijo Isaac sobre el altar? ==Ya ves== [que]() la fe ==actuaba juntamente== con sus obras, [y]() como resultado de las obras,la fe ==fue perfeccionada==;  [y]() ==se cumplió== la Escritura que: «[Y]() Abraham ==creyó== a Dios [y]() le ==fue contado== por justicia», [y]() ==fue llamado== amigo de Dios. Ustedes ==ven== [que]() el hombre ==es justificado== por *las* obras y no solo por *la* fe.
+¿No ==fue justificado== por las obras Abraham nuestro padre cuando ofreció a su hijo Isaac sobre el altar? ==Ya ves== [que]() la fe ==actuaba juntamente== con sus obras, y como resultado de las obras,la fe ==fue perfeccionada==;  [y]() ==se cumplió== la Escritura que: «[Y](de) Abraham ==creyó== a Dios [y]() le ==fue contado== por justicia», [y]() ==fue llamado== amigo de Dios. Ustedes ==ven== [que]() el hombre ==es justificado== por *las* obras y no solo por *la* fe.
 
-+[PERO]()+ [Y]() de la misma manera, ¿no fue la ramera Rahab también ==justificada== por *las* obras cuando recibió a los mensajeros y los envió por otro camino? [Porque]() así como el cuerpo sin *el* espíritu ==está== muerto, así [también]() la fe sin *las* obras ==está== muerta. 
++PERO+ Y de la misma manera, ¿no fue la ramera Rahab también ==justificada== por *las* obras cuando recibió a los mensajeros y los envió por otro camino? [Porque]() [así como](josper) el cuerpo sin *el* espíritu ==está== muerto, [así](jutos) también la fe sin *las* obras ==está== muerta. 
+
+
+
+
 
 Hermanos míos, que no ==se hagan== maestros muchos *de ustedes*, sabiendo [que]() ==recibiremos== un juicio más severo. [Porque]() todos ==fallamos== de muchas maneras. [Si]() alguien no ==falla== en lo que dice, es un hombre perfecto, capaz también de refrenar todo el cuerpo. [Ahora bien](), [si]() ==ponemos== el freno en la boca de los caballos para que nos obedezcan, ==dirigimos== [también]() todo su cuerpo. ==Miren== [también]() las naves; aunque son tan grandes e impulsadas por fuertes vientos, son, sin embargo, ==dirigidas== mediante un timón muy pequeño por donde la voluntad del piloto ==quiere==.
 
