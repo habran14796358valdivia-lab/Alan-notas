@@ -34,10 +34,6 @@ Hermanos míos amados, ==escuchen==: ¿No ==escogió== Dios a los pobres de este
 
 +PERO+ Y de la misma manera, ¿no fue la ramera Rahab también ==justificada== por *las* obras cuando recibió a los mensajeros y los envió por otro camino? [Porque]() [así como](josper) el cuerpo sin *el* espíritu ==está== muerto, [así](jutos) también la fe sin *las* obras ==está== muerta. 
 
-
-
-
-
 Hermanos míos, que no ==se hagan== maestros muchos *de ustedes*, sabiendo que ==recibiremos== un juicio más severo. [Porque]() todos ==fallamos== de muchas maneras. Si alguien no ==falla== en lo que dice, es un hombre perfecto, capaz también de refrenar todo el cuerpo. [Ahora bien](de), [si]() ==ponemos== el freno en la boca de los caballos para que nos obedezcan, ==dirigimos== también todo su cuerpo. ==Miren== también las naves; aunque son tan grandes e impulsadas por fuertes vientos, son, sin embargo, ==dirigidas== mediante un timón muy pequeño por [donde](jopu ) la voluntad del piloto ==quiere==.
 
 Así también la lengua ==es== un miembro pequeño, [y]() *sin embargo,* ==se jacta== de grandes cosas. ¡==Pues(MIRA)== qué gran bosque ==se incendia== con tan pequeño fuego! También la lengua es un fuego, un mundo de iniquidad. La lengua ==está puesta== entre nuestros miembros, la cual contamina todo el cuerpo, es encendida por el infierno e inflama el curso de *nuestra* vida. [Porque]() toda clase de fieras y de aves, de reptiles y de *animales* marinos, ==se puede domar== [y]() ==ha sido domado== por el ser humano, [pero]() ningún hombre ==puede== domar la lengua. *Es* un mal turbulento *y* lleno de veneno mortal.
@@ -353,8 +349,6 @@ Ustedes ==ven==
 ​	[así como](josper) el cuerpo sin *el* espíritu ==está== muerto, 
 
 [así](jutos) también la fe sin *las* obras ==está== muerta. 
-
-
 
 Hermanos míos, que no ==se hagan== maestros muchos *de ustedes*, 
 
