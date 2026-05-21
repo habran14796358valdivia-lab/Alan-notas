@@ -14,10 +14,6 @@ A las doce tribus que están en la dispersión: Saludos.
 
 Bienaventurado el hombre que ==persevera== bajo la prueba, [porque]() una vez que ha sido aprobado, ==recibirá== la corona de la vida [que](jon) *el Señor* ==ha prometido== a los que lo aman. (Que) nadie ==diga== cuando es tentado +[QUE](joti)+: «Soy ==tentado== por Dios». [Porque]() Dios no puede ==ser== tentado por el mal [y]() Él mismo no ==tienta== a nadie. [Sino que](de) cada uno ==es tentado== cuando es llevado y seducido por su propia pasión. Después, cuando la pasión ha concebido, ==da a luz== el pecado; [y](de) cuando el pecado es consumado, ==engendra== la muerte.
 
-
-
-
-
 Amados hermanos míos, no ==se engañen==. Toda buena dádiva y todo don perfecto ==viene== de lo alto, desciende del Padre de las luces, [con el cual](JO) no ==hay== cambio ni sombra de variación. En el ejercicio de Su voluntad, Él nos ==hizo nacer== por la palabra de verdad, para que fuéramos las primicias de sus criaturas.
 
 Esto lo ==saben==, mis amados hermanos. [Pero que](de) cada uno ==sea== pronto para oír, tardo para hablar, tardo para la ira; [pues]() la ira del hombre no ==obra== la justicia de Dios. Por lo cual, desechando toda inmundicia y *todo* resto de malicia, ==reciban== ustedes con humildad la palabra implantada, que es poderosa para salvar sus almas.
@@ -30,11 +26,15 @@ Si alguien ==se cree== religioso, pero no refrena su lengua, sino que engaña a 
 
 
 
-Hermanos míos, no ==tengan== su fe en nuestro glorioso Señor Jesucristo con *una actitud* de favoritismo. [Porque]() [si]() en su congregación ==entra== un hombre con anillo de oro y vestido de ropa lujosa, [y]() [también]() ==entra== un pobre con ropa sucia, [y]() ==dan atención especial== al que lleva la ropa lujosa, [y]() ==dicen==: «==Siéntese== aquí, en un buen lugar»; [y]() al pobre ==dicen==: «Tú ==estate allí de pie==, [o]() ==siéntate== junto a mi estrado»; ¿acaso no ==han hecho distinciones== entre ustedes mismos, [y]() ==han venido a ser== jueces con malos pensamientos?
+Hermanos míos, no ==tengan== su fe en nuestro glorioso Señor Jesucristo con *una actitud* de favoritismo. [Porque]() [si]() en su congregación ==entra== un hombre con anillo de oro y vestido de ropa lujosa, [y](de) también ==entra== un pobre con ropa sucia, [y]() ==dan atención especial== al que lleva la ropa lujosa, [y]() ==dicen==: «==Siéntese== aquí, en un buen lugar»; [y]() al pobre ==dicen==: «Tú ==estate allí de pie==, [o]() ==siéntate== junto a mi estrado»; ¿acaso no ==han hecho distinciones== entre ustedes mismos, [y]() ==han venido a ser== jueces con malos pensamientos?
 
-Hermanos míos amados, ==escuchen==: ¿No ==escogió== Dios a los pobres de este mundo *para ser* ricos en fe [y]() herederos del reino que Él ==prometió== a los que lo aman? [Pero]() ustedes ==han despreciado== al pobre. ¿No son los ricos los que los ==oprimen== [y]() personalmente los ==arrastran== a los tribunales? ¿No ==blasfeman== ellos el buen nombre por el cual ustedes han sido llamados? [Si]() [en verdad]() ustedes ==cumplen== la ley real conforme a la Escritura: «==Amarás== a tu prójimo como a ti mismo», bien ==hacen==. [Pero]() [si]() ==muestran favoritismo==, ==cometen== pecado *y* son hallados culpables por la ley como transgresores.
+Hermanos míos amados, ==escuchen==: ¿No ==escogió== Dios a los pobres de este mundo *para ser* ricos en fe y herederos del reino [que](jes) Él ==prometió== a los que lo aman? [Pero]() ustedes ==han despreciado== al pobre. ¿No son los ricos los que los ==oprimen== [y]() personalmente los ==arrastran== a los tribunales? ¿No ==blasfeman== ellos el buen nombre por el cual ustedes han sido llamados? [Si]() en verdad ustedes ==cumplen== la ley real conforme a la Escritura: «==Amarás== a tu prójimo como a ti mismo», bien ==hacen==. [Pero]() [si]() ==muestran favoritismo==, ==cometen== pecado *y* son hallados culpables por la ley como transgresores.
 
-[Porque]() cualquiera ==que guarda== toda la ley, [pero]() ==falla== en un *punto,* ==se ha hecho== culpable de todos. [Pues]() el que dijo: «No ==cometas adulterio==», [también]() ==dijo==: «No ==mates==». [Ahora bien](), [si]() tú no ==cometes adulterio==, [pero]() ==matas==, te ==has convertido== en transgresor de la ley. Así ==hablen== ustedes [y]() así ==procedan==, como los que han de ser juzgados por *la* ley de la libertad. [Porque]() el juicio *será* sin misericordia para el que no ha mostrado misericordia. La misericordia ==triunfa== sobre el juicio.
+[Porque]() [cualquiera](jostis) ==que guarda== toda la ley, [pero]() ==falla== en un *punto,* ==se ha hecho== culpable de todos. Pues el que dijo: «No ==cometas adulterio==», [también](kai) ==dijo==: «No ==mates==». [Ahora bien](de), [si]() tú no ==cometes adulterio==, [pero]() ==matas==, te ==has convertido== en transgresor de la ley. Así ==hablen== ustedes [y]() así ==procedan==, como los que han de ser juzgados por *la* ley de la libertad. Porque el juicio *será* sin misericordia para el que no ha mostrado misericordia. La misericordia ==triunfa== sobre el juicio.
+
+
+
+
 
 ¿De qué sirve, hermanos míos, [si]() alguien ==dice== que tiene fe, [pero]() no ==tiene== obras? ¿Acaso ==puede== esa fe salvarlo? [Si]() un hermano [o]() una hermana no ==tienen== ropa [y]() carecen del sustento diario, [y]() uno de ustedes les ==dice==: «==Vayan== en paz, ==caliéntense== [y]() ==sáciense==», [pero]() no les ==dan== lo necesario para *su* cuerpo, ¿de qué sirve? [Así también]() la fe por sí misma, [si]() no ==tiene== obras, ==está== muerta. [Pero]() alguien ==dirá==: «Tú ==tienes== fe y yo ==tengo== obras. ==Muéstrame== tu fe sin las obras, y yo te ==mostraré== mi fe por mis obras». Tú ==crees== [que]() Dios ==es== uno. ==Haces== bien; [también]() los demonios ==creen==, [y]() ==tiemblan==. [Pero](), ¿==estás dispuesto== a admitir, oh hombre vano, [que]() la fe sin obras ==es== estéril?
 
@@ -191,3 +191,85 @@ Pero el que mira atentamente a la ley perfecta, la *ley* de la libertad, y perma
 Si alguien ==se cree== religioso, pero no refrena su lengua, sino que engaña a su *propio* corazón, la religión del tal es vana. 
 
 La religión pura y sin mancha delante de *nuestro* Dios y Padre ==es== esta: visitar a los huérfanos y a las viudas en sus aflicciones, *y* guardarse sin mancha del mundo.
+
+Hermanos míos, no ==tengan== su fe en nuestro glorioso Señor Jesucristo con *una actitud* de favoritismo. 
+
+[Porque]() 
+
+​	[si]() en su congregación ==entra== un hombre con anillo de oro y vestido de ropa lujosa, 
+
+​	[y](de) también ==entra== un pobre con ropa sucia, 
+
+​	[y]() ==dan atención especial== al que lleva la ropa lujosa, 
+
+​	[y]() ==dicen==: 
+
+«==Siéntese== aquí, en un buen lugar»; 
+
+[	y]() al pobre ==dicen==: 
+
+«Tú ==estate allí de pie==, 
+
+[o]() ==siéntate== junto a mi estrado»;
+
+¿acaso no ==han hecho distinciones== entre ustedes mismos, 
+
+[y]() ==han venido a ser== jueces con malos pensamientos?
+
+Hermanos míos amados, ==escuchen==: 
+
+¿No ==escogió== Dios a los pobres de este mundo *para ser* ricos en fe y herederos del reino 
+
+​	[que](jes) Él ==prometió== a los que lo aman? 
+
+[Pero]() ustedes ==han despreciado== al pobre. 
+
+¿No son los ricos los que los ==oprimen== 
+
+[y]() personalmente los ==arrastran== a los tribunales? 
+
+¿No ==blasfeman== ellos el buen nombre por el cual ustedes han sido llamados? 
+
+​	[Si]() en verdad ustedes ==cumplen== la ley real conforme a la Escritura: 
+
+«==Amarás== a tu prójimo como a ti mismo», 
+
+bien ==hacen==. 
+
+[Pero]() 
+
+​	[si]() ==muestran favoritismo==, 
+
+==cometen== pecado *y* son hallados culpables por la ley como transgresores.
+
+[Porque]() 
+
+​	[cualquiera](jostis) ==que guarda== toda la ley, 
+
+[	pero]() ==falla== en un *punto,* 
+
+==se ha hecho== culpable de todos. 
+
+Pues el que dijo: 
+
+«No ==cometas adulterio==», 
+
+[también](kai) ==dijo==: 
+
+«No ==mates==». 
+
+[Ahora bien](de), 
+
+​	[si]() tú no ==cometes adulterio==, 
+
+[	pero]() ==matas==, 
+
+te ==has convertido== en transgresor de la ley. 
+
+Así ==hablen== ustedes 
+
+[y]() así ==procedan==, como los que han de ser juzgados por *la* ley de la libertad. 
+
+Porque el juicio *será* sin misericordia para el que no ha mostrado misericordia. 
+
+La misericordia ==triunfa== sobre el juicio.
