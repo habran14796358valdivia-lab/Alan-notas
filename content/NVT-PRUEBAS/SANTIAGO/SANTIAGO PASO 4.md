@@ -356,12 +356,72 @@ Ustedes ==ven==
 
 
 
-Hermanos míos, que no ==se hagan== maestros muchos *de ustedes*, sabiendo que ==recibiremos== un juicio más severo. [Porque]() todos ==fallamos== de muchas maneras. Si alguien no ==falla== en lo que dice, es un hombre perfecto, capaz también de refrenar todo el cuerpo. [Ahora bien](de), [si]() ==ponemos== el freno en la boca de los caballos para que nos obedezcan, ==dirigimos== también todo su cuerpo. ==Miren== también las naves; aunque son tan grandes e impulsadas por fuertes vientos, son, sin embargo, ==dirigidas== mediante un timón muy pequeño por [donde](jopu ) la voluntad del piloto ==quiere==.
+Hermanos míos, que no ==se hagan== maestros muchos *de ustedes*, 
 
-Así también la lengua ==es== un miembro pequeño, [y]() *sin embargo,* ==se jacta== de grandes cosas. ¡==Pues(MIRA)== qué gran bosque ==se incendia== con tan pequeño fuego! También la lengua es un fuego, un mundo de iniquidad. La lengua ==está puesta== entre nuestros miembros, la cual contamina todo el cuerpo, es encendida por el infierno e inflama el curso de *nuestra* vida. [Porque]() toda clase de fieras y de aves, de reptiles y de *animales* marinos, ==se puede domar== [y]() ==ha sido domado== por el ser humano, [pero]() ningún hombre ==puede== domar la lengua. *Es* un mal turbulento *y* lleno de veneno mortal.
+sabiendo que ==recibiremos== un juicio más severo. 
 
-Con ella ==bendecimos== a *nuestro* Señor y Padre, [y]() con ella ==maldecimos== a los hombres, que han sido hechos a la imagen de Dios. De la misma boca ==proceden== bendición y maldición. Hermanos míos, esto no ==debe== ser así. ¿Acaso una fuente ==echa== *agua* dulce y amarga por la misma abertura? ¿Acaso, hermanos míos, ==puede== una higuera producir aceitunas, o una vid higos? Tampoco *la fuente de agua* salada *puede* producir agua dulce.
+[Porque]() todos ==fallamos== de muchas maneras. 
 
-¿Quién es sabio y entendido entre ustedes? Que ==muestre== por su buena conducta sus obras en sabia mansedumbre. [Pero]() [si]() ==tienen== celos amargos y ambición personal en su corazón, no ==sean arrogantes== [y]() ==mientan== *así* contra la verdad. Esta sabiduría no ==es== la que viene de lo alto, sino que es terrenal, natural, diabólica. Porque donde hay celos y ambición personal, allí hay confusión y toda cosa mala.
+Si alguien no ==falla== en lo que dice, es un hombre perfecto, capaz también de refrenar todo el cuerpo. 
 
-[Pero]() la sabiduría de lo alto+DE HECHO+ ==es== primeramente pura, después pacífica, amable, condescendiente, llena de misericordia y de buenos frutos, sin vacilación, sin hipocresía. [Y](de) la semilla cuyo fruto es la justicia ==se siembra== en paz por aquellos que hacen la paz.
+[Ahora bien](de), 
+
+​	[si]() ==ponemos== el freno en la boca de los caballos para que nos obedezcan, 
+
+==dirigimos== también todo su cuerpo. 
+
+==Miren== también las naves; aunque son tan grandes e impulsadas por fuertes vientos, 
+
+son, sin embargo, ==dirigidas== mediante un timón muy pequeño por 
+
+​	[donde](jopu ) la voluntad del piloto ==quiere==.
+
+Así también la lengua ==es== un miembro pequeño, 
+
+[y]() *sin embargo,* ==se jacta== de grandes cosas. 
+
+¡==Pues(MIRA)== 
+
+qué gran bosque ==se incendia== con tan pequeño fuego! 
+
+También la lengua es un fuego, un mundo de iniquidad. 
+
+La lengua ==está puesta== entre nuestros miembros, la cual contamina todo el cuerpo, es encendida por el infierno e inflama el curso de *nuestra* vida. 
+
+[Porque]() toda clase de fieras y de aves, de reptiles y de *animales* marinos, ==se puede domar== 
+
+[y]() ==ha sido domado== por el ser humano, 
+
+[pero]() ningún hombre ==puede== domar la lengua. *Es* un mal turbulento *y* lleno de veneno mortal.
+
+Con ella ==bendecimos== a *nuestro* Señor y Padre, 
+
+[y]() con ella ==maldecimos== a los hombres, que han sido hechos a la imagen de Dios. 
+
+De la misma boca ==proceden== bendición y maldición. 
+
+Hermanos míos, esto no ==debe== ser así. 
+
+¿Acaso una fuente ==echa== *agua* dulce y amarga por la misma abertura? 
+
+¿Acaso, hermanos míos, ==puede== una higuera producir aceitunas, o una vid higos? 
+
+Tampoco *la fuente de agua* salada *puede* producir agua dulce.
+
+¿Quién es sabio y entendido entre ustedes? 
+
+Que ==muestre== por su buena conducta sus obras en sabia mansedumbre. 
+
+[Pero]() 
+
+​	[si]() ==tienen== celos amargos y ambición personal en su corazón, 
+
+no ==sean arrogantes== 
+
+[y]() ==mientan== *así* contra la verdad. 
+
+Esta sabiduría no ==es== la que viene de lo alto, sino que es terrenal, natural, diabólica. Porque donde hay celos y ambición personal, allí hay confusión y toda cosa mala.
+
+[Pero]() la sabiduría de lo alto+DE HECHO+ ==es== primeramente pura, después pacífica, amable, condescendiente, llena de misericordia y de buenos frutos, sin vacilación, sin hipocresía. 
+
+[Y](de) la semilla cuyo fruto es la justicia ==se siembra== en paz por aquellos que hacen la paz.
