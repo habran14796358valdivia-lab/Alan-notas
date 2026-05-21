@@ -48,9 +48,9 @@ Con ella ==bendecimos== a *nuestro* Señor y Padre, [y]() con ella ==maldecimos=
 
 
 
-¿De dónde *vienen* las guerras y los conflictos entre ustedes? ¿No vienen de las pasiones que combaten en sus miembros? Ustedes ==codician== [y]() no ==tienen==, *por eso* ==cometen homicidio==. +[Y]()+==Son envidiosos== [y]() no ==pueden== obtener, *por eso* ==combaten== [y]() ==hacen guerra==.+[Y]()+ No ==tienen==, porque no piden. ==Piden== [y]() no ==reciben==, [porque]() ==piden== con malos propósitos, [para]() ==gastarlo== en sus placeres.
+¿De dónde *vienen* las guerras y los conflictos entre ustedes? ¿No vienen de las pasiones que combaten en sus miembros? Ustedes ==codician== [y]() no ==tienen==, *por eso* ==cometen homicidio==. +[Y]()+==Son envidiosos== [y]() no ==pueden== obtener, *por eso* ==combaten== [y]() ==hacen guerra==.+[Y]()+ No ==tienen==, porque no piden. ==Piden== [y]() no ==reciben==, [porque](dioti) ==piden== con malos propósitos, [para+QUE+]() ==gastarlo== en sus placeres.
 
-¡*Oh almas* adúlteras! ¿No ==saben== ustedes [que]() la amistad del mundo ==es== enemistad hacia Dios? [Por tanto](), +[SI]()+ el que ==quiere== ser amigo del mundo, ==se constituye== enemigo de Dios. ¿[O]() ==piensan== [que]() la Escritura ==dice== en vano: «Dios celosamente ==anhela== el Espíritu que ==ha hecho== morar en nosotros.»? [Pero]() Él ==da== mayor gracia. [Por eso]() ==dice==: «Dios ==resiste== a los soberbios, [pero]() ==da== gracia a los humildes». [Por tanto](), ==sométanse== a Dios. +[PERO]()+==Resistan==, pues, al diablo [y]() ==huirá== de ustedes.
+¡*Oh almas* adúlteras! ¿No ==saben== ustedes [que](joti) la amistad del mundo ==es== enemistad hacia Dios? [Por tanto](oun), +[SI]()+ el que ==quiere== ser amigo del mundo, ==se constituye== enemigo de Dios. ¿[O]() ==piensan== [que](joti) la Escritura ==dice== en vano: «Dios celosamente ==anhela== el Espíritu [que](jo) ==ha hecho== morar en nosotros.»? [Pero]() Él ==da== mayor gracia. [Por eso](dio) ==dice==: «Dios ==resiste== a los soberbios, [pero]() ==da== gracia a los humildes». [Por tanto](oun), ==sométanse== a Dios. +[PERO]()+==Resistan==, (pues), al diablo [y]() ==huirá== de ustedes.
 
 ==Acérquense== a Dios, [y]() Él ==se acercará== a ustedes. ==Limpien== sus manos, pecadores; [y]() ustedes de doble ánimo, ==purifiquen== sus corazones. ==Aflíjanse==, ==laméntense== [y]() ==lloren==. Que su risa ==se convierta== en lamento y su gozo en tristeza. ==Humíllense== en la presencia del Señor [y]() Él los ==exaltará==.
 
@@ -58,7 +58,11 @@ Hermanos, no ==hablen mal== los unos de los otros. El que habla mal de un herman
 
 ==Oigan== ahora, ustedes que dicen: «Hoy [o]() mañana ==iremos== a tal o cual ciudad [y]() ==pasaremos== allá un año, +[Y]()+==haremos negocio== [y]() ==tendremos ganancia==». Sin embargo, ustedes no ==saben== cómo será su vida mañana. +[POR QUE]()+*Solo* ==son== un vapor que aparece por un poco de tiempo y luego se desvanece.
 
-Más bien, *debieran* decir: [Si]() el Señor ==quiere==,+[TAMBIEN]()+ ==viviremos== [y]() ==haremos== esto o aquello. [Pero]() ahora ==se jactan== en su arrogancia. Toda jactancia semejante ==es== mala.+[POR LO TANTO]()+A aquel, pues, que sabe hacer *lo* bueno y no lo hace, le ==es== pecado.
+Más bien, *debieran* decir: [Si]() el Señor ==quiere==,+TAMBIEN+ ==viviremos== [y]() ==haremos== esto o aquello. [Pero]() ahora ==se jactan== en su arrogancia. Toda jactancia semejante ==es== mala.+[POR LO TANTO]()+A aquel, pues, que sabe hacer *lo* bueno y no lo hace, le ==es== pecado.
+
+
+
+
 
 ¡==Oigan== ahora, ricos! ==Lloren== y aúllen por las miserias que vienen sobre ustedes. Sus riquezas se ==han podrido== [y]() sus ropas ==están comidas== de polilla. Su oro [y]() su plata ==se han oxidado==, +[Y]()+su herrumbre ==será== un testigo contra ustedes [y]() ==consumirá== su carne como fuego. Es en los últimos días que ==han acumulado tesoros==. ==Miren==, el jornal de los obreros que han segado sus campos [y]() que ha sido retenido por ustedes, ==clama== *contra ustedes.* El clamor de los segadores ==ha llegado== a los oídos del Señor de los ejércitos.
 
@@ -419,3 +423,19 @@ Esta sabiduría no ==es== la que viene de lo alto, sino que es terrenal, natural
 [Pero]() la sabiduría de lo alto+DE HECHO+ ==es== primeramente pura, después pacífica, amable, condescendiente, llena de misericordia y de buenos frutos, sin vacilación, sin hipocresía. 
 
 [Y](de) la semilla cuyo fruto es la justicia ==se siembra== en paz por aquellos que hacen la paz.
+
+
+
+
+
+¿De dónde *vienen* las guerras y los conflictos entre ustedes? ¿No vienen de las pasiones que combaten en sus miembros? Ustedes ==codician== [y]() no ==tienen==, *por eso* ==cometen homicidio==. +[Y]()+==Son envidiosos== [y]() no ==pueden== obtener, *por eso* ==combaten== [y]() ==hacen guerra==.+[Y]()+ No ==tienen==, porque no piden. ==Piden== [y]() no ==reciben==, [porque](dioti) ==piden== con malos propósitos, [para+QUE+]() ==gastarlo== en sus placeres.
+
+¡*Oh almas* adúlteras! ¿No ==saben== ustedes [que](joti) la amistad del mundo ==es== enemistad hacia Dios? [Por tanto](oun), +[SI]()+ el que ==quiere== ser amigo del mundo, ==se constituye== enemigo de Dios. ¿[O]() ==piensan== [que](joti) la Escritura ==dice== en vano: «Dios celosamente ==anhela== el Espíritu [que](jo) ==ha hecho== morar en nosotros.»? [Pero]() Él ==da== mayor gracia. [Por eso](dio) ==dice==: «Dios ==resiste== a los soberbios, [pero]() ==da== gracia a los humildes». [Por tanto](oun), ==sométanse== a Dios. +[PERO]()+==Resistan==, (pues), al diablo [y]() ==huirá== de ustedes.
+
+==Acérquense== a Dios, [y]() Él ==se acercará== a ustedes. ==Limpien== sus manos, pecadores; [y]() ustedes de doble ánimo, ==purifiquen== sus corazones. ==Aflíjanse==, ==laméntense== [y]() ==lloren==. Que su risa ==se convierta== en lamento y su gozo en tristeza. ==Humíllense== en la presencia del Señor [y]() Él los ==exaltará==.
+
+Hermanos, no ==hablen mal== los unos de los otros. El que habla mal de un hermano o juzga a su hermano, ==habla mal== de la ley [y]() ==juzga== a la ley. [Pero]() [si]() tú ==juzgas== a la ley, no ==eres== cumplidor de la ley, sino juez *de ella.* Solo ==hay== un Legislador y Juez, que es poderoso para salvar y para destruir. [Pero]() tú, ¿quién ==eres== que juzgas a tu prójimo?
+
+==Oigan== ahora, ustedes que dicen: «Hoy [o]() mañana ==iremos== a tal o cual ciudad [y]() ==pasaremos== allá un año, +[Y]()+==haremos negocio== [y]() ==tendremos ganancia==». Sin embargo, ustedes no ==saben== cómo será su vida mañana. +[POR QUE]()+*Solo* ==son== un vapor que aparece por un poco de tiempo y luego se desvanece.
+
+Más bien, *debieran* decir: [Si]() el Señor ==quiere==,+TAMBIEN+ ==viviremos== [y]() ==haremos== esto o aquello. [Pero]() ahora ==se jactan== en su arrogancia. Toda jactancia semejante ==es== mala.+[POR LO TANTO]()+A aquel, pues, que sabe hacer *lo* bueno y no lo hace, le ==es== pecado.
