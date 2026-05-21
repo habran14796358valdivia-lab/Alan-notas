@@ -273,3 +273,83 @@ Así ==hablen== ustedes
 Porque el juicio *será* sin misericordia para el que no ha mostrado misericordia. 
 
 La misericordia ==triunfa== sobre el juicio.
+
+¿De qué sirve, hermanos míos, 
+
+​	[si]() alguien ==dice== que tiene fe, 
+
+​	[pero]() no ==tiene== obras? 
+
+¿Acaso ==puede== esa fe salvarlo? 
+
+​	[Si]() un hermano o una hermana no ==tienen== ropa y carecen del sustento diario, 
+
+​	[y](de) uno de ustedes les ==dice==: 
+
+«==Vayan== en paz, 
+
+==caliéntense== 
+
+[y]() ==sáciense==», 
+
+[pero]() no les ==dan== lo necesario para *su* cuerpo, ¿de qué sirve? 
+
+Así también la fe por sí misma, 
+
+​	[si]() no ==tiene== obras, 
+
+==está== muerta. 
+
+[Pero]() alguien ==dirá==: 
+
+«Tú ==tienes== fe y 
+
+yo ==tengo== obras. 
+
+==Muéstrame== tu fe sin las obras, y 
+
+yo te ==mostraré== mi fe por mis obras». 
+
+Tú ==crees== 
+
+​	[que](joti) Dios ==es== uno. 
+
+==Haces== bien; 
+
+[también](kai) los demonios ==creen==, 
+
+[y]() ==tiemblan==. 
+
+[Pero](), ¿==estás dispuesto== a admitir, oh hombre vano, 
+
+​	[que](joti) la fe sin obras ==es== estéril?
+
+¿No ==fue justificado== por las obras Abraham nuestro padre cuando ofreció a su hijo Isaac sobre el altar? 
+
+==Ya ves== 
+
+​	[que]() la fe ==actuaba juntamente== con sus obras, y como resultado de las obras,
+
+la fe ==fue perfeccionada==;  
+
+[y]() ==se cumplió== la Escritura que: «
+
+[Y](de) Abraham ==creyó== a Dios 
+
+[y]() le ==fue contado== por justicia», 
+
+[y]() ==fue llamado== amigo de Dios. 
+
+Ustedes ==ven== 
+
+[	que]() el hombre ==es justificado== por *las* obras y no solo por *la* fe.
+
++PERO+ Y de la misma manera, 
+
+¿no fue la ramera Rahab también ==justificada== por *las* obras cuando recibió a los mensajeros y los envió por otro camino? 
+
+[Porque]() 
+
+​	[así como](josper) el cuerpo sin *el* espíritu ==está== muerto, 
+
+[así](jutos) también la fe sin *las* obras ==está== muerta. 
