@@ -74,7 +74,7 @@ Hermanos míos, [si]() alguien de entre ustedes ==se extravía== de la verdad [y
 
 ---
 
-TRONCO
+ESTRUCTURA
 
 ---
 
@@ -544,8 +544,6 @@ Toda jactancia semejante ==es== mala.
 
 +[POR LO TANTO]()+A aquel, pues, que sabe hacer *lo* bueno y no lo hace, le ==es== pecado.
 
-
-
 ¡==Oigan== ahora, ricos! 
 
 ==Lloren== y aúllen por las miserias que vienen sobre ustedes. 
@@ -676,4 +674,9 @@ Hermanos míos,
 
 ​	[y]() ==cubrirá== multitud de pecados. 
 
-​	
+---
+
+TRONCO
+
+---
+
