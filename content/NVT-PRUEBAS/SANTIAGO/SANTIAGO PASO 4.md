@@ -680,10 +680,6 @@ TRONCO
 
 ---
 
-Santiago, siervo de Dios y del Señor Jesucristo: 
-
-A las doce tribus que están en la dispersión: Saludos.
-
 ==Tengan== por sumo gozo, hermanos míos, 
 
 la prueba de su fe ==produce== paciencia, 
@@ -1059,8 +1055,6 @@ Hermanos, no ==se quejen== unos contra otros,
 el Juez ==está== a las puertas. 
 
 Hermanos, ==tomen== como ejemplo de paciencia y aflicción a los profetas 
-
-​	[que](joi) ==hablaron== en el nombre del Señor. 
 
 ==Miren== *que* 
 
