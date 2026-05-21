@@ -12,7 +12,7 @@ A las doce tribus que están en la dispersión: Saludos.
 
 [Pero]() que el hermano de condición humilde ==se gloríe== en su alta posición, y el rico en su humillación, [pues](joti) él ==pasará== como la flor de la hierba. [Porque]() el sol ==sale== con calor abrasador [y]() ==seca== la hierba, [y]() su flor ==se cae== [y]() la hermosura de su apariencia ==perece==. [Así también](jutos kai) ==se marchitará== el rico en medio de sus empresas.
 
-Bienaventurado el hombre que ==persevera== bajo la prueba, [porque]() una vez que ha sido aprobado, ==recibirá== la corona de la vida [que](jon) *el Señor* ==ha prometido== a los que lo aman. (Que) nadie ==diga== cuando es tentado +[QUE](joti)+: «Soy ==tentado== por Dios». [Porque]() Dios no puede ==ser== tentado por el mal [y]() Él mismo no ==tienta== a nadie. [Sino que](de) cada uno ==es tentado== cuando es llevado y seducido por su propia pasión. [Después](eita), cuando la pasión ha concebido, ==da a luz== el pecado; [y](de) cuando el pecado es consumado, ==engendra== la muerte.
+Bienaventurado el hombre que ==persevera== bajo la prueba, [porque]() una vez que ha sido aprobado, ==recibirá== la corona de la vida [que](jon) *el Señor* ==ha prometido== a los que lo aman. (Que) nadie ==diga== cuando es tentado +[QUE](joti)+: «Soy ==tentado== por Dios». [Porque]() Dios no puede ==ser== tentado por el mal [y]() Él mismo no ==tienta== a nadie. [Sino que](de) cada uno ==es tentado== cuando es llevado y seducido por su propia pasión. Después, cuando la pasión ha concebido, ==da a luz== el pecado; [y](de) cuando el pecado es consumado, ==engendra== la muerte.
 
 
 
@@ -24,7 +24,7 @@ Esto lo ==saben==, mis amados hermanos. [Pero que](de) cada uno ==sea== pronto p
 
 +[PERO]()+==Sean== hacedores de la palabra y no solamente oidores que se engañan a sí mismos. [Porque](joti) [si]() alguien ==es== oidor de la palabra, y no hacedor, ==es semejante== a un hombre que mira su rostro natural en un espejo; [pues]() después de ==mirarse== a sí mismo [e]() ==irse==,+[Y]()+ inmediatamente ==se olvida== de qué clase de persona ==es==. Pero el que mira atentamente a la ley perfecta, la *ley* de la libertad, y permanece *en ella,* no habiéndose vuelto un oidor olvidadizo sino un hacedor eficaz, este ==será== bienaventurado en lo que hace.
 
-[Si]() alguien ==se cree== religioso, pero no refrena su lengua, sino que engaña a su *propio* corazón, la religión del tal es vana. La religión pura y sin mancha delante de *nuestro* Dios y Padre ==es== esta: visitar a los huérfanos y a las viudas en sus aflicciones, *y* guardarse sin mancha del mundo.
+Si alguien ==se cree== religioso, pero no refrena su lengua, sino que engaña a su *propio* corazón, la religión del tal es vana. La religión pura y sin mancha delante de *nuestro* Dios y Padre ==es== esta: visitar a los huérfanos y a las viudas en sus aflicciones, *y* guardarse sin mancha del mundo.
 
 
 
@@ -146,6 +146,48 @@ Bienaventurado el hombre que ==persevera== bajo la prueba,
 
 ​	[Sino que](de) cada uno ==es tentado== cuando es llevado y seducido por su propia pasión. 
 
-​	[Después](eita), cuando la pasión ha concebido, ==da a luz== el pecado; 
+Después, cuando la pasión ha concebido, ==da a luz== el pecado; 
 
-[	y](de) cuando el pecado es consumado, ==engendra== la muerte.
+[y](de) cuando el pecado es consumado, ==engendra== la muerte.
+
+Amados hermanos míos, no ==se engañen==. 
+
+Toda buena dádiva y todo don perfecto ==viene== de lo alto, desciende del Padre de las luces, 
+
+​	[con el cual](JO) no ==hay== cambio ni sombra de variación. 
+
+En el ejercicio de Su voluntad, 
+
+Él nos ==hizo nacer== por la palabra de verdad, para que fuéramos las primicias de sus criaturas.
+
+Esto lo ==saben==, mis amados hermanos. 
+
+[Pero que](de) cada uno ==sea== pronto para oír, tardo para hablar, tardo para la ira; 
+
+[pues]() la ira del hombre no ==obra== la justicia de Dios. 
+
+Por lo cual, desechando toda inmundicia y *todo* resto de malicia, 
+
+==reciban== ustedes con humildad la palabra implantada, que es poderosa para salvar sus almas.
+
++[PERO]()+==Sean== hacedores de la palabra y no solamente oidores que se engañan a sí mismos. 
+
+[Porque](joti) 
+
+​	[si]() alguien ==es== oidor de la palabra, y no hacedor, 
+
+==es semejante== a un hombre que mira su rostro natural en un espejo; 
+
+[pues]() después de ==mirarse== a sí mismo 
+
+[e]() ==irse==,
+
++[Y]()+ inmediatamente ==se olvida== 
+
+de qué clase de persona ==es==. 
+
+Pero el que mira atentamente a la ley perfecta, la *ley* de la libertad, y permanece *en ella,* no habiéndose vuelto un oidor olvidadizo sino un hacedor eficaz, este ==será== bienaventurado en lo que hace.
+
+Si alguien ==se cree== religioso, pero no refrena su lengua, sino que engaña a su *propio* corazón, la religión del tal es vana. 
+
+La religión pura y sin mancha delante de *nuestro* Dios y Padre ==es== esta: visitar a los huérfanos y a las viudas en sus aflicciones, *y* guardarse sin mancha del mundo.
