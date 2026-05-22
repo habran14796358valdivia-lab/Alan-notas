@@ -260,7 +260,9 @@ Todos los que están conmigo ==te saludan==.
 
 ----
 
+CORRECCION - ESTRUCTURA
 
+---
 
 Pablo, siervo de Dios y apóstol de Jesucristo, conforme a la fe de los escogidos de Dios y al pleno conocimiento de la verdad que es según la piedad, con la esperanza de vida eterna, la cual Dios, que no miente,
 
@@ -324,7 +326,9 @@ Asimismo, las ancianas deben ser reverentes en su conducta, no calumniadoras ni 
 
 ​			[para que]() la palabra de Dios no ==sea blasfemada==.
 
-Asimismo, ==exhorta== a los jóvenes a que sean prudentes. 
+Asimismo, ==exhorta== 
+
+a los jóvenes a que sean prudentes. 
 
 Muéstrate en todo como ejemplo de buenas obras, *con* pureza de doctrina, *con* dignidad, *con* palabra sana *e* irreprochable, 
 
@@ -401,6 +405,84 @@ el tal ==es perverso==
 [Y](de) que los nuestros ==aprendan== a ocuparse en buenas obras, atendiendo a las necesidades apremiantes, 
 
 ​	[para que]() no ==estén== sin fruto.
+
+Todos los que están conmigo ==te saludan==. 
+
+==Saluda== a los que nos aman en *la* fe.
+
+---
+
+CORRECCION - TRONCO
+
+---
+
+Pablo, siervo de Dios y apóstol de Jesucristo, conforme a la fe de los escogidos de Dios y al pleno conocimiento de la verdad que es según la piedad, con la esperanza de vida eterna, la cual Dios, que no miente,
+
+==prometió== desde los tiempos eternos, 
+
+[y](de) a su debido tiempo, ==manifestó== Su palabra por la predicación 
+
+[Por esta causa](toutou kjarin) ==te dejé== en Creta, 
+
+enseñando por ganancias deshonestas, cosas que no ==deben==.
+
+Uno de ellos, su propio profeta, ==dijo==: 
+
+Este testimonio ==es== verdadero. 
+
+[Por eso,](di jen aitian) ==repréndelos== severamente 
+
+tanto su mente como su conciencia están ==corrompidas==. 
+
+==Profesan== conocer a Dios, 
+
+[pero]() con sus hechos lo ==niegan==, 
+
+[Pero]() en cuanto a ti, ==enseña== 
+
+Asimismo, ==exhorta== 
+
+[Porque]() la gracia de Dios ==se ha manifestado==, trayendo salvación a todos los hombres, enseñándonos, que negando la impiedad y los deseos mundanos,
+
+==vivamos== en este mundo sobria, justa y piadosamente, aguardando la esperanza bienaventurada y la manifestación de la gloria de nuestro gran Dios y Salvador Cristo Jesús. 
+
+Él se ==dio== por nosotros, 
+
+Esto ==habla==,
+
++[Y]()+ ==exhorta== 
+
+[y]() ==reprende== con toda autoridad. 
+
+Que nadie te ==menosprecie==.
+
+==Recuérdales== que estén sujetos a los gobernantes, a las autoridades; que sean obedientes, que estén preparados para toda buena obra. 
+
+[Porque]() nosotros también en otro tiempo ==éramos== necios, desobedientes, extraviados, esclavos de deleites y placeres diversos, viviendo en malicia y envidia, aborrecibles *y* odiándonos unos a otros. 
+
+Él nos ==salvó==, no por las obras de justicia 
+
+estas cosas ==quiero== que hables con firmeza, 
+
+Estas cosas ==son== buenas y útiles para los hombres. 
+
+[Pero]() ==evita== controversias necias, genealogías, contiendas y discusiones acerca de la ley, 
+
+[porque]() ==son== sin provecho y sin valor. 
+
+Al hombre que cause divisiones, después de la primera y segunda amonestación, ==recházalo==, sabiendo que 
+
+el tal ==es perverso== 
+
+[y]() ==está pecando==, habiéndose condenado a sí mismo.
+
+==procura== venir a verme en Nicópolis, 
+
+[porque]() ==he decidido== pasar allí el invierno.
+
+==Encamina== con diligencia a Zenas, intérprete de la ley, y a Apolos, 
+
+[Y](de) que los nuestros ==aprendan== a ocuparse en buenas obras, atendiendo a las necesidades apremiantes, 
 
 Todos los que están conmigo ==te saludan==. 
 
