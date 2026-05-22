@@ -498,7 +498,7 @@ SUJETO - MOVIMIENTO
 
 [y](de) a su debido tiempo, ==manifestó== Su palabra por la predicación            [INDICATIVO]
 
-[S - EL (DIOS) - YO (PABLO)]
+[S - EL (DIOS) - YO (PABLO)]  
 
 [Por esta causa](toutou kjarin) ==te dejé== en Creta,                                                                  [INDICATIVO]
 
