@@ -516,7 +516,7 @@ Este testimonio ==es== verdadero.                                               
 
 [S - EL (TESTIMONIO) - TU (TITO)]
 
-[Por eso,](di jen aitian) ==repréndelos== severamente                                                           [IMPERATIVO]
+[Por eso,](di jen aitian) ==repréndelos== severamente                                                                                          [IMPERATIVO]
 
 [S - TU (TITO) - EL (ALGUIEN) ]
 
@@ -598,7 +598,7 @@ el tal ==es perverso==                                                          
 
 [S - EL (HOMBRE) - TU(TITO)]
 
-==procura== venir a verme en Nicópolis,                                                    [IMPERATIVO]
+==procura== venir a verme en Nicópolis,                                                   [IMPERATIVO]
 
 [S - TU(TITO) - YO(PABLO)]
 
