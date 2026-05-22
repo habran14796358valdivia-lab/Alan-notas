@@ -485,3 +485,137 @@ el tal ==es perverso==
 Todos los que están conmigo ==te saludan==. 
 
 ==Saluda== a los que nos aman en *la* fe.
+
+---
+
+SUJETO - MOVIMIENTO
+
+---
+
+[S - EL (DIOS)]
+
+==prometió== desde los tiempos eternos, 
+
+[y](de) a su debido tiempo, ==manifestó== Su palabra por la predicación 
+
+[S - EL (DIOS) - YO (PABLO)]
+
+[Por esta causa](toutou kjarin) ==te dejé== en Creta, 
+
+[S - YO (PABLO) - EL (COSAS)]
+
+enseñando por ganancias deshonestas, cosas que no ==deben==.
+
+[S - EL (COSAS) - EL (ALGUIEN)]
+
+Uno de ellos, su propio profeta, ==dijo==:
+
+[S - EL (ALGUIEN)- EL (TESTIMONIO)]
+
+Este testimonio ==es== verdadero. 
+
+[S - EL (TESTIMONIO) - TU (TITO)]
+
+[Por eso,](di jen aitian) ==repréndelos== severamente 
+
+[S - TU (TITO) - EL (ALGUIEN) ]
+
+tanto su mente como su conciencia están ==corrompidas==. 
+
+[S - EL (ALGUIEN) -  ELLOS]
+
+==Profesan== conocer a Dios, 
+
+[pero]() con sus hechos lo ==niegan==, 
+
+[S - ELLOS - TU (TITO) ]
+
+[Pero]() en cuanto a ti, ==enseña== 
+
+Asimismo, ==exhorta== 
+
+[S - TU (TITO) - EL (LA GRACIA)]
+
+[Porque]() la gracia de Dios ==se ha manifestado==, trayendo salvación a todos los hombres, enseñándonos, que negando la impiedad y los deseos mundanos,
+
+[S - EL (LA GRACIA) - NOSOTROS]
+
+==vivamos== en este mundo sobria, justa y piadosamente, aguardando la esperanza bienaventurada y la manifestación de la gloria de nuestro gran Dios y Salvador Cristo Jesús. 
+
+[S - NOSOTROS - EL(CRISTO)]
+
+Él se ==dio== por nosotros, 
+
+[S - EL(CRISTO) - TU(TITO)]
+
+Esto ==habla==,
+
++[Y]()+ ==exhorta== 
+
+[y]() ==reprende== con toda autoridad. 
+
+[S - TU(TITO) - EL (ALGUEN)]
+
+Que nadie te ==menosprecie==.
+
+[S - EL (ALGUEN) - TU(TITO) ]
+
+==Recuérdales== que estén sujetos a los gobernantes, a las autoridades; que sean obedientes, que estén preparados para toda buena obra. 
+
+[S - TU(TITO) - NOSOTROS]
+
+[Porque]() nosotros también en otro tiempo ==éramos== necios, desobedientes, extraviados, esclavos de deleites y placeres diversos, viviendo en malicia y envidia, aborrecibles *y* odiándonos unos a otros. 
+
+[S - NOSOTROS - EL (DIOS)]
+
+Él nos ==salvó==, no por las obras de justicia 
+
+[S - EL (DIOS) - YO (PABLO)]
+
+estas cosas ==quiero== que hables con firmeza, 
+
+[S - YO (PABLO) - EL (ESTAS COSAS)]
+
+Estas cosas ==son== buenas y útiles para los hombres. 
+
+[S - EL (ESTAS COSAS) - TU(TITO)]
+
+[Pero]() ==evita== controversias necias, genealogías, contiendas y discusiones acerca de la ley,
+
+[S - TU(TITO) - ELLOS (ESTAS COSAS) ]
+
+[porque]() ==son== sin provecho y sin valor. 
+
+[S - ELLOS (ESTAS COSAS) - TU(TITO)]
+
+Al hombre que cause divisiones, después de la primera y segunda amonestación, ==recházalo==, sabiendo que 
+
+[S - TU(TITO) - EL (HOMBRE)]
+
+el tal ==es perverso== 
+
+[y]() ==está pecando==, habiéndose condenado a sí mismo.
+
+[S - EL (HOMBRE) - TU(TITO)]
+
+==procura== venir a verme en Nicópolis, 
+
+[S - TU(TITO) - YO(PABLO)]
+
+[porque]() ==he decidido== pasar allí el invierno.
+
+[S - YO(PABLO) - TU(TITO)]
+
+==Encamina== con diligencia a Zenas, intérprete de la ley, y a Apolos, 
+
+[S - TU(TITO) - ELLOS (LOS NUESTROS)]
+
+[Y](de) que los nuestros ==aprendan== a ocuparse en buenas obras, atendiendo a las necesidades apremiantes, 
+
+[S - ELLOS (LOS NUESTROS) - ELLOS (LOS QUE ESTAN)]
+
+Todos los que están conmigo ==te saludan==. 
+
+[S - ELLOS (LOS QUE ESTAN) - TU (TITO)]
+
+==Saluda== a los que nos aman en *la* fe.
