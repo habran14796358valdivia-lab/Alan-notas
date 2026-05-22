@@ -598,7 +598,7 @@ el tal ==es perverso==                                                          
 
 [S - EL (HOMBRE) - TU(TITO)]
 
-==procura== venir a verme en Nicópolis,                                                   [IMPERATIVO]
+==procura== venir a verme en Nicópolis,                                                                       [IMPERATIVO]
 
 [S - TU(TITO) - YO(PABLO)]
 
