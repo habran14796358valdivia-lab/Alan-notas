@@ -494,128 +494,128 @@ SUJETO - MOVIMIENTO
 
 [S - EL (DIOS)]
 
-==prometió== desde los tiempos eternos, 
+==prometió== desde los tiempos eternos,                                                         [INDICATIVO]
 
-[y](de) a su debido tiempo, ==manifestó== Su palabra por la predicación 
+[y](de) a su debido tiempo, ==manifestó== Su palabra por la predicación            [INDICATIVO]
 
 [S - EL (DIOS) - YO (PABLO)]
 
-[Por esta causa](toutou kjarin) ==te dejé== en Creta, 
+[Por esta causa](toutou kjarin) ==te dejé== en Creta,                                                                  [INDICATIVO]
 
 [S - YO (PABLO) - EL (COSAS)]
 
-enseñando por ganancias deshonestas, cosas que no ==deben==.
+enseñando por ganancias deshonestas, cosas que no ==deben==.              [INDICATIVO]
 
 [S - EL (COSAS) - EL (ALGUIEN)]
 
-Uno de ellos, su propio profeta, ==dijo==:
+Uno de ellos, su propio profeta, ==dijo==:                                                         [INDICATIVO]
 
 [S - EL (ALGUIEN)- EL (TESTIMONIO)]
 
-Este testimonio ==es== verdadero. 
+Este testimonio ==es== verdadero.                                                                    [INDICATIVO]
 
 [S - EL (TESTIMONIO) - TU (TITO)]
 
-[Por eso,](di jen aitian) ==repréndelos== severamente 
+[Por eso,](di jen aitian) ==repréndelos== severamente                                                           [IMPERATIVO]
 
 [S - TU (TITO) - EL (ALGUIEN) ]
 
-tanto su mente como su conciencia están ==corrompidas==. 
+tanto su mente como su conciencia están ==corrompidas==.                     [INDICATIVO]
 
 [S - EL (ALGUIEN) -  ELLOS]
 
-==Profesan== conocer a Dios, 
+==Profesan== conocer a Dios,                                                                            [INDICATIVO]
 
-[pero]() con sus hechos lo ==niegan==, 
+[pero]() con sus hechos lo ==niegan==,                                                                 [INDICATIVO]
 
 [S - ELLOS - TU (TITO) ]
 
-[Pero]() en cuanto a ti, ==enseña== 
+[Pero]() en cuanto a ti, ==enseña==                                                                       [IMPERATIVO]
 
-Asimismo, ==exhorta== 
+Asimismo, ==exhorta==                                                                                      [IMPERATIVO]
 
 [S - TU (TITO) - EL (LA GRACIA)]
 
-[Porque]() la gracia de Dios ==se ha manifestado==, trayendo salvación a todos los hombres, enseñándonos, que negando la impiedad y los deseos mundanos,
+[Porque]() la gracia de Dios ==se ha manifestado==, trayendo salvación a todos los hombres, enseñándonos, que negando la impiedad y los deseos mundanos,                                                                               [INDICATIVO]
 
 [S - EL (LA GRACIA) - NOSOTROS]
 
-==vivamos== en este mundo sobria, justa y piadosamente, aguardando la esperanza bienaventurada y la manifestación de la gloria de nuestro gran Dios y Salvador Cristo Jesús. 
+==vivamos== en este mundo sobria, justa y piadosamente, aguardando la esperanza bienaventurada y la manifestación de la gloria de nuestro gran Dios y Salvador Cristo Jesús.                                           [SUBJUNTIVO]
 
 [S - NOSOTROS - EL(CRISTO)]
 
-Él se ==dio== por nosotros, 
+Él se ==dio== por nosotros,                                                                              [INDICATIVO]
 
 [S - EL(CRISTO) - TU(TITO)]
 
-Esto ==habla==,
+Esto ==habla==,                                                                                                 [IMPERATIVO]
 
-+[Y]()+ ==exhorta== 
++[Y]()+ ==exhorta==                                                                                                [IMPERATIVO]
 
-[y]() ==reprende== con toda autoridad. 
+[y]() ==reprende== con toda autoridad.                                                             [IMPERATIVO]
 
 [S - TU(TITO) - EL (ALGUEN)]
 
-Que nadie te ==menosprecie==.
+Que nadie te ==menosprecie==.                                                                     [IMPERATIVO]
 
 [S - EL (ALGUEN) - TU(TITO) ]
 
-==Recuérdales== que estén sujetos a los gobernantes, a las autoridades; que sean obedientes, que estén preparados para toda buena obra. 
+==Recuérdales== que estén sujetos a los gobernantes, a las autoridades; que sean obedientes, que estén preparados para toda buena obra.                                                                                                           [IMPERATIVO]
 
 [S - TU(TITO) - NOSOTROS]
 
-[Porque]() nosotros también en otro tiempo ==éramos== necios, desobedientes, extraviados, esclavos de deleites y placeres diversos, viviendo en malicia y envidia, aborrecibles *y* odiándonos unos a otros. 
+[Porque]() nosotros también en otro tiempo ==éramos== necios, desobedientes, extraviados, esclavos de deleites y placeres diversos, viviendo en malicia y envidia, aborrecibles *y* odiándonos unos a otros.  [INDICATIVO]
 
 [S - NOSOTROS - EL (DIOS)]
 
-Él nos ==salvó==, no por las obras de justicia 
+Él nos ==salvó==, no por las obras de justicia                                               [INDICATIVO]
 
 [S - EL (DIOS) - YO (PABLO)]
 
-estas cosas ==quiero== que hables con firmeza, 
+estas cosas ==quiero== que hables con firmeza,                                        [INDICATIVO]
 
 [S - YO (PABLO) - EL (ESTAS COSAS)]
 
-Estas cosas ==son== buenas y útiles para los hombres. 
+Estas cosas ==son== buenas y útiles para los hombres.                            [INDICATIVO]
 
 [S - EL (ESTAS COSAS) - TU(TITO)]
 
-[Pero]() ==evita== controversias necias, genealogías, contiendas y discusiones acerca de la ley,
+[Pero]() ==evita== controversias necias, genealogías, contiendas y discusiones acerca de la ley,    [IMPERATIVO]
 
 [S - TU(TITO) - ELLOS (ESTAS COSAS) ]
 
-[porque]() ==son== sin provecho y sin valor. 
+[porque]() ==son== sin provecho y sin valor.                                                     [INDICATIVO]
 
 [S - ELLOS (ESTAS COSAS) - TU(TITO)]
 
-Al hombre que cause divisiones, después de la primera y segunda amonestación, ==recházalo==, sabiendo que 
+Al hombre que cause divisiones, después de la primera y segunda amonestación, ==recházalo==, sabiendo que    [IMPERATIVO]
 
 [S - TU(TITO) - EL (HOMBRE)]
 
-el tal ==es perverso== 
+el tal ==es perverso==                                                                                     [INDICATIVO]
 
-[y]() ==está pecando==, habiéndose condenado a sí mismo.
+[y]() ==está pecando==, habiéndose condenado a sí mismo.                       [INDICATIVO]
 
 [S - EL (HOMBRE) - TU(TITO)]
 
-==procura== venir a verme en Nicópolis, 
+==procura== venir a verme en Nicópolis,                                                    [IMPERATIVO]
 
 [S - TU(TITO) - YO(PABLO)]
 
-[porque]() ==he decidido== pasar allí el invierno.
+[porque]() ==he decidido== pasar allí el invierno.                                           [INDICATIVO]
 
-[S - YO(PABLO) - TU(TITO)]
+[S - YO(PABLO) - TU(TITO)] 
 
-==Encamina== con diligencia a Zenas, intérprete de la ley, y a Apolos, 
+==Encamina== con diligencia a Zenas, intérprete de la ley, y a Apolos,   [IMPERATIVO]
 
 [S - TU(TITO) - ELLOS (LOS NUESTROS)]
 
-[Y](de) que los nuestros ==aprendan== a ocuparse en buenas obras, atendiendo a las necesidades apremiantes, 
+[Y](de) que los nuestros ==aprendan== a ocuparse en buenas obras, atendiendo a las necesidades apremiante   [IMPERATIVO]
 
 [S - ELLOS (LOS NUESTROS) - ELLOS (LOS QUE ESTAN)]
 
-Todos los que están conmigo ==te saludan==. 
+Todos los que están conmigo ==te saludan==.                                           [INDICATIVO]
 
 [S - ELLOS (LOS QUE ESTAN) - TU (TITO)]
 
-==Saluda== a los que nos aman en *la* fe.
+==Saluda== a los que nos aman en *la* fe.                                                    [IMPERATIVO]
