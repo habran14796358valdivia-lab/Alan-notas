@@ -416,8 +416,6 @@ CORRECCION - TRONCO
 
 ---
 
-Pablo, siervo de Dios y apóstol de Jesucristo, conforme a la fe de los escogidos de Dios y al pleno conocimiento de la verdad que es según la piedad, con la esperanza de vida eterna, la cual Dios, que no miente,
-
 ==prometió== desde los tiempos eternos, 
 
 [y](de) a su debido tiempo, ==manifestó== Su palabra por la predicación 
