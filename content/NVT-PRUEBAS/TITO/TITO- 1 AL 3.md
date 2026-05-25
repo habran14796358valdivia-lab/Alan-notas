@@ -804,7 +804,7 @@ el tal ==es perverso==                                                          
 
 [S - TU(TITO) - YO(PABLO)]
 
-::RAZON::
+::RAZON:: 
 
 [porque]() ==he decidido== pasar allí el invierno.                                           [INDICATIVO]
 
