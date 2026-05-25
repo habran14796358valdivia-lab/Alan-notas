@@ -623,3 +623,211 @@ Todos los que están conmigo ==te saludan==.                                    
 [S - ELLOS (LOS QUE ESTAN) - TU (TITO)]
 
 ==Saluda== a los que nos aman en *la* fe.                                                    [IMPERATIVO]
+
+---
+
+ETIQUETAS
+
+---
+
+[S - EL (DIOS)]
+
+::EXPONE::
+
+==prometió== desde los tiempos eternos,                                                         [INDICATIVO]
+
+::EXPONE::
+
+[y](de) a su debido tiempo, ==manifestó== Su palabra por la predicación            [INDICATIVO]
+
+[S - EL (DIOS) - YO (PABLO)]  
+
+::RAZON::
+
+[Por esta causa](toutou kjarin) ==te dejé== en Creta,                                                                  [INDICATIVO]
+
+[S - YO (PABLO) - EL (COSAS)]
+
+::EXPONE::
+
+enseñando por ganancias deshonestas, cosas que no ==deben==.              [INDICATIVO]
+
+[S - EL (COSAS) - EL (ALGUIEN)]
+
+::EXPONE::
+
+Uno de ellos, su propio profeta, ==dijo==:                                                         [INDICATIVO]
+
+[S - EL (ALGUIEN)- EL (TESTIMONIO)]
+
+::EXPONE::
+
+Este testimonio ==es== verdadero.                                                                    [INDICATIVO]
+
+---
+
+[S - EL (TESTIMONIO) - TU (TITO)]
+
+::RAZON::
+
+[Por eso,](di jen aitian) ==repréndelos== severamente                                                                                          [IMPERATIVO]  [M]
+
+[S - TU (TITO) - EL (ALGUIEN) ]
+
+::EXPONE::
+
+tanto su mente como su conciencia están ==corrompidas==.                     [INDICATIVO]
+
+[S - EL (ALGUIEN) -  ELLOS]
+
+::EXPONE::
+
+==Profesan== conocer a Dios,                                                                            [INDICATIVO]
+
+::CONTRASTE::
+
+[pero]() con sus hechos lo ==niegan==,                                                                 [INDICATIVO]
+
+[S - ELLOS - TU (TITO) ]
+
+::CONTRASTE::
+
+[Pero]() en cuanto a ti, ==enseña==                                                              				         [IMPERATIVO]
+
+::EXPONE::
+
+Asimismo, ==exhorta==                                                                                      [IMPERATIVO]
+
+[S - TU (TITO) - EL (LA GRACIA)]
+
+::RAZON::
+
+[Porque]() la gracia de Dios ==se ha manifestado==, trayendo salvación a todos los hombres, enseñándonos, que negando la impiedad y los deseos mundanos,                                                                               [INDICATIVO]
+
+[S - EL (LA GRACIA) - NOSOTROS]
+
+::EXPONE::
+
+==vivamos== en este mundo sobria, justa y piadosamente, aguardando la esperanza bienaventurada y la manifestación de la gloria de nuestro gran Dios y Salvador Cristo Jesús.                                           [SUBJUNTIVO]
+
+[S - NOSOTROS - EL(CRISTO)]
+
+::EXPONE::
+
+Él se ==dio== por nosotros,                                                                              [INDICATIVO]
+
+[S - EL(CRISTO) - TU(TITO)]
+
+::EXPONE::
+
+Esto ==habla==,                                                                                                 [IMPERATIVO]
+
+::EXPONE::
+
++[Y]()+ ==exhorta==                                                                                                [IMPERATIVO]
+
+::EXPONE::
+
+[y]() ==reprende== con toda autoridad.                                                             [IMPERATIVO]
+
+[S - TU(TITO) - EL (ALGUEN)]
+
+::EXPONE::
+
+Que nadie te ==menosprecie==.                                                                     [IMPERATIVO]
+
+[S - EL (ALGUEN) - TU(TITO) ]
+
+::EXPONE::
+
+==Recuérdales== que estén sujetos a los gobernantes, a las autoridades; que sean obedientes, que estén preparados para toda buena obra.                                                                                                           [IMPERATIVO]
+
+[S - TU(TITO) - NOSOTROS]
+
+::RAZON::
+
+[Porque]() nosotros también en otro tiempo ==éramos== necios, desobedientes, extraviados, esclavos de deleites y placeres diversos, viviendo en malicia y envidia, aborrecibles *y* odiándonos unos a otros.  [INDICATIVO]
+
+[S - NOSOTROS - EL (DIOS)]
+
+::EXPONE::
+
+Él nos ==salvó==, no por las obras de justicia                                               [INDICATIVO]
+
+[S - EL (DIOS) - YO (PABLO)]
+
+::EXPONE::
+
+estas cosas ==quiero== que hables con firmeza,                                        [INDICATIVO]
+
+[S - YO (PABLO) - EL (ESTAS COSAS)]
+
+::EXPONE::
+
+Estas cosas ==son== buenas y útiles para los hombres.                            [INDICATIVO]
+
+[S - EL (ESTAS COSAS) - TU(TITO)]
+
+::CONTRASTE::
+
+[Pero]() ==evita== controversias necias, genealogías, contiendas y discusiones acerca de la ley,    [IMPERATIVO]
+
+[S - TU(TITO) - ELLOS (ESTAS COSAS) ]
+
+::RAZON::
+
+[porque]() ==son== sin provecho y sin valor.                                                     [INDICATIVO]
+
+[S - ELLOS (ESTAS COSAS) - TU(TITO)]
+
+::EXPONE::
+
+Al hombre que cause divisiones, después de la primera y segunda amonestación, ==recházalo==, sabiendo que    [IMPERATIVO]
+
+[S - TU(TITO) - EL (HOMBRE)]
+
+::EXPONE::
+
+el tal ==es perverso==                                                                                     [INDICATIVO]
+
+::EXPONE::
+
+[y]() ==está pecando==, habiéndose condenado a sí mismo.                       [INDICATIVO]
+
+---
+
+[S - EL (HOMBRE) - TU(TITO)]
+
+::EXPONE::
+
+==procura== venir a verme en Nicópolis,                                                                       [IMPERATIVO]  [M]
+
+[S - TU(TITO) - YO(PABLO)]
+
+::RAZON::
+
+[porque]() ==he decidido== pasar allí el invierno.                                           [INDICATIVO]
+
+[S - YO(PABLO) - TU(TITO)] 
+
+::EXPONE::
+
+==Encamina== con diligencia a Zenas, intérprete de la ley, y a Apolos,   [IMPERATIVO]
+
+[S - TU(TITO) - ELLOS (LOS NUESTROS)]
+
+::EXPONE::
+
+[Y](de) que los nuestros ==aprendan== a ocuparse en buenas obras, atendiendo a las necesidades apremiante   [IMPERATIVO]
+
+[S - ELLOS (LOS NUESTROS) - ELLOS (LOS QUE ESTAN)]
+
+::EXPONE::
+
+Todos los que están conmigo ==te saludan==.                                           [INDICATIVO]
+
+[S - ELLOS (LOS QUE ESTAN) - TU (TITO)]
+
+::EXPONE::
+
+==Saluda== a los que nos aman en *la* fe.                                                    [IMPERATIVO]
