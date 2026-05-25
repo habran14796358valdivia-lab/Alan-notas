@@ -514,9 +514,11 @@ Uno de ellos, su propio profeta, ==dijo==:                                      
 
 Este testimonio ==es== verdadero.                                                                    [INDICATIVO]
 
+---
+
 [S - EL (TESTIMONIO) - TU (TITO)]
 
-[Por eso,](di jen aitian) ==repréndelos== severamente                                                                                          [IMPERATIVO]
+[Por eso,](di jen aitian) ==repréndelos== severamente                                                                                          [IMPERATIVO]  [M]
 
 [S - TU (TITO) - EL (ALGUIEN) ]
 
@@ -530,7 +532,7 @@ tanto su mente como su conciencia están ==corrompidas==.                     [I
 
 [S - ELLOS - TU (TITO) ]
 
-[Pero]() en cuanto a ti, ==enseña==                                                                       [IMPERATIVO]
+[Pero]() en cuanto a ti, ==enseña==                                                              				         [IMPERATIVO]
 
 Asimismo, ==exhorta==                                                                                      [IMPERATIVO]
 
@@ -596,9 +598,11 @@ el tal ==es perverso==                                                          
 
 [y]() ==está pecando==, habiéndose condenado a sí mismo.                       [INDICATIVO]
 
+---
+
 [S - EL (HOMBRE) - TU(TITO)]
 
-==procura== venir a verme en Nicópolis,                                                                       [IMPERATIVO]
+==procura== venir a verme en Nicópolis,                                                                       [IMPERATIVO]  [M]
 
 [S - TU(TITO) - YO(PABLO)]
 
