@@ -690,7 +690,7 @@ tanto su mente como su conciencia están ==corrompidas==.                     [I
 
 [pero]() con sus hechos lo ==niegan==,                                                                 [INDICATIVO]
 
-
+++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++
 
 [S - ELLOS - TU (TITO) ]
 
@@ -740,6 +740,8 @@ Esto ==habla==,                                                                 
 
 Que nadie te ==menosprecie==.                                                                     [IMPERATIVO]
 
+++++++++++++++++++++++++++++++++++
+
 [S - EL (ALGUEN) - TU(TITO) ]
 
 ::EXPONE::
@@ -764,6 +766,8 @@ Que nadie te ==menosprecie==.                                                   
 
 estas cosas ==quiero== que hables con firmeza,                                        [INDICATIVO]
 
+++++++++++++++++++++++++
+
 [S - YO (PABLO) - EL (ESTAS COSAS)]
 
 ::EXPONE::
@@ -781,6 +785,8 @@ Estas cosas ==son== buenas y útiles para los hombres.                          
 ::RAZON::
 
 [porque]() ==son== sin provecho y sin valor.                                                     [INDICATIVO]
+
+++++++++++++++++++++++++++
 
 [S - ELLOS (ESTAS COSAS) - TU(TITO)]
 
