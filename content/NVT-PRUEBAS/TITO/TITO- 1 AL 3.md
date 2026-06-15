@@ -288,11 +288,11 @@ Antes bien, debe ser hospitalario, amante de lo bueno, prudente, justo, santo, d
 
 ​			[para que]() ==sea== capaz también de exhortar con sana doctrina y refutar a los que contradicen.
 
-[		Porque]() ==hay== muchos rebeldes, habladores vanos y engañadores, especialmente los de la circuncisión, 
+​				[Porque]() ==hay== muchos rebeldes, habladores vanos y engañadores, especialmente los de la circuncisión, 
 
-​			[a quienes](jus) ==es== preciso tapar la boca, 
+​					[a quienes](jus) ==es== preciso tapar la boca, 
 
-​			[porque](joitines) ==están trastornando== familias enteras, 
+​					[porque](joitines) ==están trastornando== familias enteras, 
 
 enseñando por ganancias deshonestas, cosas que no ==deben==.
 
@@ -652,6 +652,8 @@ ETIQUETAS
 
 enseñando por ganancias deshonestas, cosas que no ==deben==.              [INDICATIVO]
 
+++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++
+
 [S - EL (COSAS) - EL (ALGUIEN)]
 
 ::EXPONE::
@@ -664,19 +666,19 @@ Uno de ellos, su propio profeta, ==dijo==:                                      
 
 Este testimonio ==es== verdadero.                                                                    [INDICATIVO]
 
----
-
 [S - EL (TESTIMONIO) - TU (TITO)]
 
 ::RAZON::
 
-[Por eso,](di jen aitian) ==repréndelos== severamente                                                                                          [IMPERATIVO]  [M]
+[Por eso,](di jen aitian) ==repréndelos== severamente                                                                                          [IMPERATIVO]  
 
 [S - TU (TITO) - EL (ALGUIEN) ]
 
 ::EXPONE::
 
 tanto su mente como su conciencia están ==corrompidas==.                     [INDICATIVO]
+
+++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++
 
 [S - EL (ALGUIEN) -  ELLOS]
 
@@ -687,6 +689,8 @@ tanto su mente como su conciencia están ==corrompidas==.                     [I
 ::CONTRASTE::
 
 [pero]() con sus hechos lo ==niegan==,                                                                 [INDICATIVO]
+
+
 
 [S - ELLOS - TU (TITO) ]
 
