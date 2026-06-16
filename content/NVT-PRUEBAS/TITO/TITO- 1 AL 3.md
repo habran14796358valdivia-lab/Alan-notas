@@ -630,6 +630,12 @@ ETIQUETAS
 
 ---
 
+**Dios prometió y a su tiempo manifestó su palabra **
+
+**Pablo encarga a Tito, hay quienes enseñan lo que no debe**
+
+---
+
 [S - EL (DIOS)]
 
 ::EXPONE::
@@ -653,6 +659,10 @@ ETIQUETAS
 enseñando por ganancias deshonestas, cosas que no ==deben==.              [INDICATIVO]
 
 ++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++
+
+**El testimonio es verdadero, por eso reprende**
+
+---
 
 [S - EL (COSAS) - EL (ALGUIEN)]
 
@@ -680,6 +690,10 @@ tanto su mente como su conciencia están ==corrompidas==.                     [I
 
 ++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++
 
+**Su profesión se contrasta con sus hechos, enseña y exhorta porque su gracia se ha manifestado**
+
+---
+
 [S - EL (ALGUIEN) -  ELLOS]
 
 ::EXPONE::
@@ -689,8 +703,6 @@ tanto su mente como su conciencia están ==corrompidas==.                     [I
 ::CONTRASTE::
 
 [pero]() con sus hechos lo ==niegan==,                                                                 [INDICATIVO]
-
-++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++
 
 [S - ELLOS - TU (TITO) ]
 
@@ -741,6 +753,8 @@ Esto ==habla==,                                                                 
 Que nadie te ==menosprecie==.                                                                     [IMPERATIVO]
 
 ++++++++++++++++++++++++++++++++++
+
+recuerdales, nosotros eramos asi y el nos salvo 
 
 [S - EL (ALGUEN) - TU(TITO) ]
 
