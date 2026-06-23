@@ -301,7 +301,7 @@ porque he decidido pasar allí el invierno.
 
 ### Tito 3:13    Encamina con diligencia a Zenas, intérprete de la ley, y a Apolos, para que nada les falte.
 
-Encamina con diligencia a Zenas, 
+#### Encamina con diligencia a Zenas, 
 intérprete de la ley, 
 y a Apolos, 
 para que nada les falte.
