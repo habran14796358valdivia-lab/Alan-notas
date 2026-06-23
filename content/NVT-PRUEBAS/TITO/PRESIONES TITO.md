@@ -196,9 +196,15 @@ Todos los que están conmigo ==te saludan==. ==Saluda== a los que nos aman en *l
 
 ### BLOQUE 1
 
+---
+
+**UN ENCARGO CONFORME A LA FE Y VERDAD SEGUN PIEDAD CON LA ESPERANZA DE VIDA ETERNA**
+
+---
+
 ENCOMENDADO CONFORME A LA PALABRA MANIFESTADA/ SU PALABRA MANIFESTADA Y CONFIADA CONFORME AL MANDAMIENTO
 
-Pablo, siervo de Dios y apóstol de Jesucristo, conforme a la fe de los escogidos de Dios y al pleno conocimiento de la verdad que es según la piedad, con la esperanza de vida eterna, la cual Dios, que no miente, prometió desde los tiempos eternos, y a su debido tiempo, manifestó Su palabra por la predicación que me fue confiada, conforme al mandamiento de Dios nuestro Salvador, a Tito, verdadero hijo en la común fe: Gracia y paz de parte de Dios el Padre y de Cristo Jesús nuestro Salvador.
+Pablo, siervo de Dios y apóstol de Jesucristo, **`conforme a la fe de los escogidos de Dios y al pleno conocimiento de la verdad que es según la piedad, con la esperanza de vida eterna, la cual Dios, que no miente, prometió desde los tiempos eternos, y a su debido tiempo, manifestó Su palabra por la predicación que me fue confiada, conforme al mandamiento de Dios nuestro Salvador, a Tito, verdadero hijo en la común fe`**: Gracia y paz de parte de Dios el Padre y de Cristo Jesús nuestro Salvador.
 
 ### BLOQUE 2
 
