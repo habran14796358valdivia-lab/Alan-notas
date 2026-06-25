@@ -1,3 +1,10 @@
+Title: Tito
+subtitle: "La verdad segun piedad"
+author: "CGV"
+cover: "images/tapa.png"
+version: "0.1"
+date: "2026-02-20"
+
 Tito md
 
 ### Tito 1:1    Pablo, siervo de Dios y apóstol de Jesucristo, conforme a la fe de los escogidos de Dios y al pleno conocimiento de la verdad que es según la piedad,
