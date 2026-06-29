@@ -91,8 +91,82 @@ En amor nos predestinó 5
 				​			que fuimos los primeros en esperar en Cristo, 
 	
 				​			seamos para alabanza de Su gloria. 
+	
+				[En Él]() también ustedes, 
+	
+				​	después de escuchar el mensaje de la verdad,
+	
+				​	el evangelio de su salvación, 
+	
+				​	y habiendo creído, 
+	
+				​		fueron sellados [en Él]() con el Espíritu Santo de la promesa, 
+	
+				​			que nos es dado como garantía de nuestra herencia, 
+	
+				​			con miras a la redención de la posesión adquirida de Dios, 
+	
+				​				para alabanza de Su gloria.  
 
-[En Él]() también ustedes, después de escuchar el mensaje de la verdad, el evangelio de su salvación, y habiendo creído, fueron sellados [en Él]() con el Espíritu Santo de la promesa, que nos es dado como garantía de nuestra herencia, con miras a la redención de la posesión adquirida de Dios, para alabanza de Su gloria.  Por esta razón también yo, habiendo oído de la fe en el Señor Jesús que hay entre ustedes, y de su amor por todos los santos, no ceso de dar gracias por ustedes, mencionándolos en mis oraciones, pido que ==el Dios de nuestro Señor Jesucristo, el Padre de gloria==, les dé espíritu de sabiduría y de revelación en un mejor conocimiento [de Él](). Mi oración es que los ojos de su corazón les sean iluminados, para que sepan cuál es la esperanza de Su llamamiento, cuáles son las riquezas de la gloria de Su herencia en los santos, y cuál es la extraordinaria grandeza ==de Su poder== para con nosotros los que creemos, conforme a la eficacia de la fuerza de Su poder. Ese poder obró [en Cristo]() cuando lo resucitó de entre los muertos y lo sentó ==a Su diestra== en los lugares celestiales, muy por encima de todo principado, autoridad, poder, dominio y de todo nombre que se nombra, no solo en este siglo sino también en el venidero. Y todo lo sometió bajo Sus pies, y [a Él]() lo dio por cabeza sobre todas las cosas a la iglesia, la cual es Su cuerpo, la plenitud de Aquel que lo llena todo en todo. [Y Él]() les dio vida a ustedes, que estaban muertos en sus delitos y pecados, en los cuales anduvieron en otro tiempo según la corriente de este mundo, conforme al príncipe de la potestad del aire, el espíritu que ahora opera en los hijos de desobediencia. Entre ellos también todos nosotros en otro tiempo vivíamos en las pasiones de nuestra carne, satisfaciendo los deseos de la carne y de la mente, y éramos por naturaleza hijos de ira, lo mismo que los demás. Pero ==Dios==, que es rico en misericordia, por causa del gran amor con que nos amó, aun cuando estábamos muertos en nuestros delitos, ==nos dio== vida juntamente [con Cristo]() (por gracia ustedes han sido salvados), y [con Él]() nos resucitó y [con Él]() nos sentó en los lugares celestiales en Cristo Jesús, a fin de poder mostrar en los siglos venideros las sobreabundantes riquezas de ==Su gracia por Su bondad== para con nosotros [en Cristo Jesús.]() Porque por gracia ustedes han sido salvados por medio de la fe, y esto no procede de ustedes, sino que es don ==de Dios==; no por obras, para que nadie se gloríe. Porque somos ==hechura Suya==, creados [en Cristo Jesús]() para hacer buenas obras, las cuales ==Dios preparó== de antemano para que anduviéramos en ellas.  Por tanto, recuerden que en otro tiempo, ustedes los gentiles en la carne, que son llamados «Incircuncisión» por la tal llamada «Circuncisión», hecha en la carne por manos humanas, recuerden que en ese tiempo ustedes estaban [separados de Cristo](), excluidos de la ciudadanía de Israel, extraños a los pactos de la promesa, sin tener esperanza y sin Dios en el mundo. Pero ahora [en Cristo Jesús](), ustedes, que en otro tiempo estaban lejos, han sido acercados por la sangre [de Cristo](). Porque [Él]() mismo es nuestra paz, y de ambos pueblos hizo uno, derribando la pared intermedia de separación, poniendo fin a la enemistad en Su carne, la ley de los mandamientos expresados en ordenanzas, para crear [en Él]() mismo de los dos un nuevo hombre, estableciendo así la paz, y para ==reconciliar con Dios== a los dos en un cuerpo por medio de la cruz, habiendo dado muerte en ella a la enemistad. [Y VINO]() Y ANUNCIÓ PAZ A USTEDES QUE ESTABAN LEJOS, Y PAZ A LOS QUE ESTABAN CERCA. Porque por medio [de Cristo]() los unos y los otros tenemos nuestra ==entrada al Padre== en un mismo Espíritu. Así pues, ustedes ya no son extraños ni extranjeros, sino que son conciudadanos de los santos y son de la familia ==de Dios==. Están edificados sobre el fundamento de los apóstoles y profetas, [siendo Cristo Jesús mismo la piedra angular](), en quien todo el edificio, bien ajustado, va creciendo para ser un templo santo ==en el Señor==. [En Crist]()o también ustedes son juntamente edificados para ==morada de Dios== en el Espíritu. 
+
+
+Por esta razón también yo, 
+
+​	habiendo oído de la fe en el Señor Jesús 
+
+​	que hay entre ustedes, 
+
+​	y de su amor por todos los santos, 
+
+​		no ceso de dar gracias por ustedes,
+
+​		mencionándolos en mis oraciones, 
+
+​			pido que ==el Dios de nuestro Señor Jesucristo,==
+
+​			==el Padre de gloria==, 
+
+​				les dé espíritu de sabiduría 
+
+​				y de revelación en un mejor conocimiento [de Él](). 
+
+Mi oración es que los ojos de su corazón les sean iluminados, 
+
+​	para que sepan cuál es la esperanza de Su llamamiento, 
+
+​	cuáles son las riquezas de la gloria de Su herencia en los santos, 
+
+​	y cuál es la extraordinaria grandeza ==de Su poder== 
+
+​		para con nosotros los que creemos, 
+
+​		conforme a la eficacia de la fuerza de Su poder. 
+
+​			Ese poder obró [en Cristo]() cuando lo resucitó de entre los muertos 
+
+​			y lo sentó ==a Su diestra== en los lugares celestiales, 
+
+​				muy por encima de todo principado, 
+
+​				autoridad, 
+
+​				poder, 
+
+​				dominio 
+
+​				y de todo nombre que se nombra, 
+
+​					no solo en este siglo sino también en el venidero. 
+
+​				Y todo lo sometió bajo Sus pies, 
+
+​				y [a Él]() lo dio por cabeza sobre todas las cosas a la iglesia, 
+
+​					la cual es Su cuerpo, 
+
+​					la plenitud de Aquel que lo llena todo en todo. 
+
+[Y Él]() les dio vida a ustedes, que estaban muertos en sus delitos y pecados, en los cuales anduvieron en otro tiempo según la corriente de este mundo, conforme al príncipe de la potestad del aire, el espíritu que ahora opera en los hijos de desobediencia. Entre ellos también todos nosotros en otro tiempo vivíamos en las pasiones de nuestra carne, satisfaciendo los deseos de la carne y de la mente, y éramos por naturaleza hijos de ira, lo mismo que los demás. Pero ==Dios==, que es rico en misericordia, por causa del gran amor con que nos amó, aun cuando estábamos muertos en nuestros delitos, ==nos dio== vida juntamente [con Cristo]() (por gracia ustedes han sido salvados), y [con Él]() nos resucitó y [con Él]() nos sentó en los lugares celestiales en Cristo Jesús, a fin de poder mostrar en los siglos venideros las sobreabundantes riquezas de ==Su gracia por Su bondad== para con nosotros [en Cristo Jesús.]() Porque por gracia ustedes han sido salvados por medio de la fe, y esto no procede de ustedes, sino que es don ==de Dios==; no por obras, para que nadie se gloríe. Porque somos ==hechura Suya==, creados [en Cristo Jesús]() para hacer buenas obras, las cuales ==Dios preparó== de antemano para que anduviéramos en ellas.  Por tanto, recuerden que en otro tiempo, ustedes los gentiles en la carne, que son llamados «Incircuncisión» por la tal llamada «Circuncisión», hecha en la carne por manos humanas, recuerden que en ese tiempo ustedes estaban [separados de Cristo](), excluidos de la ciudadanía de Israel, extraños a los pactos de la promesa, sin tener esperanza y sin Dios en el mundo. Pero ahora [en Cristo Jesús](), ustedes, que en otro tiempo estaban lejos, han sido acercados por la sangre [de Cristo](). Porque [Él]() mismo es nuestra paz, y de ambos pueblos hizo uno, derribando la pared intermedia de separación, poniendo fin a la enemistad en Su carne, la ley de los mandamientos expresados en ordenanzas, para crear [en Él]() mismo de los dos un nuevo hombre, estableciendo así la paz, y para ==reconciliar con Dios== a los dos en un cuerpo por medio de la cruz, habiendo dado muerte en ella a la enemistad. [Y VINO]() Y ANUNCIÓ PAZ A USTEDES QUE ESTABAN LEJOS, Y PAZ A LOS QUE ESTABAN CERCA. Porque por medio [de Cristo]() los unos y los otros tenemos nuestra ==entrada al Padre== en un mismo Espíritu. Así pues, ustedes ya no son extraños ni extranjeros, sino que son conciudadanos de los santos y son de la familia ==de Dios==. Están edificados sobre el fundamento de los apóstoles y profetas, [siendo Cristo Jesús mismo la piedra angular](), en quien todo el edificio, bien ajustado, va creciendo para ser un templo santo ==en el Señor==. [En Crist]()o también ustedes son juntamente edificados para ==morada de Dios== en el Espíritu. 
 
 Por esta causa yo, Pablo, prisionero de Cristo Jesús por amor de ustedes los gentiles si en verdad han oído de la dispensación de la gracia de Dios que me fue dada para ustedes; que por revelación me fue dado a conocer el misterio, tal como antes les escribí brevemente. En vista de lo cual, leyendo, podrán entender mi comprensión del misterio de Cristo, que en otras generaciones no se dio a conocer a los hijos de los hombres, como ahora ha sido revelado a Sus santos apóstoles y profetas por el Espíritu; a saber, que los gentiles son coherederos y miembros del mismo cuerpo, participando igualmente de la promesa en Cristo Jesús mediante el evangelio. Es de este evangelio que fui hecho ministro, conforme al don de la gracia de Dios que se me ha concedido según la eficacia de Su poder. A mí, que soy menos que el más pequeño de todos los santos, se me concedió esta gracia: anunciar a los gentiles las inescrutables riquezas de Cristo, y sacar a la luz cuál es la dispensación del misterio que por los siglos ha estado oculto en Dios, creador de todas las cosas. De este modo, la infinita sabiduría de Dios puede ser dada a conocer ahora por medio de la iglesia a los principados y potestades en los lugares celestiales, conforme al propósito eterno que llevó a cabo en Cristo Jesús nuestro Señor, en quien tenemos libertad y acceso a Dios con confianza por medio de la fe en Él.   
 
