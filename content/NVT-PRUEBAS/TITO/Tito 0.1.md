@@ -1,9 +1,15 @@
-Title: No esten sin Fruto
+---
+title: "No esten sin Fruto"
 subtitle: "Un encargo conforme a la Fe, Verdad, Piedad y Esperanza"
 author: "CGV"
-cover: "images/tapa.png"
 version: "0.1"
 date: "2026-02-20"
+cover: ""
+---
+
+:::title No esten sin Fruto :::
+
+:::subtitle Un encargo conforme a la Fe, Verdad, Piedad y Esperanza :::
 
 # No esten sin Fruto
 ## Un encargo conforme a la Fe, Verdad, Piedad y Esperanza
