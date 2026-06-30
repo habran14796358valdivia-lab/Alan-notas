@@ -11,6 +11,11 @@ cover: ""
 
 :::subtitle Un encargo conforme a la Fe, Verdad, Piedad y Esperanza :::
 
+# Introducion
+## Proposito de la carta
+## Autor y destinatarios
+## Importancia 
+
 # No esten sin Fruto
 ## Un encargo conforme a la Fe, Verdad, Piedad y Esperanza
 
