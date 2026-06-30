@@ -1,11 +1,14 @@
-Title: Tito
-subtitle: "La verdad segun piedad"
+Title: No esten sin Fruto
+subtitle: "Un encargo conforme a la Fe, Verdad, Piedad y Esperanza"
 author: "CGV"
 cover: "images/tapa.png"
 version: "0.1"
 date: "2026-02-20"
 
-Tito md
+# No esten sin Fruto
+## Un encargo conforme a la Fe, Verdad, Piedad y Esperanza
+
+## Tito 1:1 - 4
 
 ### Tito 1:1    Pablo, siervo de Dios y apóstol de Jesucristo, conforme a la fe de los escogidos de Dios y al pleno conocimiento de la verdad que es según la piedad,
 
@@ -42,6 +45,8 @@ Tito md
 #### Gracia y paz de parte de Dios el Padre 
 
 #### y de Cristo Jesús nuestro Salvador. 
+
+## Tito 1:5 - 16 
 
 ### Tito 1:5    Por esta causa te dejé en Creta, para que pusieras en orden lo que queda, y designaras ancianos en cada ciudad como te mandé.
 
@@ -172,6 +177,8 @@ Tito md
 #### y desobedientes 
 
 #### e inútiles para cualquier obra buena.
+
+## Tito 2:1 - 15
 
 ### Tito 2:1    Pero en cuanto a ti, enseña lo que está de acuerdo con la sana doctrina:
 
@@ -313,6 +320,8 @@ Tito md
 
 #### Que nadie te menosprecie.
 
+## Tito 3:1 - 11 
+
 ### Tito 3:1    Recuérdales que estén sujetos a los gobernantes, a las autoridades; que sean obedientes, que estén preparados para toda buena obra.
 
 #### Recuérdales que estén sujetos a los gobernantes, 
@@ -424,6 +433,8 @@ Tito md
 #### y está pecando, 
 
 #### habiéndose condenado a sí mismo.
+
+## Tito 3:12 - 15 
 
 ### Tito 3:12    Cuando te envíe a Artemas o a Tíquico, procura venir a verme en Nicópolis, porque he decidido pasar allí el invierno.
 
