@@ -11,15 +11,15 @@ cover: ""
 
 :::subtitle Un encargo conforme a la Fe, Verdad, Piedad y Esperanza :::
 
-# Introducion
+# Introducción
 
-##### 
+#####
 
-## Proposito de la carta
+## Propósito de la carta
 ## Autor y destinatarios
 ## Importancia 
 
-# No esten sin Fruto
+# No estén sin Fruto / Para que no estén sin fruto
 ## Un encargo conforme a la Fe, Verdad, Piedad y Esperanza
 
 ## Tito 1:1 - 4 Un Encargo conforme a la fe, verdad, piedad y esperanza
@@ -334,7 +334,7 @@ cover: ""
 
 #### Que nadie te menosprecie.
 
-## Tito 3:1 - 11 Recuerdales, Habla y Evita
+## Tito 3:1 - 11 Recuérdales, Habla y Evita
 
 ### Tito 3:1    Recuérdales que estén sujetos a los gobernantes, a las autoridades; que sean obedientes, que estén preparados para toda buena obra.
 
