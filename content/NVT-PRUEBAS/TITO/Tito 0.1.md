@@ -13,11 +13,74 @@ cover: ""
 
 # Introducción
 
-#####
+La isla de creta muy famosa en la historia se forjo un estereotipo dentro del mundo antiguo (greco-romano), lo cual definio su cultura.
+
+Creta se  caracterizo por la piratería, al ser un punto dentro de la ruta marítima de comercio, los cretenses constantemente asaltaban los cargamentos de los barcos.
+
+Los cretenses habían afirmado que la tumba de zeus (júpiter) se encontraba en su isla, esto hizo estallar al mundo conocido debido a la adoración del panteón de los dioses, para ellos zeus era el dios eterno e inmortal.
+
+Los antiguos eruditos se referían a creta de una manera despectiva, Estrabón, dice: "Los cretenses están envueltos en constantes disputas civiles y prácticas de piratería."[^1]
+
+- Epimenes, dice: "Κρῆτες ἀεὶ ψεῦσται, κακὰ θηρία, γαστέρες ἀργαί" "Los cretenses siempre mentirosos, malas bestias, barrigas ociosas.”[^2]
+
+- Polibio, dice: “Creta ha adoptado un sistema de vida que es el único sin excepción en el mundo que carece de moral y lo considera una virtud.”[^3]
+
+- Platón, aunque este mismo no se refiere de manera despectiva de creta si enfatiza aspectos de su cultura, organización y educación, que después seria utilizado para referirse a los cretenses como glotones ociosos.
+
+En creta existía el "andreida" un comedor publico, para ellos fomentaba la igualdad social y  reforzaba la disciplina. Los demás griegos considerarían esta costumbre como exceso de festividad, ocio o glotonería.
+
+- Los cretenses eran considerados desordenados, son como bestias salvajes.... dice Epimanes.
+
+Aunque los cretenses eran conocidos por esto según la cultura romano, Pablo no trata nada relacionado a la cultura en su carta, simplemente lo usa para referenciar a un grupo.
+
+## Contexto histórico 
+
+Lo primero que podemos notar alrededor de la carta a Tito es el lugar, Creta, si revisamos bíblicamente la propagación del evangelio esto nos llevara al 60-61 d.C.
+
+Esto seria mientras Pablo se encuentra rumbo a Roma en calidad de prisionero. Hechos 27:1, 7-8
+
+En Hechos 27:9 Lucas decribe que paso mucho tiempo, en el contexto vemos que Pablo y los tripulantes habian permanecido en creta por un tiempo. Hechos 27:7-12
+
+Aunque no se nos dice el tiempo, Pablo pudo haber estado aununciando y enseñando el evangelio, como lo haria posteriormente en la isla de malta. Hechos 28:7-10
+
+Después de esto Pablo llegaría a Roma como prisionero, donde permanecería por dos años en una casa. Hechos 28:16, 30-31
+
+- Pablo habría permanecido en prisión domiciliaria hasta el 63 d.C. Lucas no nos relata de lo que sucedió después, según la tradición Pablo habría sido liberado o habría tenido libertad de viajar.
+
+- Pablo habría escrito la carta a los Efesios, Filipenses, Colosenses y Filemón durante este encarcelamiento, todas fechadas entre el 61-62 d.C. o inicios del 63 d.C
+
+- En estas cartas Pablo menciona su encarcelamiento o espera a ser liberado. Efesios 6:19-20; Filipenses 1:12-14, 19-20; Colosenses 4:3-4, 10, 18; Filemón 1:1, 22, 23
+
+Tras su liberación Pablo habría emprendido otro viaje a macedonia, Asia menor (Éfeso, donde dejo a Timoteo), Creta (donde dejo a Tito). 1 Timoteo 1:3, 3:14-15; Tito 1:5, 12
+
+Después veríamos en 2 Timoteo 4:10 que Tito fue a Dalmacia, esto después de Creta y Nicopolis.
+
+Según la tradición después de esto, Pablo volvería a ser llevado a prisión desde el 64-67 d.C. donde moriría a manos de Nerón en Roma.
+
+
+## Autor y destinatarios
+
+Vemos que el autor se identifica como Pablo, siervo de Dios y apostol de Jesucristo. Tito 1:1
+
+Al igual que en muchas otras cartas vemos que el autor es Pablo antes conocido como Saulo, asi mismo vemos menciones en la escritura de Pablo y Tito estado juntos como compañeros. 2 Corintios 7:6, 13, 8:6, 16, 23; Galatas 2:1, 3
+
+Esta carta podria haber sido escrita entre el 63-64 d.C. al igual que la primera carta a Timoteo en las mismas fechas.
+
+La carta a Tito comunmente es llamada una carta pastoral al igual que 1 y 2 Timoteo, por bastante tiempo se a enfocado que la carta esta dirigida a los pastores, ancianos o lideres de las iglesias locales.
+
+Sin embargo, podremos ver a lo largo de la carta que no solo habla de los ancianos, sino también habla a los hombres mayores, mujeres mayores, a las mujeres jovenes, a los varones jovenes y los siervos. Tito 1:4, 5, 13, 2:2, 3, 6, 9, 3:1, 14
+
+Esta carta abarca a una audiencia grande, es decir, no solamente a Tito o los ancianos, sino a toda la iglesia local.
+
+Aunque Tito es el encargado de enseñar a la iglesia, la enseñanza de la carta es para todos y no solo para algunos.
 
 ## Propósito de la carta
-## Autor y destinatarios
+
 ## Importancia 
+
+Dejemos que la escritura nos enseñe en la verdad y la gracia en la piedad, ¿Como debemos conducirnos como iglesia y como individuos?. La cartaq parece responder no solo con que la verdad alinea con la piedad sino que al hecho de permanecer firmes en la verdad y que solo de la verdad puede provenir una enseñanza saludable asi tambien que la Gracia de Dios es la que nos enseña a vivir piasosamente y como la Gracia de Dios no es en vano paranuestras vidad sino su provivion para conformanos a la esperanza de la vida eterna.
+
+Las iglesia en creta parecen ser iglesias en la cuales faltaba instrucion (enseñar), Pablo dejo a Tito para que se hiciera cargo de completar la enseñanza, en la carta vemos especial enfasis en lo que esta deacuerdo con el conocimiento de la verdad y como está alinea con una vida de piedad, esto es tanto como individuos y como iglesia.
 
 # No estén sin Fruto / Para que no estén sin fruto
 ## Un encargo conforme a la Fe, Verdad, Piedad y Esperanza
