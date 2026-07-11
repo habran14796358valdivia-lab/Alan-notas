@@ -60,9 +60,9 @@ Según la tradición después de esto, Pablo volvería a ser llevado a prisión 
 
 ## Autor y destinatarios
 
-Vemos que el autor se identifica como Pablo, siervo de Dios y apostol de Jesucristo. Tito 1:1
+Vemos que el autor se identifica como Pablo, siervo de Dios y apóstol de Jesucristo. Tito 1:1
 
-Al igual que en muchas otras cartas vemos que el autor es Pablo antes conocido como Saulo, asi mismo vemos menciones en la escritura de Pablo y Tito estado juntos como compañeros. 2 Corintios 7:6, 13, 8:6, 16, 23; Galatas 2:1, 3
+Al igual que en muchas otras cartas vemos que el autor es Pablo antes conocido como Saulo, así mismo vemos menciones en la escritura de Pablo y Tito estado juntos como compañeros. 2 Corintios 7:6, 13, 8:6, 16, 23; Gálatas 2:1, 3
 
 Esta carta podria haber sido escrita entre el 63-64 d.C. al igual que la primera carta a Timoteo en las mismas fechas.
 
@@ -75,6 +75,8 @@ Esta carta abarca a una audiencia grande, es decir, no solamente a Tito o los an
 Aunque Tito es el encargado de enseñar a la iglesia, la enseñanza de la carta es para todos y no solo para algunos.
 
 ## Propósito de la carta
+
+Pablo escribe la carta como un encargo para Tito, es curios
 
 ## Importancia 
 
