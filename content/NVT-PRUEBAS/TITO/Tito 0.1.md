@@ -1,5 +1,5 @@
 ---
-title: "No esten sin Fruto"
+title: "El testimonio es verdadero"
 subtitle: "Un encargo conforme a la Fe, Verdad, Piedad y Esperanza"
 author: "CGV"
 version: "0.1"
@@ -7,7 +7,7 @@ date: "2026-02-20"
 cover: ""
 ---
 
-:::title No esten sin Fruto :::
+:::title El testimonio es verdadero:::
 
 :::subtitle Un encargo conforme a la Fe, Verdad, Piedad y Esperanza :::
 
@@ -84,7 +84,7 @@ Dejemos que la escritura nos enseñe en la verdad y la gracia en la piedad, ¿Co
 
 Las iglesia en creta parecen ser iglesias en la cuales faltaba instrucion (enseñar), Pablo dejo a Tito para que se hiciera cargo de completar la enseñanza, en la carta vemos especial enfasis en lo que esta deacuerdo con el conocimiento de la verdad y como está alinea con una vida de piedad, esto es tanto como individuos y como iglesia.
 
-# No estén sin Fruto / Para que no estén sin fruto
+# El Testimonio es Verdadero
 ## Un encargo conforme a la Fe, Verdad, Piedad y Esperanza
 
 ## Tito 1:1 - 4 Un Encargo conforme a la fe, verdad, piedad y esperanza
@@ -257,7 +257,7 @@ Las iglesia en creta parecen ser iglesias en la cuales faltaba instrucion (ense�
 
 #### e inútiles para cualquier obra buena.
 
-## Tito 2:1 - 15 En cuanto a ti Enseña, Exhorta y Muestrate
+## Tito 2:1 - 15 En cuanto a ti Enseña, Exhorta y Muéstrate
 
 ### Tito 2:1    Pero en cuanto a ti, enseña lo que está de acuerdo con la sana doctrina:
 
