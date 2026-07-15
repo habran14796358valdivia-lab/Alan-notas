@@ -258,7 +258,35 @@ Pablo, siervo de Dios y apóstol de Jesucristo, **`conforme a la fe de los escog
 
 ---
 
-Por esta causa te dejé en Creta, para que pusieras en orden lo que queda, y designaras ancianos en cada ciudad como te mandé. Lo designarás, si el anciano es irreprensible, marido de una sola mujer, que tenga hijos creyentes, no acusados de disolución ni de rebeldía. [Porque]() el obispo debe ser irreprensible como administrador de Dios, no obstinado, no iracundo, no dado a la bebida, no pendenciero, no amante de ganancias deshonestas. Antes bien, debe ser hospitalario, amante de lo bueno, prudente, justo, santo, dueño de sí mismo. Debe retener la palabra fiel que es conforme a la enseñanza, para que sea capaz también de exhortar con sana doctrina y refutar a los que contradicen. [Porque]() hay muchos rebeldes, habladores vanos y engañadores, especialmente los de la circuncisión, a quienes es preciso tapar la boca, porque están trastornando familias enteras, enseñando por ganancias deshonestas, cosas que no deben. Uno de ellos, su propio profeta, dijo: «Los cretenses son siempre mentirosos, malas bestias, glotones ociosos». Este testimonio es verdadero.
+Por esta causa te dejé en Creta, para que pusieras en orden lo que queda, y designaras ancianos en cada ciudad como te mandé. 
+
+POR QUE PONER ORDEN? POR QUE DESIGNAR ANCIANOS?
+
+AQUI TITO ES EL ENCARGADO DE DESIGNAR
+
+Lo designarás, si el anciano es irreprensible, marido de una sola mujer, que tenga hijos creyentes, no acusados de disolución ni de rebeldía. [Porque]() el obispo debe ser irreprensible como administrador de Dios, no obstinado, no iracundo, no dado a la bebida, no pendenciero, no amante de ganancias deshonestas. Antes bien, debe ser hospitalario, amante de lo bueno, prudente, justo, santo, dueño de sí mismo. Debe retener la palabra fiel que es conforme a la enseñanza, para que sea capaz también de exhortar con sana doctrina y refutar a los que contradicen.
+
+CUANTO ENFASIS TIENE ESTOS REBELDES?
+
+ESTOS SON LA RAZON DE ESTABLESER ANCIANOS? O DE PONER ORDEN?
+
+ ESTA ES LA RAZON DE ESCRIBIR? POR QUE HAY REBELDES
+
+[Porque]() hay muchos rebeldes, habladores vanos y engañadores, especialmente los de la circuncisión, a quienes es preciso tapar la boca, porque están trastornando familias enteras, enseñando por ganancias deshonestas, cosas que no deben. Uno de ellos, su propio profeta, dijo: «Los cretenses son siempre mentirosos, malas bestias, glotones ociosos». Este testimonio es verdadero.
+
+PABLO CONFIRMA EL TESTIMONIO COMO VERDAD. SI EL TESTIMONIO ES VERDADERO ESO ES PRA PONER ORDEN?
+
+EN EL CONTEXTO CAMBIO DE ESOS HOMBRES A LOS CRETENSES 
+
+ESCRIBE POR EL TESTIMONIO ES VERDADERO? 
+
+AQUI TITO ES EL ENCARGADO DE CORREGIR
+
+PABLO MUESTRA UN HECHO PARA LOS PUROS TODO ES PURO
+
+PABLO MUESTRA OTRO HECHO PARA CORROMPIDOS NADA ES PURO
+
+DICEN CONOCER PERO CON HECHOS LO NIEGAN
 
 Por eso, repréndelos severamente para que sean sanos en la fe, y no presten atención a mitos judaicos y a mandamientos de hombres que se apartan de la verdad. Todas las cosas son puras para los puros, pero para los corrompidos e incrédulos nada es puro, sino que tanto su mente como su conciencia están corrompidas. ==Profesan conocer a Dios, pero con sus hechos lo niegan, siendo abominables y desobedientes e inútiles para cualquier obra buena.== 
 
