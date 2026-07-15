@@ -7,7 +7,7 @@ date: "2026-02-20"
 cover: ""
 ---
 
-:::title El testimonio es verdadero:::
+:::title El testimonio es verdadero Por esto te deje:::
 
 :::subtitle Un encargo conforme a la Fe, Verdad, Piedad y Esperanza :::
 
