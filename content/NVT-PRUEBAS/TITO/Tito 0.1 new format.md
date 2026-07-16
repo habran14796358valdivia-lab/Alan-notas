@@ -89,7 +89,13 @@ Tito resulto se una carta difícil de observar debido a la simplicidad de lo que
 
 ### Tito 1:1    Pablo, siervo de Dios y apóstol de Jesucristo, conforme a la fe de los escogidos de Dios y al pleno conocimiento de la verdad que es según la piedad,
 
-Pablo, siervo de Dios 
+Pablo, 
+
+- La carta abre con Pablo presentándolo como el autor de la misma 
+
+siervo de Dios 
+
+- Pablo es introducido como "siervo de Dios" 
 
 y apóstol de Jesucristo, 
 
