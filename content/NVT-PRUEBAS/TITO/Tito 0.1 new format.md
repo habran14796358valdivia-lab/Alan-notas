@@ -76,13 +76,11 @@ Aunque Tito es el encargado de enseñar a la iglesia, la enseñanza de la carta 
 
 ## Propósito de la carta
 
-Pablo escribe la carta como un encargo para Tito, es curios
+Pablo escribe la carta como un encargo para Tito, el debía poner en orden todo lo que estaba pasando en las iglesias de creta. La carta no responde directamente a que debía ordenar sino mas bien lo va desarrollando a lo largo de la carta.
 
 ## Importancia 
 
-Dejemos que la escritura nos enseñe en la verdad y la gracia en la piedad, ¿Como debemos conducirnos como iglesia y como individuos?. La cartaq parece responder no solo con que la verdad alinea con la piedad sino que al hecho de permanecer firmes en la verdad y que solo de la verdad puede provenir una enseñanza saludable asi tambien que la Gracia de Dios es la que nos enseña a vivir piasosamente y como la Gracia de Dios no es en vano paranuestras vidad sino su provivion para conformanos a la esperanza de la vida eterna.
-
-Las iglesia en creta parecen ser iglesias en la cuales faltaba instrucion (enseñar), Pablo dejo a Tito para que se hiciera cargo de completar la enseñanza, en la carta vemos especial enfasis en lo que esta deacuerdo con el conocimiento de la verdad y como está alinea con una vida de piedad, esto es tanto como individuos y como iglesia.
+Tito resulto se una carta dificil de observar debido a la simplicidad de lo que comunica, sin embargo la carta a Tito contiene una tension que se desenvuelve en la carta, la conducta alineada a la realidad
 
 # Por esta causa te deje
 ## Un encargo conforme a la Fe, Verdad, Piedad y Esperanza
