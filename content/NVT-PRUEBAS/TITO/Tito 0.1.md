@@ -91,28 +91,19 @@ Tito resulto se una carta difícil de observar debido a la simplicidad de lo que
 
 #### Pablo, siervo de Dios y apóstol de Jesucristo, 
 
-Pablo, 
+##### La carta abre con Pablo presentándolo como el autor de la misma 
 
-- La carta abre con Pablo presentándolo como el autor de la misma 
+##### Pablo es introducido como "siervo de Dios" 
 
-siervo de Dios 
+"siervo" en griego "doulos" se puede traducir como un siervo o esclavo en base al contexto de la carta servidor seria lo mas correcto.
 
-- Pablo es introducido como "siervo de Dios" 
-  - "siervo" en griego "doulos" se puede traducir como un siervo o esclavo en base al contexto de la carta servidor seria lo mas correcto.
+##### En la frase encontramos la dirección, es "sirvo de Dios" Pablo es servidor de Dios.
 
-- En la frase encontramos la dirección, es "sirvo de Dios" Pablo es servidor de Dios.
+##### La frase continua agregando "apóstol de Jesucristo"
 
-y apóstol de Jesucristo, 
+"apóstol" en griego "apostoulos" se refiere aun embajador o mensajero, en el contexto  este seria un emisario del evangelio de Jesús.
 
-- La frase continua agregando "apóstol de Jesucristo"
-  - "apóstol" en griego "apostoulos" se refiere aun embajador o mensajero, en el contexto  este seria un emisario del evangelio de Jesús.
-- Pablo no solo es siervo de Dios sino también apóstol de Jesucristo.
-
-conforme a la fe de los escogidos de Dios 
-
-- 
-
-y al pleno conocimiento de la verdad que es según la piedad
+##### Pablo no solo es siervo de Dios sino también apóstol de Jesucristo.
 
 #### conforme a la fe de los escogidos de Dios  
 
