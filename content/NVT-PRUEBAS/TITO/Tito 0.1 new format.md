@@ -91,39 +91,25 @@ Las iglesia en creta parecen ser iglesias en la cuales faltaba instrucion (ense�
 
 ### Tito 1:1    Pablo, siervo de Dios y apóstol de Jesucristo, conforme a la fe de los escogidos de Dios y al pleno conocimiento de la verdad que es según la piedad,
 
-#### Pablo, siervo de Dios y apóstol de Jesucristo, 
-
-#### conforme a la fe de los escogidos de Dios  
-
-#### y al pleno conocimiento de la verdad 
-
-#### que es según la piedad,
+Pablo, siervo de Dios y apóstol de Jesucristo, conforme a la fe de los escogidos de Dios y al pleno conocimiento de la verdad que es según la piedad
 
 ### Tito 1:2    con la esperanza de vida eterna, la cual Dios, que no miente, prometió desde los tiempos eternos,
 
-#### con la esperanza de vida eterna, 
+con la esperanza de vida eterna, la cual Dios, que no miente,
 
-### la cual Dios, que no miente, 
+==prometió== desde los tiempos eternos, 
 
-#### prometió desde los tiempos eternos,
+
 
 ### Tito 1:3    y a su debido tiempo, manifestó Su palabra por la predicación que me fue confiada, conforme al mandamiento de Dios nuestro Salvador,
 
-#### y a su debido tiempo, 
+[y](de) a su debido tiempo, ==manifestó== Su palabra por la predicación 
 
-#### manifestó Su palabra por la predicación que me fue confiada, 
-
-#### conforme al mandamiento de Dios nuestro Salvador,
+​	[que](jo) me ==fue confiada==, conforme al mandamiento de Dios nuestro Salvador, 
 
 ### Tito 1:4    a Tito, verdadero hijo en la común fe: Gracia y paz de parte de Dios el Padre y de Cristo Jesús nuestro Salvador.
 
-#### a Tito, 
-
-#### verdadero hijo en la común fe: 
-
-#### Gracia y paz de parte de Dios el Padre 
-
-#### y de Cristo Jesús nuestro Salvador. 
+a Tito, verdadero hijo en la común fe: Gracia y paz de parte de Dios el Padre y de Cristo Jesús nuestro Salvador.
 
 ## Tito 1:5 - 16 Ordena, designa y reprende
 
@@ -553,13 +539,7 @@ Las iglesia en creta parecen ser iglesias en la cuales faltaba instrucion (ense�
 
 ---
 
-Pablo, siervo de Dios y apóstol de Jesucristo, conforme a la fe de los escogidos de Dios y al pleno conocimiento de la verdad que es según la piedad, con la esperanza de vida eterna, la cual Dios, que no miente,
 
-==prometió== desde los tiempos eternos, 
-
-[y](de) a su debido tiempo, ==manifestó== Su palabra por la predicación 
-
-​	[que](jo) me ==fue confiada==, conforme al mandamiento de Dios nuestro Salvador, a Tito, verdadero hijo en la común fe: Gracia y paz de parte de Dios el Padre y de Cristo Jesús nuestro Salvador.
 
 [Por esta causa](toutou kjarin) ==te dejé== en Creta, 
 
