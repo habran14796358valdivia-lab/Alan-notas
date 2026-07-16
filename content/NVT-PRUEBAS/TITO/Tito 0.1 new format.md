@@ -96,10 +96,19 @@ Pablo,
 siervo de Dios 
 
 - Pablo es introducido como "siervo de Dios" 
+  - "siervo" en griego "doulos" se puede traducir como un siervo o esclavo en base al contexto de la carta servidor seria lo mas correcto.
+
+- En la frase encontramos la dirección, es "sirvo de Dios" Pablo es servidor de Dios.
 
 y apóstol de Jesucristo, 
 
+- La frase continua agregando "apóstol de Jesucristo"
+  - "apóstol" en griego "apostoulos" se refiere aun embajador o mensajero, en el contexto  este seria un emisario del evangelio de Jesús.
+- Pablo no solo es siervo de Dios sino también apóstol de Jesucristo.
+
 conforme a la fe de los escogidos de Dios 
+
+- 
 
 y al pleno conocimiento de la verdad que es según la piedad
 
