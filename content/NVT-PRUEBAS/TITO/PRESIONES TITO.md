@@ -326,7 +326,27 @@ Esto habla, exhorta y reprende con toda autoridad. Que nadie te menosprecie.
 
 ---
 
-Recuérdales que estén sujetos a los gobernantes, a las autoridades; que sean obedientes, ==que estén preparados para toda buena obra.== Que no injurien a nadie, que no sean contenciosos, sino amables, mostrando toda consideración para con todos los hombres. [Porque]() nosotros también en otro tiempo éramos necios, desobedientes, extraviados, esclavos de deleites y placeres diversos, viviendo en malicia y envidia, aborrecibles y odiándonos unos a otros. Pero cuando se manifestó la bondad de Dios nuestro Salvador, y Su amor hacia la humanidad, Él nos salvó, ==no por las obras de justicia que nosotros hubiéramos hecho==, sino conforme a Su misericordia, por medio del lavamiento de la regeneración y la renovación por el Espíritu Santo, que Él derramó sobre nosotros abundantemente por medio de Jesucristo nuestro Salvador, para que justificados por Su gracia fuéramos hechos herederos según la esperanza de la vida eterna. Palabra fiel es esta; y en cuanto a estas cosas quiero que hables con firmeza, ==para que los que han creído en Dios procuren ocuparse en buenas obras.== Estas cosas son buenas y útiles para los hombres. Pero evita controversias necias, genealogías, contiendas y discusiones acerca de la ley, porque son sin provecho y sin valor. Al hombre que cause divisiones, después de la primera y segunda amonestación, recházalo, sabiendo que el tal es perverso y está pecando, habiéndose condenado a sí mismo.
+AQUI TITO DEBIA RECORDARLES A LA LOS CRETENSES
+
+Recuérdales que estén sujetos a los gobernantes, a las autoridades; que sean obedientes, ==que estén preparados para toda buena obra.== Que no injurien a nadie, que no sean contenciosos, sino amables, mostrando toda consideración para con todos los hombres. 
+
+AQUI DA LA RAZON DE PO QUE RECORDALES ESTAS COSAS
+
+AQUI TAMBIEN MARCA UN CONTRASTE EN LA RAZON 
+
+DIOS ES SUJETO DE LA ACCION EN JESUS
+
+[Porque]() nosotros también en otro tiempo éramos necios, desobedientes, extraviados, esclavos de deleites y placeres diversos, viviendo en malicia y envidia, aborrecibles y odiándonos unos a otros. Pero cuando se manifestó la bondad de Dios nuestro Salvador, y Su amor hacia la humanidad, Él nos salvó, ==no por las obras de justicia que nosotros hubiéramos hecho==, sino conforme a Su misericordia, por medio del lavamiento de la regeneración y la renovación por el Espíritu Santo, que Él derramó sobre nosotros abundantemente por medio de Jesucristo nuestro Salvador, para que justificados por Su gracia fuéramos hechos herederos según la esperanza de la vida eterna.
+
+LO ANTERIOR ES PALABRA FIEL 
+
+PABLO QUIERE QUE TITO HABLE ESTAS COSAS
+
+SE MARCA UN CONTRATE 
+
+AQUI TIO DEBE EVITAR ALGO
+
+Palabra fiel es esta; y en cuanto a estas cosas quiero que hables con firmeza, ==para que los que han creído en Dios procuren ocuparse en buenas obras.== Estas cosas son buenas y útiles para los hombres. Pero evita controversias necias, genealogías, contiendas y discusiones acerca de la ley, porque son sin provecho y sin valor. Al hombre que cause divisiones, después de la primera y segunda amonestación, recházalo, sabiendo que el tal es perverso y está pecando, habiéndose condenado a sí mismo.
 
 ---
 
