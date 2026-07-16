@@ -76,7 +76,9 @@ Aunque Tito es el encargado de enseñar a la iglesia, la enseñanza de la carta 
 
 ## Propósito de la carta
 
-Pablo escribe la carta como un encargo para Tito, es curios
+Pablo escribe la carta como un encargo para Tito, el debía poner en orden todo lo que estaba pasando en las iglesias de creta. La carta no responde directamente a que debía ordenar sino mas bien lo va desarrollando a lo largo de la carta.
+
+## Importancia 
 
 ## Importancia 
 
