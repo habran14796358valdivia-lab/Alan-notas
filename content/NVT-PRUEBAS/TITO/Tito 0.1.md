@@ -97,7 +97,7 @@ Tito resulto se una carta difícil de observar debido a la simplicidad de lo que
 
 "siervo" en griego "doulos" se puede traducir como un siervo o esclavo en base al contexto de la carta servidor seria lo mas correcto.
 
-##### En la frase encontramos la dirección, es "sirvo de Dios" Pablo es servidor de Dios.
+##### En la frase encontramos la dirección de relación, es "sirvo de Dios" Pablo es servidor de Dios.
 
 ##### La frase continua agregando "apóstol de Jesucristo"
 
@@ -105,9 +105,25 @@ Tito resulto se una carta difícil de observar debido a la simplicidad de lo que
 
 ##### Pablo no solo es siervo de Dios sino también apóstol de Jesucristo.
 
-#### conforme a la fe de los escogidos de Dios  
+#### conforme a la fe de los escogidos de Dios
+
+Esta fase esta acompañada, Pablo sigue siendo el sujeto como siervo y apóstol, sin embargo aquí se adiciona la dirección hacia un objeto "la fe".
+
+Pablo siervo y apóstol (de Dios y de Jesucristo) conforme a "la fe", asimismo la fe se relaciona en dirección a la "de los escogidos de Dios"
+
+Aquí "la fe" es un sustantivo acusativo y no verbo por lo cual no hace referencia a la acción de creer, sino mas bien esta señalando a un algo de este grupo "los escogidos", asimismo este grupo esta relacionado a Dios "de Dios"
 
 #### y al pleno conocimiento de la verdad 
+
+Esta frase continua la progresión de "conforme" a la fe y "al conocimiento de la verdad"
+
+Pablo 
+
+Siervo de Dios y apóstol de Jesucristo
+
+Conforme a la fe
+
+y al conocimiento de la verdad
 
 #### que es según la piedad,
 
