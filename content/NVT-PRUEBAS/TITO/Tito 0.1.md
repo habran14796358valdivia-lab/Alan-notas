@@ -113,7 +113,7 @@ Pablo siervo y apóstol (de Dios y de Jesucristo) conforme a "la fe", asimismo l
 
 Aquí "la fe" es un sustantivo acusativo y no verbo por lo cual no hace referencia a la acción de creer, sino mas bien esta señalando a un algo de este grupo "los escogidos", asimismo este grupo esta relacionado a Dios "de Dios"
 
-#### y al pleno conocimiento de la verdad 
+#### y al pleno conocimiento de la verdad que es según la piedad,
 
 Esta frase continua la progresión de "conforme" a la fe y "al conocimiento de la verdad"
 
@@ -127,15 +127,15 @@ y al conocimiento de la verdad
 
 Esto no es simple conocimiento sino que esta relacionado a la "la verdad"
 
-#### que es según la piedad,
-
-
+De la misma manera la verdad esta relaciona a la piedad, esta frase no agrupa verdad y piedad como dos cosas sino mas bien la verdad según la piedad, una esta conformada o alineada a la otra
 
 ### Tito 1:2    con la esperanza de vida eterna, la cual Dios, que no miente, prometió desde los tiempos eternos,
 
 #### con la esperanza de vida eterna, 
 
-### la cual Dios, que no miente, 
+
+
+#### la cual Dios, que no miente, 
 
 #### prometió desde los tiempos eternos,
 
