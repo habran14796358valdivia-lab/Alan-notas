@@ -84,22 +84,26 @@ Dejemos que la escritura nos enseñe en la verdad y la gracia en la piedad, ¿Co
 
 Las iglesia en creta parecen ser iglesias en la cuales faltaba instrucion (enseñar), Pablo dejo a Tito para que se hiciera cargo de completar la enseñanza, en la carta vemos especial enfasis en lo que esta deacuerdo con el conocimiento de la verdad y como está alinea con una vida de piedad, esto es tanto como individuos y como iglesia.
 
-# El Testimonio es Verdadero
+# Por esta causa te deje
 ## Un encargo conforme a la Fe, Verdad, Piedad y Esperanza
 
 ## Tito 1:1 - 4 Un Encargo conforme a la fe, verdad, piedad y esperanza
 
 ### Tito 1:1    Pablo, siervo de Dios y apóstol de Jesucristo, conforme a la fe de los escogidos de Dios y al pleno conocimiento de la verdad que es según la piedad,
 
-Pablo, siervo de Dios y apóstol de Jesucristo, conforme a la fe de los escogidos de Dios y al pleno conocimiento de la verdad que es según la piedad
+Pablo, siervo de Dios 
+
+y apóstol de Jesucristo, 
+
+conforme a la fe de los escogidos de Dios 
+
+y al pleno conocimiento de la verdad que es según la piedad
 
 ### Tito 1:2    con la esperanza de vida eterna, la cual Dios, que no miente, prometió desde los tiempos eternos,
 
 con la esperanza de vida eterna, la cual Dios, que no miente,
 
 ==prometió== desde los tiempos eternos, 
-
-
 
 ### Tito 1:3    y a su debido tiempo, manifestó Su palabra por la predicación que me fue confiada, conforme al mandamiento de Dios nuestro Salvador,
 
@@ -109,7 +113,11 @@ con la esperanza de vida eterna, la cual Dios, que no miente,
 
 ### Tito 1:4    a Tito, verdadero hijo en la común fe: Gracia y paz de parte de Dios el Padre y de Cristo Jesús nuestro Salvador.
 
-a Tito, verdadero hijo en la común fe: Gracia y paz de parte de Dios el Padre y de Cristo Jesús nuestro Salvador.
+a Tito, verdadero hijo en la común fe: 
+
+Gracia y paz de parte de Dios el Padre 
+
+y de Cristo Jesús nuestro Salvador.
 
 ## Tito 1:5 - 16 Ordena, designa y reprende
 
