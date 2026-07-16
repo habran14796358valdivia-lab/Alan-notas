@@ -258,6 +258,8 @@ Pablo, siervo de Dios y apóstol de Jesucristo, **`conforme a la fe de los escog
 
 ---
 
+"AL PARECER HAY UNA TENSION ALREDEDOR DE LA CARTA CON LA CONDUCTA Y LA PROFESION" (REVISAR)
+
 Por esta causa te dejé en Creta, para que pusieras en orden lo que queda, y designaras ancianos en cada ciudad como te mandé. 
 
 POR QUE PONER ORDEN? POR QUE DESIGNAR ANCIANOS?
@@ -298,13 +300,25 @@ AQUI TITO ES ENCARGADO DE ENSEÑAR
 
 AQUI SE MARCA UN CONTRASTE  
 
+AQUI TITO DWBIA EXHORTAR
+
+COMO ENCAJA ESTA CONDUCTA CON EL RESTO DEL TEXTO?
+
+ESTA PARTE CONMIENZA CON UN ENFASIS "EN CUANTO A TI"
+
+"LO QUE ESTA DE ACUERDO" ES ESA CONDUCTA?
+
 Pero en cuanto a ti, enseña lo que está de acuerdo con la sana doctrina: Los ancianos deben ser sobrios, dignos, prudentes, sanos en la fe, en el amor, en la perseverancia. Asimismo, las ancianas deben ser reverentes en su conducta, no calumniadoras ni esclavas de mucho vino. Que enseñen lo bueno, para que puedan instruir a las jóvenes a que amen a sus maridos, a que amen a sus hijos, a que sean prudentes, puras, hacendosas en el hogar, amables, sujetas a sus maridos, para que la palabra de Dios no sea blasfemada. Asimismo, exhorta a los jóvenes a que sean prudentes. 
 
 TITO DEBIA MOSTRARSE COMO EJEMPLO
 
 Muéstrate en todo como ejemplo de buenas obras, con pureza de doctrina, con dignidad, con palabra sana e irreprochable, a fin de que el adversario se avergüence al no tener nada malo que decir de nosotros. 
 
-Exhorta a los siervos a que se sujeten a sus amos en todo, que sean complacientes, no contradiciendo, no defraudando, sino mostrando toda buena fe, para que adornen la doctrina de Dios nuestro Salvador en todo respecto. [Porque]() la gracia de Dios se ha manifestado, trayendo salvación a todos los hombres, enseñándonos, que negando la impiedad y los deseos mundanos, vivamos en este mundo sobria, justa y piadosamente, aguardando la esperanza bienaventurada y la manifestación de la gloria de nuestro gran Dios y Salvador Cristo Jesús. Él se dio por nosotros, ==para REDIMIRNOS DE TODA INIQUIDAD y PURIFICAR PARA SÍ UN PUEBLO PARA POSESIÓN SUYA, celoso de buenas obras.==
+Exhorta a los siervos a que se sujeten a sus amos en todo, que sean complacientes, no contradiciendo, no defraudando, sino mostrando toda buena fe, para que adornen la doctrina de Dios nuestro Salvador en todo respecto.
+
+AQUI SE DA LA RAZON DE POR QUE 
+
+[Porque]() la gracia de Dios se ha manifestado, trayendo salvación a todos los hombres, enseñándonos, que negando la impiedad y los deseos mundanos, vivamos en este mundo sobria, justa y piadosamente, aguardando la esperanza bienaventurada y la manifestación de la gloria de nuestro gran Dios y Salvador Cristo Jesús. Él se dio por nosotros, ==para REDIMIRNOS DE TODA INIQUIDAD y PURIFICAR PARA SÍ UN PUEBLO PARA POSESIÓN SUYA, celoso de buenas obras.==
 
 PABLO PESENTA UNA RAZON  AHORA VIVAMOS
 
