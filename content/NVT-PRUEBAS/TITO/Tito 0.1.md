@@ -125,7 +125,11 @@ Conforme a la fe
 
 y al conocimiento de la verdad
 
+Esto no es simple conocimiento sino que esta relacionado a la "la verdad"
+
 #### que es según la piedad,
+
+
 
 ### Tito 1:2    con la esperanza de vida eterna, la cual Dios, que no miente, prometió desde los tiempos eternos,
 
