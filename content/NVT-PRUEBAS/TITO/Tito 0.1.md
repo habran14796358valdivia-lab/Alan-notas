@@ -82,7 +82,7 @@ Pablo escribe la carta como un encargo para Tito, el debía poner en orden todo 
 
 Tito resulto se una carta difícil de observar debido a la simplicidad de lo que comunica, sin embargo la carta a Tito contiene una tensión que se desenvuelve en la carta, la conducta alineada a la realidad
 
-# El Testimonio es Verdadero
+# Por esta causa te deje
 ## Un encargo conforme a la Fe, Verdad, Piedad y Esperanza
 
 ## Tito 1:1 - 4 Un Encargo conforme a la fe, verdad, piedad y esperanza
