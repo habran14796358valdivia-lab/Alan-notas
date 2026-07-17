@@ -161,11 +161,23 @@ Dios prometió la vida eterna, ahora la progresión continua.
 
 Esta acción "prometió" tiene una ubicación señalada por el mismo texto "desde los tiempos eternos", en la eternidad.
 
-### Tito 1:3    y a su debido tiempo, manifestó Su palabra por la predicaci ón que me fue confiada, conforme al mandamiento de Dios nuestro Salvador,
+### Tito 1:3    y a su debido tiempo, manifestó Su palabra por la predicación que me fue confiada, conforme al mandamiento de Dios nuestro Salvador,
 
-#### y a su debido tiempo, 
+#### y a su debido tiempo, manifestó Su palabra 
 
-#### manifestó Su palabra por la predicación que me fue confiada, 
+Esto continua añadiendo a lo que Dios hizo, el texto añade una frase para acción "a su debido tiempo"
+
+Dios manifestó su palabra en el el tiempo debido.
+
+La progresión continua con Dios como sujeto
+
+Dios prometió la vida eterna
+
+y Dios manifestó su palabra
+
+#### por la predicación que me fue confiada, 
+
+El texto nos muestra de que manera Dios decidió manifestar su palabra "por la predicación"
 
 #### conforme al mandamiento de Dios nuestro Salvador,
 
