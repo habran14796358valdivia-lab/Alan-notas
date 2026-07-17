@@ -267,13 +267,25 @@ Esto es algo que se desarrollara a lo largo de la carta.
 
 ### Tito 1:6    Lo designarás, si el anciano es irreprensible, marido de una sola mujer, que tenga hijos creyentes, no acusados de disolución ni de rebeldía.
 
-#### Lo designarás, si el anciano es irreprensible, 
+#### Lo designarás, si el anciano es irreprensible, marido de una sola mujer, 
 
-#### marido de una sola mujer, 
+Tito debía designar ancianos, el verso comienza con una declaración "Lo designaras"
 
-#### que tenga hijos creyentes, 
+Esta declaración esta acompañada de una condición, lo designaras "si" 
 
-#### no acusados de disolución ni de rebeldía.
+La designación esta en función de la condición "si el anciano es"
+
+A continuación se listan diferentes descripciones de quien calificaría para la designación.
+
+SI es irreprensible
+
+marido de una sola mujer
+
+#### que tenga hijos creyentes, no acusados de disolución ni de rebeldía.
+
+
+
+#### 
 
 ### Tito 1:7    Porque el obispo debe ser irreprensible como administrador de Dios, no obstinado, no iracundo, no dado a la bebida, no pendenciero, no amante de ganancias deshonestas.
 
