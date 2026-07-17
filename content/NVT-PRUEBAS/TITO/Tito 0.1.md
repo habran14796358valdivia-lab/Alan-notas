@@ -133,13 +133,35 @@ De la misma manera la verdad esta relaciona a la piedad, esta frase no agrupa ve
 
 #### con la esperanza de vida eterna, 
 
+Las frases continúan acumulándose, comenzamos con Pablo
 
+siervo y apóstol
+
+conforme a la fe
+
+y el pleno conocimiento de la verdad
+
+según la piedad
+
+​	con la esperanza de vida eterna
+
+Hasta este momento Pablo no esta detallando ninguna de ellas, esta acumulando detalles.
+
+Esta frase relaciona las anteriores  "con la esperanza"  y a la esperanza "de la vida eterna"
 
 #### la cual Dios, que no miente, 
 
+La vida eterna es lo que se relaciona con Dios, Dios es introducido nuevamente pero ahora como sujeto.
+
+Antes de mencionar la acción se describe a Dios como "que no miente", esto no es una posibilidad sino una descripción real del sujeto.
+
 #### prometió desde los tiempos eternos,
 
-### Tito 1:3    y a su debido tiempo, manifestó Su palabra por la predicación que me fue confiada, conforme al mandamiento de Dios nuestro Salvador,
+Dios prometió la vida eterna, ahora la progresión continua.
+
+Esta acción "prometió" tiene una ubicación señalada por el mismo texto "desde los tiempos eternos", en la eternidad.
+
+### Tito 1:3    y a su debido tiempo, manifestó Su palabra por la predicaci ón que me fue confiada, conforme al mandamiento de Dios nuestro Salvador,
 
 #### y a su debido tiempo, 
 
