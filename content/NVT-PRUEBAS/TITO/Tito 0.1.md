@@ -221,17 +221,53 @@ En Cristo se enfatiza "nuestro salvador"
 
 #### Por esta causa te dejé en Creta, 
 
+La carta comienza de manera directa
+
+Es Pablo el que deja a Tito en creta
+
+Aun que aun no desarrolla la razón de dejarlo si la establece
+
+Tito debía hacer algo en creta para eso fue dejado allí.
+
 #### para que pusieras en orden lo que queda, 
 
-#### y designaras ancianos en cada ciudad 
+En seguida la carta aclara el propósito por el cual tito es dejado en creta.
 
-#### como te mandé
+Tito debía poner en orden lo que queda.
+
+El texto no desarrolla mas allá de lo que dice.
+
+Evidentemente hay algo faltante todavía "lo que queda"
+
+Entonces Tito es dejado para poner en orden.
+
+#### y designaras ancianos en cada ciudad como te mandé
+
+El texto señala una segunda parte del propósito de dejar a tito en creta.
+
+El debía designar ancianos en cada ciudad de creta.
+
+La progrsion del proposito es:
+
+Por esta causa te deje 
+
+​	Para que pusieras en orden lo que queda
+
+​	y  designaras ancianos 
+
+​		como te mande
+
+"como te mande" la manera en que designaría ancianos seria según lo mandado por Pablo.
+
+Esta parte del texto no desarrolla "lo que queda" o de que manera debía "poner en orden" 
+
+Así como no desarrolla de que manera debía designar a un anciano.
+
+Esto es algo que se desarrollara a lo largo de la carta.
 
 ### Tito 1:6    Lo designarás, si el anciano es irreprensible, marido de una sola mujer, que tenga hijos creyentes, no acusados de disolución ni de rebeldía.
 
-#### Lo designarás,
-
-#### si el anciano es irreprensible, 
+#### Lo designarás, si el anciano es irreprensible, 
 
 #### marido de una sola mujer, 
 
@@ -673,7 +709,7 @@ Antes bien, debe ser hospitalario, amante de lo bueno, prudente, justo, santo, d
 
 ​					[porque](joitines) ==están trastornando== familias enteras, 
 
-enseñando por ganancias deshonestas, cosas que no ==deben==.
+​	enseñando por ganancias deshonestas, cosas que no ==deben==.
 
 Uno de ellos, su propio profeta, ==dijo==: 
 
