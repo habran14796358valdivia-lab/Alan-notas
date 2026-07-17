@@ -337,17 +337,21 @@ No amante de ganancias deshonestas
 
 ### Tito 1:8    Antes bien, debe ser hospitalario, amante de lo bueno, prudente, justo, santo, dueño de sí mismo.
 
-#### Antes bien, debe ser hospitalario,
+"Antes bien" marca un giro de como debe ser el administrador de Dios.
 
-#### amante de lo bueno, prudente, justo, santo, dueño de sí mismo. 
+Hospitalario
 
-#### 
+Amante de lo bueno
 
-#### 
+prudente 
 
-#### 
+Justo
 
-#### 
+Santo
+
+Dueño de si mismo
+
+El énfasis continua en el administrador de Dios.
 
 ### Tito 1:9    Debe retener la palabra fiel que es conforme a la enseñanza, para que sea capaz también de exhortar con sana doctrina y refutar a los que contradicen.
 
