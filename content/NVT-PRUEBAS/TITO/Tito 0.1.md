@@ -351,17 +351,45 @@ Santo
 
 Dueño de si mismo
 
-El énfasis continua en el administrador de Dios.
+El énfasis continua en el obispo como administrador de Dios.
 
 ### Tito 1:9    Debe retener la palabra fiel que es conforme a la enseñanza, para que sea capaz también de exhortar con sana doctrina y refutar a los que contradicen.
 
-#### Debe retener la palabra fiel 
+#### Debe retener la palabra fiel que es conforme a la enseñanza, 
 
-#### que es conforme a la enseñanza, 
+La lista terminara con una ultima característica-
+
+El obispo "como administrador de Dios" debe retener la palabra fiel.
+
+Aquí termina la progresión de como debe ser el obispo como administrador de Dios.
+
+El énfasis del texto esta en como debe ser como administrador de Dios
+
+No se explica o responde a la pregunta "cual es la palabra fiel?"
+
+El texto acomoda a "la palabra fiel" conforme a la enseñanza.
 
 #### para que sea capaz también de exhortar con sana doctrina 
 
+Habiendo terminado al progresión ahora resalta el propósito.
+
+El obispo como administrador de Dios "debe ser" para que sea capaz.
+
+Este "ser capaz" de propósito esta en función del "como debe ser" 
+
+Sea capaz esta unido a "también de Exhortar con san doctrina"
+
+El propósito es beneficio para con los otros  y no para si mismo.
+
+El verso no desarrolla "que es la sana doctrina?", sin embargo menciona "sana doctrina" siendo esto con lo que exhorta
+
 #### y refutar a los que contradicen.
+
+Para que "sea capaz" tambien de refutar a los que contradicen
+
+el propososito con tiene una segunda parte 
+
+El o
 
 ### Tito 1:10    Porque hay muchos rebeldes, habladores vanos y engañadores, especialmente los de la circuncisión,
 
