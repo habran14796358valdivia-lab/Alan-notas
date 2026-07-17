@@ -179,17 +179,41 @@ y Dios manifestó su palabra
 
 El texto nos muestra de que manera Dios decidió manifestar su palabra "por la predicación"
 
+Asimismo la predicación le fue confiada a Pablo
+
+Pablo no se atribuyo la predicación de manera arbitraria, el verbo esta en pasivo, siendo Dios el que se lo confío 
+
 #### conforme al mandamiento de Dios nuestro Salvador,
+
+Esta frase amplia conforme a que le fue confiado
+
+Pablo no gano el derecho de la predicacion de Su palabra 
+
+Fue conforme al mandamiento de Dios que le fue confiado
+
+Esta parte finaliza enfatizando a Dios nuestro salvador, esto no solo incluye a Pablo.
 
 ### Tito 1:4    a Tito, verdadero hijo en la común fe: Gracia y paz de parte de Dios el Padre y de Cristo Jesús nuestro Salvador.
 
-#### a Tito, 
+#### a Tito, verdadero hijo en la común fe: 
 
-#### verdadero hijo en la común fe: 
+Tito es el receptor de la carta.
 
-#### Gracia y paz de parte de Dios el Padre 
+Tito es  como descrito como "verdadero hijo", no se explica esta descripción.
 
-#### y de Cristo Jesús nuestro Salvador. 
+sin embargo si muestra la ubicación por la cual es llamado así "en la común fe"
+
+Esto es la fe que comparten "en común".
+
+#### Gracia y paz de parte de Dios el Padre y de Cristo Jesús nuestro Salvador.
+
+Pablo extiende saludos de Gracia y paz.
+
+En lo cual se vuelve una vez mas a Dios el Padre siendo de quien parten estos deseos de Gracia y paz para con Tito.
+
+El texto añade a Cristo Jesús como de quien proceden gracia y paz así como de Dios el Padre.
+
+En Cristo se enfatiza "nuestro salvador" 
 
 ## Tito 1:5 - 16 Ordena, designa y reprende
 
