@@ -275,7 +275,7 @@ Esta declaración esta acompañada de una condición, lo designaras "si"
 
 La designación esta en función de la condición "si el anciano es"
 
-A continuación se listan diferentes descripciones de quien calificaría para la designación.
+A continuación se listan diferentes descripciones  de carácter de quien calificaría para la designación.
 
 SI es irreprensible
 
@@ -283,37 +283,71 @@ marido de una sola mujer
 
 #### que tenga hijos creyentes, no acusados de disolución ni de rebeldía.
 
+El texto añade "que tenga hijos creyentes" 
 
+Interesantemente el texto literal "Si teniendo hijos creyentes" 
 
-#### 
+El énfasis recae solo "creyentes"
+
+Hijos creyentes va acompañado de dos descripciones en cuanto a ellos.
+
+No acusados de
+
+Disolución
+
+Ni de rebeldía 
+
+Hasta este punto el carácter descrito es de entorno familiar.
 
 ### Tito 1:7    Porque el obispo debe ser irreprensible como administrador de Dios, no obstinado, no iracundo, no dado a la bebida, no pendenciero, no amante de ganancias deshonestas.
 
 #### Porque el obispo debe ser irreprensible como administrador de Dios, 
 
-#### no obstinado, 
+Aquí se presenta la razón de la condicionante
 
-#### no iracundo, 
+Lo designaras
 
-#### no dado a la bebida,
+SI el anciano es 
 
-#### no pendenciero, 
+Porque el obispo debe ser irreprensible como administrador de Dios
 
-#### no amante de ganancias deshonestas.
+En el contexto el versículo 6 dice "anciano" y el versículo 7 usa el equivalente "obispo".
+
+Ambos señalan al mismo sujeto
+
+Obispo se relaciona con "administrador de Dios" 
+
+Como alguien que administra lo de Dios el debe ser irreprensible.
+
+#### no obstinado, no iracundo, no dado a la bebida, no pendenciero, no amante de ganancias deshonestas.
+
+El texto enlista una conducta no acorde al administrador
+
+El obispo como administrador de Dios debe ser
+
+No obstinado
+
+No iracundo
+
+No dado a la bebida
+
+No pendenciero
+
+No amante de ganancias deshonestas
 
 ### Tito 1:8    Antes bien, debe ser hospitalario, amante de lo bueno, prudente, justo, santo, dueño de sí mismo.
 
 #### Antes bien, debe ser hospitalario,
 
-#### amante de lo bueno, 
+#### amante de lo bueno, prudente, justo, santo, dueño de sí mismo. 
 
-#### prudente, 
+#### 
 
-#### justo,
+#### 
 
-#### santo, 
+#### 
 
-#### dueño de sí mismo.
+#### 
 
 ### Tito 1:9    Debe retener la palabra fiel que es conforme a la enseñanza, para que sea capaz también de exhortar con sana doctrina y refutar a los que contradicen.
 
@@ -721,7 +755,7 @@ Antes bien, debe ser hospitalario, amante de lo bueno, prudente, justo, santo, d
 
 ​					[porque](joitines) ==están trastornando== familias enteras, 
 
-​	enseñando por ganancias deshonestas, cosas que no ==deben==.
+​					enseñando por ganancias deshonestas, cosas que no ==deben==.
 
 Uno de ellos, su propio profeta, ==dijo==: 
 
