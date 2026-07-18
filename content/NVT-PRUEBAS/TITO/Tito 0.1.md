@@ -907,21 +907,43 @@ Además de la esperanza
 
 Aguardamos "la manifestación" de la gloria de nuestro gran Dios y Salvado Cristo Jesús
 
-La manifestación de la gloria está conectando a dos personaD
+La manifestación de la gloria está conectando a una persona nuestro Dios y salvador Cristo Jesús.
 
 ### Tito 2:14    Él se dio por nosotros, para REDIMIRNOS DE TODA INIQUIDAD y PURIFICAR PARA SÍ UN PUEBLO PARA POSESIÓN SUYA, celoso de buenas obras.
 
 #### Él se dio por nosotros, 
 
-#### para REDIMIRNOS DE TODA INIQUIDAD
+Jesús se dio, nuestro salvador Cristo Jesús se entrego por nosotros
 
-#### y PURIFICAR PARA SÍ UN PUEBLO
+#### para REDIMIRNOS DE TODA INIQUIDAD y PURIFICAR PARA SÍ UN PUEBLO
+
+Cristo se entrego por nosotros con un propósito
+
+Para "redimirnos" de toda iniquidad
+
+Y "purificar" para si un pueblo
 
 #### PARA POSESIÓN SUYA, celoso de buenas obras.
+
+Este pueblo es posesión de Cristo
+
+Nosotros por los cuales Cristo se dio somos posesión de El 
+
+Ese pueblo  celoso de buenas obras
 
 ### Tito 2:15    Esto habla, exhorta y reprende con toda autoridad. Que nadie te menosprecie.
 
 #### Esto habla,exhorta y reprende con toda autoridad. 
+
+El mandato vuelve a direccionarse a Tito
+
+Tito esto habla
+
+Tito esto exhorta
+
+y Tito esto reprende
+
+Estos 3 imperativos se unen a ser "con toda autoridad"
 
 #### Que nadie te menosprecie.
 
