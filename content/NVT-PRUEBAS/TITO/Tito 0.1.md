@@ -447,7 +447,7 @@ Estos hombres enseñan cosas que no deben.
 
 #### Uno de ellos, su propio profeta, dijo:
 
-El texto continua una progresion interesante, cambia de ellos "estos hombres" a los cuales es preciso tapar la boca.
+El texto continua una progresión interesante, cambia de ellos "estos hombres" a los cuales es preciso tapar la boca.
 
 Cambia "uno de ellos" (alguien), el texto aun no aclara quienes son los "ellos"
 
@@ -461,39 +461,147 @@ Pablo citara lo que el profeta de ellos dice.
 
 #### «Los cretenses son siempre mentirosos, malas bestias, glotones ociosos».
 
+Pablo cita a Epiménides.
 
+Su propio profeta dijo 
+
+Los cretenses son siempre mentirosos
+
+malas bestias 
+
+glotones ociosos
+
+Pablo no esta validando al profeta, sino que toma lo que el dijo.
+
+En esta frase vemos quienes son los "ellos", los cretenses.
+
+El texto cambio a hablar de los cretenses
 
 ### Tito 1:13    Este testimonio es verdadero. Por eso, repréndelos severamente para que sean sanos en la fe,
 
 #### Este testimonio es verdadero. 
 
+Pablo valida el testimonio declarado por el profeta acerca de los cretenses.
+
+El texto no discute acerca de la procedencia del testimonio sino simplemente lo declara como verdadero.
+
 #### Por eso, repréndelos severamente 
 
+"Por eso" introduce la razón de la acción que sigue.
+
+Tito debía "reprender" a los cretenses.
+
+La secuencia es 
+
+El testimonio es verdadero
+
+Por eso reprende
+
+El texto añade "severamente", la reprensión a los cretenses debía ser severa a causa de la veracidad del testimonio.
+
 #### para que sean sanos en la fe,
+
+La reprensión tiene un propósito.
+
+El propósito "sean sanos" depende del mandato dirigido hacia Tito "repréndelos severamente"
+
+Para que los cretenses sean sanos y el texto especifica "en la fe"
 
 ### Tito 1:14    y no presten atención a mitos judaicos y a mandamientos de hombres que se apartan de la verdad.
 
 #### y no presten atención a mitos judaicos 
 
+El propósito de reprenderlos continua desarrollándose.
+
+Pablo añade una segunda parte al propósito en una negativa.
+
+Sean sanos en la fe 
+
+y no presten atención a mitos judaicos
+
+Para que Los cretenses sean sanos no prestando atención a los mitos judíos, esta frase non esta separada
+
 #### y a mandamientos de hombres que se apartan de la verdad.
+
+La negativa del propósito se amplia.
+
+No prestando atención
+
+a mitos judaicos
+
+y a mandamientos de hombres
+
+"Sean sanos" no prestando atención a mandamientos de hombres.
+
+El texto identifica a estos hombres como "que se apartan de la verdad"
 
 ### Tito 1:15    Todas las cosas son puras para los puros, pero para los corrompidos e incrédulos nada es puro, sino que tanto su mente como su conciencia están corrompidas.
 
 #### Todas las cosas son puras para los puros, 
 
+La progresión continua 
+
+Repréndelos 
+
+para que sean sanos
+
+no prestando atención 
+
+Ahora Pablo hará unas declaraciones "estos son hechos"
+
+"todas las cosas" el texto engloba absolutamente todo y añade "son puras" como descripción
+
+Esta consideración la relaciona con "para los puros"
+
+Para ellos "los puros" todo es puro, el texto no explica ¿como uno se hace puro? o ¿quien es un puro?
+
 #### pero para los corrompidos e incrédulos nada es puro, 
 
+El texto marca un contraste "pero" y señala a los corrompidos e incrédulos
+
+Estos no son dos personas distintas mas bien están ligados como una unidad "corrompidos e incrédulos"
+
+El contraste se marca en la consideración de todas las cosas.
+
+Para ellos "corrompidos e incrédulos" nada es puro.
+
 #### sino que tanto su mente como su conciencia están corrompidas.
+
+Se marca un segundo contraste en cuanto a que nada es puro para ellos
+
+La mente y su conciencia de ellos están corrompidas.
 
 ### Tito 1:16    Profesan conocer a Dios, pero con sus hechos lo niegan, siendo abominables y desobedientes e inútiles para cualquier obra buena.
 
 #### Profesan conocer a Dios, 
 
+La progresión continua con "los corrompidos e incrédulos"
+
+Ellos profesan conocer a Dios.
+
+Pablo lo presenta como un hecho ellos están profesando esto.
+
 #### pero con sus hechos lo niegan, 
+
+El texto inmediatamente marca un contraste con el "pero".
+
+Ellos están profesando algo "conocer a Dios"
+
+El contraste aparece entre lo que profesan y "sus hechos"
+
+Con sus hechos están negando a Dios a quien profesan conocer.
 
 #### siendo abominables y desobedientes e inútiles 
 
+Esto resulta en algo, "ellos" siendo abominables y desobedientes e inútiles.
+
+Esta contradicción de su profesión y sus hechos arroja un hecho de ellos, terminan en esta condición.
+
 #### para cualquier obra buena.
+
+El texto relaciona esta condición a un objeto 
+
+Ellos siendo abominable y desobedientes e inútiles para cualquier buena obra.
 
 ## Tito 2:1 - 15 En cuanto a ti Enseña, Exhorta y Muéstrate
 
