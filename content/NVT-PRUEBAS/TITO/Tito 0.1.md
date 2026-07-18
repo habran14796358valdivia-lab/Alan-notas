@@ -865,6 +865,8 @@ Los siervos  "ser"
 
 #### Porque la gracia de Dios se ha manifestado, 
 
+El mismo texto introduce la razón de los mandatos "en
+
 #### trayendo salvación a todos los hombres,
 
 ### Tito 2:12    enseñándonos, que negando la impiedad y los deseos mundanos, vivamos en este mundo sobria, justa y piadosamente,
