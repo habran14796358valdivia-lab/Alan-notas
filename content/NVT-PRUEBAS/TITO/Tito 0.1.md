@@ -841,39 +841,49 @@ El propósito de adornar va mas allá, se relaciona con "en todo respecto".
 
 Para adornar la doctrina de Dios en todas las cosas.
 
-La proquesion del texto continua hasta el final
-
-Tito
-
-Enseña
-
-Lo que esta de acuerdo
-
-Los ancianos "ser"
-
-Las ancianas "ser"
-
-Las jovenes  "ser"
-
-Exhorta
-
-Los jovenes "ser"
-
-Los siervos  "ser" 
-
 ### Tito 2:11    Porque la gracia de Dios se ha manifestado, trayendo salvación a todos los hombres,
 
 #### Porque la gracia de Dios se ha manifestado, 
 
-El mismo texto introduce la razón de los mandatos "en
+El "porque" introduce una razón en el texto. 
+
+¿Por que Tito debía enseñar lo que esta de acuerdo con la sana doctrina?
+
+¿Por que asimismo debía de exhortar?
+
+Los ancianos, las ancianas, las jovenes, los jovenes, y los siervos deben "ser"
+
+De la misma manera, el propósito de que ellos sean
+
+El texto mismo determina la razón "porque la gracia de Dios se ha manifestado"
+
+Dios no mantuvo oculta su gracia.
 
 #### trayendo salvación a todos los hombres,
+
+La gracia de Dios se manifestó "trayendo salvación"
+
+La salvación es por la gracia de Dios .
+
+Esta salvación se extiende hacia todos los hombres
 
 ### Tito 2:12    enseñándonos, que negando la impiedad y los deseos mundanos, vivamos en este mundo sobria, justa y piadosamente,
 
 #### enseñándonos, que negando la impiedad y los deseos mundanos, 
 
+La gracia de Dios se ha manifestado "enseñándonos"
+
+¿Que nos ha enseñado la gracia de Dios?
+
+Enseñándonos "que negando"
+
+La impiedad
+
+Y los deseos mundanos
+
 #### vivamos en este mundo sobria, justa y piadosamente,
+
+"Vivamos"
 
 ### Tito 2:13    aguardando la esperanza bienaventurada y la manifestación de la gloria de nuestro gran Dios y Salvador Cristo Jesús.
 
