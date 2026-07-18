@@ -959,43 +959,51 @@ Nadie debía menospreciar a Tito
 
 ### Tito 3:1    Recuérdales que estén sujetos a los gobernantes, a las autoridades; que sean obedientes, que estén preparados para toda buena obra.
 
-#### Recuérdales que estén sujetos a los gobernantes, 
+#### Recuérdales que estén sujetos a los gobernantes, a las autoridades;
 
-#### a las autoridades;
+El mandato vuelve a recaer sobre Tito.
 
-#### que sean obedientes, 
+Tito debía "recordarles" a los cretenses "que estén sujetos"
 
-#### que estén preparados para toda buena obra.
+Esto se retoma del verso 1:13, en todo el el capitulo 2 la dirección es de Pablo a Tito.
+
+El énfasis aquí es "recuérdales  a ellos" a ser sujetos a los gobernantes
+
+#### 
+
+#### que sean obedientes, que estén preparados para toda buena obra.
+
+#### 
 
 ### Tito 3:2    Que no injurien a nadie, que no sean contenciosos, sino amables, mostrando toda consideración para con todos los hombres.
 
-#### Que no injurien a nadie, 
+#### Que no injurien a nadie, que no sean contenciosos, 
 
-#### que no sean contenciosos, 
+#### 
 
-#### sino amables, 
+#### sino amables, mostrando toda consideración para con todos los hombres.
 
-#### mostrando toda consideración para con todos los hombres.
+#### 
 
 ### Tito 3:3    Porque nosotros también en otro tiempo éramos necios, desobedientes, extraviados, esclavos de deleites y placeres diversos, viviendo en malicia y envidia, aborrecibles y odiándonos unos a otros.
 
 #### Porque nosotros también en otro tiempo éramos necios, 
 
-#### desobedientes, 
+#### desobedientes, extraviados, esclavos de deleites y placeres diversos, 
 
-#### extraviados, 
+#### 
 
-#### esclavos de deleites
+#### 
 
-#### y placeres diversos, 
+#### 
 
-#### viviendo en malicia 
+#### viviendo en malicia y envidia,
 
-#### y envidia,
+#### 
 
-#### aborrecibles 
+#### aborrecibles y odiándonos unos a otros.
 
-#### y odiándonos unos a otros.
+#### 
 
 ### Tito 3:4    Pero cuando se manifestó la bondad de Dios nuestro Salvador, y Su amor hacia la humanidad,
 
@@ -1043,13 +1051,13 @@ Nadie debía menospreciar a Tito
 
 ### Tito 3:9    Pero evita controversias necias, genealogías, contiendas y discusiones acerca de la ley, porque son sin provecho y sin valor.
 
-#### Pero evita controversias necias, 
+#### Pero evita controversias necias, genealogías, contiendas y discusiones acerca de la ley, 
 
-#### genealogías,
+#### 
 
-#### contiendas 
+#### 
 
-#### y discusiones acerca de la ley, 
+#### 
 
 #### porque son sin provecho y sin valor.
 
@@ -1057,15 +1065,15 @@ Nadie debía menospreciar a Tito
 
 #### Al hombre que cause divisiones, 
 
-#### después de la primera y segunda amonestación, 
+#### después de la primera y segunda amonestación, recházalo,
 
-#### recházalo,
+#### 
 
 ### Tito 3:11    sabiendo que el tal es perverso y está pecando, habiéndose condenado a sí mismo.
 
-#### sabiendo que el tal es perverso 
+#### sabiendo que el tal es perverso y está pecando, 
 
-#### y está pecando, 
+#### 
 
 #### habiéndose condenado a sí mismo.
 
