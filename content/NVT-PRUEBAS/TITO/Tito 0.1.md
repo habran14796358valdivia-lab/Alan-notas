@@ -423,13 +423,25 @@ Esto no es un mandato directo a Tito
 
 Se describe lo que es necesario hacer "tapar la boca" de estos hombres.
 
-La siguiente parte del verso desarrollará por e
+La siguiente parte del verso desarrollará la razón de "es preciso tapar la boca"
 
 #### porque están trastornando familias enteras, 
 
-#### enseñando por ganancias deshonestas, 
+Es necesario taparles la boca porque están trastornando 
 
-#### cosas que no deben.
+Pablo marca esto como un hecho "ellos están" ahora haciendo esto.
+
+El grupo afectado no son solo unos cuantos, el texto lo señala como "familias enteras"
+
+#### enseñando por ganancias deshonestas, cosas que no deben.
+
+El texto complementa la razón anterior.
+
+Están trastornado "enseñando".
+
+Pablo marca como es esta enseñanza "por ganancias deshonestas"
+
+Ellos enseñan cosas que no deben.
 
 ### Tito 1:12    Uno de ellos, su propio profeta, dijo: «Los cretenses son siempre mentirosos, malas bestias, glotones ociosos».
 
