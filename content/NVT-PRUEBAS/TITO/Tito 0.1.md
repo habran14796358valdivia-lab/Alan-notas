@@ -1047,21 +1047,75 @@ y odiándonos unos a otros
 
 Este "pero" marca el contraste de "nosotros éramos"
 
+Por que nosotros en otro tiempo "eremos"
 
+pero cuando se manifestó la bondad de Dios nuestro salvador
+
+Pablo marca un tiempo "nosotros éramos" per "cuando"
+
+Se marca un énfasis por quien es que se marca el contraste, nosotros no hicimos nada que pueda cambiar esa realidad pero Dios manifestó su bondad.
 
 #### y Su amor hacia la humanidad,
+
+El contraste de tiempo "cuando" aun sigue presente
+
+Dios no solo manifestó su bondad 
+
+Cuando manifestó
+
+Su bondad 
+
+y Su amor 
+
+Cuando el manifestó esto a la humanidad es que se marca el contraste de tiempo.
 
 ### Tito 3:5    Él nos salvó, no por las obras de justicia que nosotros hubiéramos hecho, sino conforme a Su misericordia, por medio del lavamiento de la regeneración y la renovación por el Espíritu Santo,
 
 #### Él nos salvó, 
 
+Dios nos salvo
+
+Este es el punto principal el contraste
+
+Nosotros en otro tiempo éramos así pero "nos salvo"  cuando se manifestó su bondad y su amor.
+
+Dios es el accionario aquí "el nos salvo"
+
 #### no por las obras de justicia que nosotros hubiéramos hecho, 
+
+El texto presenta una negativa a la accion de Dios.
+
+Nos salvo 
+
+No por las obras de justicia
+
+El accionar de Dios de salvarnos no tuvo nada que ver con obras de justicia de nuestra parte 
+
+EL texto es enfatico " El nos salvo" no por obras de justicia "que nosotros hubiéramos hecho"
 
 #### sino conforme a Su misericordia, 
 
-#### por medio del lavamiento de la regeneración 
+Pablo mismo aclara con un contraste según que "El nos salvo"
 
-#### y la renovación por el Espíritu Santo,
+NO por obras de justicia 
+
+que nosotros hubiéramos hecho
+
+Sino
+
+Conforme a Su misericordia
+
+El nos salvo en Su misericordia 
+
+#### por medio del lavamiento de la regeneración y la renovación por el Espíritu Santo,
+
+El texto describe por medio de que "El nos salvo"
+
+El lavamiento de la regeneración
+
+Y la renovación por el Espíritu Santo
+
+#### 
 
 ### Tito 3:6    que Él derramó sobre nosotros abundantemente por medio de Jesucristo nuestro Salvador,
 
