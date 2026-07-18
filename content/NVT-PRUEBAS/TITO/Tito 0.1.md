@@ -417,7 +417,13 @@ Aunque no engloba a todos, Pablo hace un énfasis a los de la circuncisión.
 
 #### a quienes es preciso tapar la boca,
 
-El texto continúa la progresión 
+El texto continúa la progresión "a quienes" está conectado con los que "hay" (estos hombres).
+
+Esto no es un mandato directo a Tito
+
+Se describe lo que es necesario hacer "tapar la boca" de estos hombres.
+
+La siguiente parte del verso desarrollará por e
 
 #### porque están trastornando familias enteras, 
 
