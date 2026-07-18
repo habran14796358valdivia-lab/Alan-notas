@@ -441,13 +441,27 @@ Están trastornado "enseñando".
 
 Pablo marca como es esta enseñanza "por ganancias deshonestas"
 
-Ellos enseñan cosas que no deben.
+Estos hombres enseñan cosas que no deben.
 
 ### Tito 1:12    Uno de ellos, su propio profeta, dijo: «Los cretenses son siempre mentirosos, malas bestias, glotones ociosos».
 
 #### Uno de ellos, su propio profeta, dijo:
 
+El texto continua una progresion interesante, cambia de ellos "estos hombres" a los cuales es preciso tapar la boca.
+
+Cambia "uno de ellos" (alguien), el texto aun no aclara quienes son los "ellos"
+
+Pablo introduce a un "alguien" que pertenece a un grupo.
+
+la frase que acompaña nos aclara algunas cosas.
+
+Este "uno" es su propio profeta de los "ellos"
+
+Pablo citara lo que el profeta de ellos dice.
+
 #### «Los cretenses son siempre mentirosos, malas bestias, glotones ociosos».
+
+
 
 ### Tito 1:13    Este testimonio es verdadero. Por eso, repréndelos severamente para que sean sanos en la fe,
 
