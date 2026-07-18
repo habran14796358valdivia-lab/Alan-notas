@@ -445,15 +445,9 @@ Ellos enseñan cosas que no deben.
 
 ### Tito 1:12    Uno de ellos, su propio profeta, dijo: «Los cretenses son siempre mentirosos, malas bestias, glotones ociosos».
 
-#### Uno de ellos, 
+#### Uno de ellos, su propio profeta, dijo:
 
-#### su propio profeta, dijo:
-
-#### «Los cretenses son siempre mentirosos, 
-
-#### malas bestias, 
-
-#### glotones ociosos».
+#### «Los cretenses son siempre mentirosos, malas bestias, glotones ociosos».
 
 ### Tito 1:13    Este testimonio es verdadero. Por eso, repréndelos severamente para que sean sanos en la fe,
 
@@ -465,13 +459,9 @@ Ellos enseñan cosas que no deben.
 
 ### Tito 1:14    y no presten atención a mitos judaicos y a mandamientos de hombres que se apartan de la verdad.
 
-#### y no presten atención 
+#### y no presten atención a mitos judaicos 
 
-#### a mitos judaicos 
-
-#### y a mandamientos de hombres 
-
-#### que se apartan de la verdad.
+#### y a mandamientos de hombres que se apartan de la verdad.
 
 ### Tito 1:15    Todas las cosas son puras para los puros, pero para los corrompidos e incrédulos nada es puro, sino que tanto su mente como su conciencia están corrompidas.
 
@@ -487,11 +477,9 @@ Ellos enseñan cosas que no deben.
 
 #### pero con sus hechos lo niegan, 
 
-#### siendo abominables 
+#### siendo abominables y desobedientes e inútiles 
 
-#### y desobedientes 
-
-#### e inútiles para cualquier obra buena.
+#### para cualquier obra buena.
 
 ## Tito 2:1 - 15 En cuanto a ti Enseña, Exhorta y Muéstrate
 
