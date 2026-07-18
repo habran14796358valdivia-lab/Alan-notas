@@ -861,7 +861,7 @@ Dios no mantuvo oculta su gracia.
 
 #### trayendo salvación a todos los hombres,
 
-La gracia de Dios se manifestó "trayendo salvación"
+La gracia de Dios se ha manifestado "trayendo salvación"
 
 La salvación es por la gracia de Dios .
 
@@ -883,13 +883,31 @@ Y los deseos mundanos
 
 #### vivamos en este mundo sobria, justa y piadosamente,
 
-"Vivamos"
+"Vivamos" en este mundo
+
+El texto completa la manera de vivencia.
+
+Sobria
+
+Justa
+
+y piadosamente
 
 ### Tito 2:13    aguardando la esperanza bienaventurada y la manifestación de la gloria de nuestro gran Dios y Salvador Cristo Jesús.
 
 #### aguardando la esperanza bienaventurada 
 
+Vivamos en este mundo "aguardando"
+
+¿Que aguardamos?La esperanza bienaventurada.
+
 #### y la manifestación de la gloria de nuestro gran Dios y Salvador Cristo Jesús.
+
+Además de la esperanza
+
+Aguardamos "la manifestación" de la gloria de nuestro gran Dios y Salvado Cristo Jesús
+
+La manifestación de la gloria está conectando a dos personaD
 
 ### Tito 2:14    Él se dio por nosotros, para REDIMIRNOS DE TODA INIQUIDAD y PURIFICAR PARA SÍ UN PUEBLO PARA POSESIÓN SUYA, celoso de buenas obras.
 
