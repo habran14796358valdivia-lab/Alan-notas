@@ -967,47 +967,87 @@ Tito debía "recordarles" a los cretenses "que estén sujetos"
 
 Esto se retoma del verso 1:13, en todo el el capitulo 2 la dirección es de Pablo a Tito.
 
-El énfasis aquí es "recuérdales  a ellos" a ser sujetos a los gobernantes
-
-#### 
+El énfasis aquí es "recuérdales  a ellos" a ser sujetos a los gobernantes, alas autoridades.
 
 #### que sean obedientes, que estén preparados para toda buena obra.
 
-#### 
+Recuérdales  a "ser" 
+
+obedientes
+
+preparados para toda buena obra
 
 ### Tito 3:2    Que no injurien a nadie, que no sean contenciosos, sino amables, mostrando toda consideración para con todos los hombres.
 
 #### Que no injurien a nadie, que no sean contenciosos, 
 
-#### 
+La progresión continua  con base en "recuérdales"
+
+Ahora se añaden dos negativas
+
+Que no injurien a nadie
+
+que no sean contenciosos
 
 #### sino amables, mostrando toda consideración para con todos los hombres.
 
-#### 
+En contraste a "no ser" de una manera  sino "a ser"
+
+Amables 
+
+mostrando toda consideración
+
+La dirección de esta consideración es hacia todos los hombres
 
 ### Tito 3:3    Porque nosotros también en otro tiempo éramos necios, desobedientes, extraviados, esclavos de deleites y placeres diversos, viviendo en malicia y envidia, aborrecibles y odiándonos unos a otros.
 
-#### Porque nosotros también en otro tiempo éramos necios, 
+#### Porque nosotros también en otro tiempo éramos necios, desobedientes, extraviados, esclavos de deleites y placeres diversos, 
 
-#### desobedientes, extraviados, esclavos de deleites y placeres diversos, 
+El texto marca una razón
 
-#### 
+¿Por que debía recordarles? A ser o que sean, no sean así, sino así
 
-#### 
+Pablo mostrara la razón en comparación "nosotros también en otro tiempo"
 
-#### 
+El sujeto cambia en este verso paso de "recuérdales a ellos" a "nosotros éramos"
+
+Pablo ahora no señala algo se les deba recordar a "ellos" sino que utilizara "nosotros" para  mostrar lo que eramos
+
+En otro tiempo nosotros "éramos" 
+
+Necios
+
+Desobedientes
+
+Extraviados
+
+Esclavos de deleites
+
+y placeres
 
 #### viviendo en malicia y envidia,
 
-#### 
+Nosotros en otro tiempo estábamos viviendo
+
+En malicia
+
+Y envidia
 
 #### aborrecibles y odiándonos unos a otros.
 
-#### 
+Nosotros éramos 
+
+Aborrecibles
+
+y odiándonos unos a otros
 
 ### Tito 3:4    Pero cuando se manifestó la bondad de Dios nuestro Salvador, y Su amor hacia la humanidad,
 
 #### Pero cuando se manifestó la bondad de Dios nuestro Salvador, 
+
+Este "pero" marca el contraste de "nosotros éramos"
+
+
 
 #### y Su amor hacia la humanidad,
 
