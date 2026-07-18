@@ -805,19 +805,61 @@ El texto relaciona la vergüenza del adversario  con "no tener nada malo que dec
 
 ### Tito 2:9    Exhorta a los siervos a que se sujeten a sus amos en todo, que sean complacientes, no contradiciendo,
 
-#### Exhorta a los siervos
+#### Exhorta a los siervos a que se sujeten a sus amos en todo, 
 
-#### a que se sujeten a sus amos en todo, que sean complacientes, 
+Ahora se incluyen a los Siervos a "ser sujetos" a sus amos en todo
 
-#### no contradiciendo,
+El texto no clasifica en que se puede sujetar un siervo sino que es enfático "en todo".
+
+#### que sean complacientes, no contradiciendo,
+
+Para los siervos el listado continua, aquí se incluyen dos negativas .
+
+A "ser" complacientes .
+
+no contradiciendo.
 
 ### Tito 2:10    no defraudando, sino mostrando toda buena fe, para que adornen la doctrina de Dios nuestro Salvador en todo respecto.
 
-#### no defraudando, 
+#### no defraudando, sino mostrando toda buena fe,
 
-#### sino mostrando toda buena fe,
+Y no defraudando.
+
+Todo a "ser" del siervo va en relación a su amo.
+
+En contraste opuesto a las negativas a no ser.
+
+"sino" mostrando toda confianza.
 
 #### para que adornen la doctrina de Dios nuestro Salvador en todo respecto.
+
+Este "ser" del siervo concluye con un propósito.
+
+Para adornar "la doctrina" de Dios nuestro salvador.
+
+El propósito de adornar va mas allá, se relaciona con "en todo respecto".
+
+Para adornar la doctrina de Dios en todas las cosas.
+
+La proquesion del texto continua hasta el final
+
+Tito
+
+Enseña
+
+Lo que esta de acuerdo
+
+Los ancianos "ser"
+
+Las ancianas "ser"
+
+Las jovenes  "ser"
+
+Exhorta
+
+Los jovenes "ser"
+
+Los siervos  "ser" 
 
 ### Tito 2:11    Porque la gracia de Dios se ha manifestado, trayendo salvación a todos los hombres,
 
