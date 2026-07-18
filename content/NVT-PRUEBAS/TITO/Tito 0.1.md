@@ -615,23 +615,13 @@ Ellos siendo abominable y desobedientes e inútiles para cualquier buena obra.
 
 #### Los ancianos deben ser sobrios, 
 
-#### dignos, 
-
-#### prudentes,
-
-#### sanos en la fe, 
-
-#### en el amor, 
-
-#### en la perseverancia.
+#### dignos, prudentes, sanos en la fe, en el amor, en la perseverancia.
 
 ### Tito 2:3    Asimismo, las ancianas deben ser reverentes en su conducta, no calumniadoras ni esclavas de mucho vino. Que enseñen lo bueno,
 
 #### Asimismo, las ancianas deben ser reverentes en su conducta, 
 
-#### no calumniadoras 
-
-#### ni esclavas de mucho vino.
+#### no calumniadoras ni esclavas de mucho vino.
 
 #### Que enseñen lo bueno,
 
@@ -639,21 +629,11 @@ Ellos siendo abominable y desobedientes e inútiles para cualquier buena obra.
 
 #### para que puedan instruir a las jóvenes 
 
-#### a que amen a sus maridos, 
-
-#### a que amen a sus hijos,
+#### a que amen a sus maridos, a que amen a sus hijos,
 
 ### Tito 2:5    a que sean prudentes, puras, hacendosas en el hogar, amables, sujetas a sus maridos, para que la palabra de Dios no sea blasfemada.
 
-#### a que sean prudentes, 
-
-#### puras,
-
-#### hacendosas en el hogar, 
-
-#### amables, 
-
-#### sujetas a sus maridos, 
+#### a que sean prudentes, puras,hacendosas en el hogar, amables, sujetas a sus maridos, 
 
 #### para que la palabra de Dios no sea blasfemada.
 
@@ -667,9 +647,7 @@ Ellos siendo abominable y desobedientes e inútiles para cualquier buena obra.
 
 #### Muéstrate en todo como ejemplo de buenas obras, 
 
-#### con pureza de doctrina, 
-
-#### con dignidad,
+#### con pureza de doctrina, con dignidad,
 
 ### Tito 2:8    con palabra sana e irreprochable, a fin de que el adversario se avergüence al no tener nada malo que decir de nosotros.
 
@@ -683,9 +661,7 @@ Ellos siendo abominable y desobedientes e inútiles para cualquier buena obra.
 
 #### Exhorta a los siervos
 
-#### a que se sujeten a sus amos en todo, 
-
-#### que sean complacientes, 
+#### a que se sujeten a sus amos en todo, que sean complacientes, 
 
 #### no contradiciendo,
 
@@ -705,17 +681,9 @@ Ellos siendo abominable y desobedientes e inútiles para cualquier buena obra.
 
 ### Tito 2:12    enseñándonos, que negando la impiedad y los deseos mundanos, vivamos en este mundo sobria, justa y piadosamente,
 
-#### enseñándonos, 
+#### enseñándonos, que negando la impiedad y los deseos mundanos, 
 
-#### que negando la impiedad 
-
-#### y los deseos mundanos, 
-
-#### vivamos en este mundo sobria, 
-
-#### justa 
-
-#### y piadosamente,
+#### vivamos en este mundo sobria, justa y piadosamente,
 
 ### Tito 2:13    aguardando la esperanza bienaventurada y la manifestación de la gloria de nuestro gran Dios y Salvador Cristo Jesús.
 
@@ -731,17 +699,11 @@ Ellos siendo abominable y desobedientes e inútiles para cualquier buena obra.
 
 #### y PURIFICAR PARA SÍ UN PUEBLO
 
-#### PARA POSESIÓN SUYA, 
-
-#### celoso de buenas obras.
+#### PARA POSESIÓN SUYA, celoso de buenas obras.
 
 ### Tito 2:15    Esto habla, exhorta y reprende con toda autoridad. Que nadie te menosprecie.
 
-#### Esto habla,
-
-#### exhorta 
-
-#### y reprende con toda autoridad. 
+#### Esto habla,exhorta y reprende con toda autoridad. 
 
 #### Que nadie te menosprecie.
 
