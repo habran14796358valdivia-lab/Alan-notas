@@ -609,53 +609,199 @@ Ellos siendo abominable y desobedientes e inútiles para cualquier buena obra.
 
 #### Pero en cuanto a ti,
 
+El "pero" marca un contraste.
+
+El contraste se observa entre los sujetos, ellos "los corrompidos  e incrédulos" y Tito.
+
+Pablo habla directamente a Tito
+
 #### enseña lo que está de acuerdo con la sana doctrina:
+
+El contraste sigue presente en esta parte.
+
+Pero ahora entre los que "ellos" hacen, profesan conocer pero sus hechos lo niegan y lo que a Tito les mandado a hacer.
+
+Tito debía "enseñar" el mismo texto complementa lo que debía enseñar
+
+"lo que esta de acuerdo"con la sana doctrina.
+
+Los siguientes versos desarrollaran "lo que esta de acuerdo" con una enseñanza saludable.
+
+Y la progresión continua.
+
+Tito 
+
+Enseña
+
+Lo que esta de acuerdo
 
 ### Tito 2:2    Los ancianos deben ser sobrios, dignos, prudentes, sanos en la fe, en el amor, en la perseverancia.
 
-#### Los ancianos deben ser sobrios, 
+#### Los ancianos deben ser sobrios, dignos, prudentes, sanos en la fe, en el amor, en la perseverancia.
 
-#### dignos, prudentes, sanos en la fe, en el amor, en la perseverancia.
+Estos versos desarrollan una conducta o carácter que esta de acuerdo a la sana doctrina de lo cual Tito debía enseñar.
+
+Primeramente se mencionara a los ancianos.
+
+Los ancianos "ser" 
+
+sobrios
+
+dignos
+
+prudentes
+
+sanos
+
+El texto añade en cuanto que estar siendo sanos
+
+En la fe
+
+En el amor
+
+Y en la perseverancia.
 
 ### Tito 2:3    Asimismo, las ancianas deben ser reverentes en su conducta, no calumniadoras ni esclavas de mucho vino. Que enseñen lo bueno,
 
 #### Asimismo, las ancianas deben ser reverentes en su conducta, 
 
+Asimismo esta conectando la acción de "ser" pero ahora incluyendo a las ancianas.
+
+De la misma manera que los ancianos así las ancianas.
+
+Las ancianas "ser"
+
+Reverentes en su conducta
+
 #### no calumniadoras ni esclavas de mucho vino.
 
+En cuanto a las ancianas añade dos negaciones.
+
+Reverentes en su conducta
+
+No calumniadoras
+
+Ni esclavas de mucho vino.
+
+La progresión continua
+
+Tito 
+
+Enseña
+
+Lo que esta de acuerdo
+
+Ancianos ser
+
+Asimismo las ancianas
+
 #### Que enseñen lo bueno,
+
+Esta declaración para con las ancianas marca un énfasis.
+
+Ancianas "enseñen lo bueno"
+
+Esta declaración engloba lo anterior descrito
 
 ### Tito 2:4    para que puedan instruir a las jóvenes a que amen a sus maridos, a que amen a sus hijos,
 
 #### para que puedan instruir a las jóvenes 
 
+Este verso se conecta con la declaración anterior.
+
+Ahora añadiendo un propósito
+
+Ancianas "enseñen lo bueno" 
+
+para que "puedan instruir" a las mas jovenes
+
 #### a que amen a sus maridos, a que amen a sus hijos,
+
+Las ancianas estarían instruyendo a las jovenes  "ser"
+
+A que amen a sus maridos
+
+A que amen a sus hijos
+
+La lista continuara en el siguiente versículo.
 
 ### Tito 2:5    a que sean prudentes, puras, hacendosas en el hogar, amables, sujetas a sus maridos, para que la palabra de Dios no sea blasfemada.
 
 #### a que sean prudentes, puras,hacendosas en el hogar, amables, sujetas a sus maridos, 
 
+A que sean prudentes
+
+A que sean puras
+
+A que sean hacendosas en el hogar
+
+A que sean amables
+
+Siendo sujetas a sus maridos
+
 #### para que la palabra de Dios no sea blasfemada.
+
+Que las ancianas instruyan a las mas jovenes a "ser" contiene un propósito.
+
+ A causa de esto la palabra de Dios no sea blasfemada
 
 ### Tito 2:6    Asimismo, exhorta a los jóvenes a que sean prudentes.
 
-#### Asimismo, exhorta a los jóvenes 
+#### Asimismo, exhorta a los jóvenes a que sean prudentes.
 
-#### a que sean prudentes.
+El "asimismo" vuelve a conectar con las ancianas y las jovenes en una comparación "Tito y los jovenes"
+
+Ahora se añade un mandato nuevo hacia Tito el debe no solo "enseñar" también "exhortar".
+
+El texto incorpora ahora a los jovenes.
+
+Tito debía exhortar a los jovenes a "ser" prudentes 
+
+Así como las ancianas (enseñando lo bueno)  para que instruyan a las jovenes a "ser"
+
+El siguiente verso mostrara de que manera será esta exhortación.
 
 ### Tito 2:7    Muéstrate en todo como ejemplo de buenas obras, con pureza de doctrina, con dignidad,
 
 #### Muéstrate en todo como ejemplo de buenas obras, 
 
+El hecho de exhortar a los jovenes a "ser" pedantes esta unido a Tito mostrándose a ellos 
+
+En todo como ejemplo de buenas obras.
+
+Así como las ancianas enseñando lo bueno para instruir a las mas jovenes.
+
 #### con pureza de doctrina, con dignidad,
+
+Tito mostrándose en todo 
+
+Con pureza de doctrina
+
+Con dignidad
+
+El siguiente verso continuara con la progresión.
 
 ### Tito 2:8    con palabra sana e irreprochable, a fin de que el adversario se avergüence al no tener nada malo que decir de nosotros.
 
 #### con palabra sana e irreprochable, 
 
+Con palabra sana e irreprochable
+
 #### a fin de que el adversario se avergüence 
 
+La carta añade un propósito 
+
+El hecho de que Tito este mostrándose como ejemplo a los jovenes
+
+Así como exhortándolos a "ser" concluye en un propósito.
+
+A fin de que el adversario se avergüence 
+
+EL que esta en contra se avergüence depende de "muéstrate como ejemplo"
+
 #### al no tener nada malo que decir de nosotros.
+
+El texto relaciona la vergüenza del adversario  con "no tener nada malo que decir"
 
 ### Tito 2:9    Exhorta a los siervos a que se sujeten a sus amos en todo, que sean complacientes, no contradiciendo,
 
