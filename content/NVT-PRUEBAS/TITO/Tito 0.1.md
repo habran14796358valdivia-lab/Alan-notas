@@ -943,9 +943,17 @@ Tito esto exhorta
 
 y Tito esto reprende
 
-Estos 3 imperativos se unen a ser "con toda autoridad"
+Estos 3 imperativos se unen a "con toda autoridad"
+
+Estos imperativos enfatizan la labor de Tito en creta.
 
 #### Que nadie te menosprecie.
+
+Este es el único imperativo en toda la carta que no es dirigido a Tito de manera directa.
+
+Sin embargo este mandato si se relaciona para con el
+
+Nadie debía menospreciar a Tito
 
 ## Tito 3:1 - 11 Recuérdales, Habla y Evita
 
