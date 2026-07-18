@@ -387,23 +387,37 @@ El verso no desarrolla "que es la sana doctrina?", sin embargo menciona "sana do
 
 Para que "sea capaz" tambien de refutar a los que contradicen
 
-el propososito con tiene una segunda parte 
-
-El o
+El propososito con tiene una segunda parte 
 
 ### Tito 1:10    Porque hay muchos rebeldes, habladores vanos y engañadores, especialmente los de la circuncisión,
 
 #### Porque hay muchos rebeldes, 
 
-#### habladores vanos 
+El texto continúa la progresión con una segunda razón 
 
-#### y engañadores, 
+El "porque" da la razón del proposito
 
-#### especialmente los de la circuncisión,
+¿Por que el obispo como administrador de Dios "debía ser"?
+
+Y ¿Por que el propósito de que "sea capaz de exhortar con sana doctrina y refutar al que está en contra"?
+
+El texto continúa "porque" hay muchos rebeldes
+
+Pablo no dice "habrá" o "podría haber" dice "hay" 
+
+#### habladores vanos y engañadores, especialmente los de la circuncisión
+
+El texto describe varias características "rebeldes, habladores vamos y engañadores" 
+
+Sin embargo el énfasis cae sobre un grupo (hombres)
+
+Aunque no engloba a todos, Pablo hace un énfasis a los de la circuncisión.
 
 ### Tito 1:11    a quienes es preciso tapar la boca, porque están trastornando familias enteras, enseñando por ganancias deshonestas, cosas que no deben.
 
 #### a quienes es preciso tapar la boca,
+
+El texto continúa la progresión 
 
 #### porque están trastornando familias enteras, 
 
