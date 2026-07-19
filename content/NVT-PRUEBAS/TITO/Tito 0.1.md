@@ -1257,19 +1257,47 @@ Detenerse en estas cosa resultaría en un desperdicio ya que no tienen ningún v
 
 #### Al hombre que cause divisiones, 
 
+Pablo muestra "Al hombre" que cause divisiones.
 
+Es indiferente quien es el hombre, el énfasis esta en lo que causa "divisiones"
 
 #### después de la primera y segunda amonestación, recházalo,
 
-#### 
+El texto muestra una accion no de una sola vez.
+
+Después de 
+
+La primer 
+
+Y la segunda
+
+Amonestación
+
+Esto es una accion persistente 
+
+Después de la segunda amonestación el mandamiento es "recházalo"
+
+Tito debía rechazarlo después de la segunda amonestación, vemos que este rechazo no es en un impulso sino después de dos amonestaciones.
 
 ### Tito 3:11    sabiendo que el tal es perverso y está pecando, habiéndose condenado a sí mismo.
 
 #### sabiendo que el tal es perverso y está pecando, 
 
-#### 
+El rechazo no es arbitrario "sabiendo"
+
+Tito debía rechazarlo sabiendo que este hombre es 
+
+Perverso
+
+Y esta pecando
+
+Esto después de la segunda amonestación.
 
 #### habiéndose condenado a sí mismo.
+
+El rechazo de este hombre no debería ser una sorpresa para el mismo.
+
+"El tal" se ha condenado así mismo
 
 ## Tito 3:12 - 15 Procura venir, Encamina y Saluda
 
