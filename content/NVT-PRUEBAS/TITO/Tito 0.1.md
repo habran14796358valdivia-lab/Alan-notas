@@ -1115,45 +1115,143 @@ El lavamiento de la regeneración
 
 Y la renovación por el Espíritu Santo
 
-#### 
-
 ### Tito 3:6    que Él derramó sobre nosotros abundantemente por medio de Jesucristo nuestro Salvador,
 
 #### que Él derramó sobre nosotros abundantemente 
 
+Dios mismo derramo el Espíritu Santo sobre nosotros
+
+Nosotros no hicimos algo para ganar al Espíritu Santo es Dios quien derramo 
+
+Dios derramo  y lo hizo de manera abundante
+
 #### por medio de Jesucristo nuestro Salvador,
+
+El texto si nos señala por medio de quien Dios hizo todo esto
+
+Dios derramo su Espiritu Santo en nosotros por medios den Jesucristo
+
+Jesucristo nuestro salvador
+
+Vemos la progresión de estos versos
+
+Sean así
+
+Nosotros éramos
+
+Pero cuando
+
+Se manifestó
+
+El nos salvo
+
+No por obras
+
+Conforme su misericordia
+
+Por Su Espiritu que derramo
+
+Por medio de Jesucristo
+
+Nuestro salvador
 
 ### Tito 3:7    para que justificados por Su gracia fuéramos hechos herederos según la esperanza de la vida eterna.
 
 #### para que justificados por Su gracia 
 
-#### fuéramos hechos herederos 
+A continuación  el texto marca un propósito
 
-#### según la esperanza de la vida eterna.
+"EL nos salvo" para que justificados por Su gracia
+
+Esta primera parte presenta un antecedente 
+
+#### fuéramos hechos herederos según la esperanza de la vida eterna.
+
+EL propósito se desenvuelve en "fuéramos hechos"
+
+Ya justificados por su gracia  "lleguemos a ser" 
+
+Para que fuéramos hechos herederos "según la esperanza de la vida eterna"
 
 ### Tito 3:8    Palabra fiel es esta; y en cuanto a estas cosas quiero que hables con firmeza, para que los que han creído en Dios procuren ocuparse en buenas obras. Estas cosas son buenas y útiles para los hombres.
 
 #### Palabra fiel es esta; 
 
+Pablo cierra declarando que lo que acaba de hablar es "palabra fiel"
+
+EL nos salvo
+
+para que Justificados 
+
+llegaremos a ser herederos según la esperanza de la vida eterna
+
 #### y en cuanto a estas cosas quiero que hables con firmeza, 
+
+Pablo quiere que Tito hable  con firmeza "estas cosas"
+
+Lo que Dios ha hecho por medio de Jesucristo para con nosotros y del propósito por el cual El nos salvo
 
 #### para que los que han creído en Dios 
 
+El querer de Pablo para con Tito result6a en un propósito
+
+que Tito hable con firmeza "estas cosas" para que 
+
+Los que han creído (los creyentes)  serian el sujeto en el propósito
+
 #### procuren ocuparse en buenas obras. 
 
+Para que los creyentes procuren ocuparse en bunas obras
+
+Este propósito esta en función de que "hable estas cosas con firmeza "
+
+El texto señala en que procurarían ocuparse "buenas obras"
+
 #### Estas cosas son buenas y útiles para los hombres.
+
+"Estas cosas" vuelve a la palabra fiel que hablo.
+
+Ahora las describe como 
+
+Buenas 
+
+y Útiles
+
+Es bueno y útil para "el hombre"
 
 ### Tito 3:9    Pero evita controversias necias, genealogías, contiendas y discusiones acerca de la ley, porque son sin provecho y sin valor.
 
 #### Pero evita controversias necias, genealogías, contiendas y discusiones acerca de la ley, 
 
-#### 
+Pablo marca un contraste.
 
-#### 
+Quiero que hables con firmeza
 
-#### 
+Son buenas y útiles 
+
+Pero
+
+Evita 
+
+Son sin provecho y sin valor
+
+Este es un mandamiento para Tito, el debía "evitar"
+
+Controversia necias
+
+Genealogías
+
+Y discusiones acerca de la ley
 
 #### porque son sin provecho y sin valor.
+
+¿Por que razón Tito debía evitar estas cosas? Simplemente por su resultado
+
+Son sin provecho
+
+Y sin valor
+
+Detenerse en estas cosa resultaría en un desperdicio ya que no tienen ningún valor o provecho.
 
 ### Tito 3:10    Al hombre que cause divisiones, después de la primera y segunda amonestación, recházalo,
 
