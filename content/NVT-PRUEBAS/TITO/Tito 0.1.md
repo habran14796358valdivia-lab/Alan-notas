@@ -1305,27 +1305,79 @@ El rechazo de este hombre no debería ser una sorpresa para el mismo.
 
 #### Cuando te envíe a Artemas o a Tíquico, 
 
+EL ultimo encargo de Pablo a Tito comienza.
+
+Cuando Pablo envie a Artemas o Titico a Tito El deberia de hacer algo.
+
 #### procura venir a verme en Nicópolis, 
+
+EL mandamiento es directo a Tito.
+
+Cuando Artemas o Títico sean enviados a donde se encuentra Tito (creta) 
+
+El deberá "procurar" ir a a ver a Pablo en Nicópolis.
 
 #### porque he decidido pasar allí el invierno.
 
+Pablo explica porque Tito deberá ir a Nicópolis
+
+Pablo pasaría el invierno en esa ciudad
+
 ### Tito 3:13    Encamina con diligencia a Zenas, intérprete de la ley, y a Apolos, para que nada les falte.
 
-#### Encamina con diligencia a Zenas, 
+#### Encamina con diligencia a Zenas, intérprete de la ley, y a Apolos, 
 
-#### intérprete de la ley, 
+Se da otro mandato a Tito
 
-#### y a Apolos, 
+El deberá "encaminar" a Zenas
+
+Zenas es interprete de la ley
+
+Asimismo debería de "encaminar" a Apolos
+
+El mandato de "encaminar" esta acompañado de "con diligencia" siendo la forma en que debía de encaminarlos.
 
 #### para que nada les falte.
 
+El proposito de este mandato.
+
+Para que a Zenas y Apoles no les falte nada 
+
+Esto es que pueden tener todo lo necesario para continuar
+
+Este propósito esta sujeto a que Tito cumpla el mandato.
+
 ### Tito 3:14    Y que los nuestros aprendan a ocuparse en buenas obras, atendiendo a las necesidades apremiantes, para que no estén sin fruto.
 
-#### Y que los nuestros aprendan a ocuparse en buenas obras, 
+#### Y que los nuestros aprendan a ocuparse en buenas obras, atendiendo a las necesidades apremiantes,
 
-#### atendiendo a las necesidades apremiantes,
+Este verso esta ligado al mandato de Tito a "encaminar" a Zenas y Apolos
+
+"Y" conecta estos versos
+
+Tito 
+
+encamina
+
+y 
+
+Los nuestros aprendan
+
+Pablo utiliza el mandato dado Tito de "encaminar" como ejemplo 
+
+Con eso dará un mandato esta vez no a Tito sino a "los nuestros" aprendan.
+
+Los nuestros "aprendan" a ocuparse en buenas obras
+
+En buenas obras "atendiendo las necesidades" apremiantes
 
 #### para que no estén sin fruto.
+
+Esto tiene un propósito "para que" no estén sin fruto
+
+Continua refiriéndose a "los nuestros" 
+
+El propósito esta en función del mandato "aprendan" 
 
 ### Tito 3:15    Todos los que están conmigo te saludan. Saluda a los que nos aman en la fe. La gracia sea con todos ustedes.
 
