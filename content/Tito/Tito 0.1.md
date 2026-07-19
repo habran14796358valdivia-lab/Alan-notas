@@ -309,7 +309,7 @@ Porque el obispo debe ser irreprensible como administrador de Dios, no obstinado
 
 #### no iracundo
 
-##### El no debe ser alguen iracundo, esto es alguen que se deja controlar por el enojo o la colera de manera que se vuelve irracinal o es cegado por el enojo.
+##### El no debe ser alguien iracundo, esto es alguien que se deja controlar por el enojo o la colera de manera que se vuelve irracional o es cegado por el enojo.
 
 #### no dado a la bebida
 
@@ -317,11 +317,11 @@ Porque el obispo debe ser irreprensible como administrador de Dios, no obstinado
 
 #### no pendenciero
 
-##### Literalmente dicho un colerico "listo para dar un golpe", El no debe ser un pendenciero, alguen reaccionario a los golpes ante cualquier situacion (un violento).
+##### Literalmente dicho un colérico "listo para dar un golpe", El no debe ser un pendenciero, alguien reaccionario a los golpes ante cualquier situación (un violento).
 
 #### no amante de ganancias deshonestas
 
-##### El no debe ser amar las ganancias o recompensas deshonestas, esto tambien se refiere a alguen codicioso de todo tipo de ganacias (dinero o recompensas) lo particular de esto es que estas ganancias no provienen de la verdad o algo apropiado. 1 Timoteo 3:8
+##### El no debe ser amar las ganancias o recompensas deshonestas, esto también se refiere a alguien codicioso de todo tipo de ganancias (dinero o recompensas) lo particular de esto es que estas ganancias no provienen de la verdad o algo apropiado. 1 Timoteo 3:8
 
 ##### El contraste con todo lo que un anciano no debe ser, es ser un administrador (mayordomo), todas estas caracteristicas estan enfocadas como alguien se deja llevar por sus deseos y es cegado por los mismos, esto no carecteriza a un mayordomo.
 
@@ -338,15 +338,15 @@ Antes bien, debe ser hospitalario, amante de lo bueno, prudente, justo, santo, d
 
 #### amante de lo bueno
 
-##### Debe ser alguin que ame lo bueno, esto esta referido al bien en todas sus expresiones, ama el bien conforme a la verdad. Mateo 19:16, 20:15; Lucas 8:8
+##### Debe ser alguien que ame lo bueno, esto esta referido al bien en todas sus expresiones, ama el bien conforme a la verdad. Mateo 19:16, 20:15; Lucas 8:8
 
 #### prudente
 
-##### Debe ser de mente sana, alguien prudente es alguien que goza de una mente sana o alguien que esta en sus cabales capaz de pensar conforme a la verdad, en contraste a lo que no debe ser un iracundo, un codicioso,un pendenciero, un borracho y un orgullo los cuales estan cegados por sus deseos. 1 Timoteo 3:2; Tito 2:2, 5
+##### Debe ser de mente sana, alguien prudente es alguien que goza de una mente sana o alguien que esta en sus cabales capaz de pensar conforme a la verdad, en contraste a lo que no debe ser un iracundo, un codicioso,un pendenciero, un borracho y un orgullo los cuales están cegados por sus deseos. 1 Timoteo 3:2; Tito 2:2, 5
 
 #### justo
 
-##### Debe ser justo en su andar, estas son caracteristicas que se persiben extexternamente, es alguin que exibe justicia en su andar, tambien puede verse con hacer lo que es correcto. Hechos 4:19; Efesios 6:1; Colosenses 4:1; 2 Pedro 1:13
+##### Debe ser justo en su andar, estas son características que se perciben externamente, es alguien que exhibe justicia en su andar, también puede verse con hacer lo que es correcto. Hechos 4:19; Efesios 6:1; Colosenses 4:1; 2 Pedro 1:13
 
 #### santo
 
@@ -354,7 +354,7 @@ Antes bien, debe ser hospitalario, amante de lo bueno, prudente, justo, santo, d
 
 #### dueño de sí mismo
 
-##### Deber tener dominio propio, es interesante que no lo manda a dominar sus deseos, mas bien lo enfatiza como una caracteristica de el alguien que es dueño de si mismo. Gálatas 5:23; 2 Pedro 1:6
+##### Deber tener dominio propio, es interesante que no lo manda a dominar sus deseos, mas bien lo enfatiza como una característica de el alguien que es dueño de si mismo. Gálatas 5:23; 2 Pedro 1:6
 
 ### Tito 1:9 
 Debe retener la palabra fiel que es conforme a la enseñanza, para que sea capaz también de exhortar con sana doctrina y refutar a los que contradicen.
@@ -394,21 +394,21 @@ Porque hay muchos rebeldes, habladores vanos y engañadores, especialmente los d
 
 ##### El verbo "hay" (presente, indicativo, activo) nos muestar que es un hecho/realidad, hay muchos rebeldes, se esta apuntando directamente a un grupo, aunque no se nos dice si estos forman parate de la iglesia o no, pero si se nos dice que son rebeldes.
 
-##### "rebeldes" literalmente dicho no puesto bajo sujecion, es un grupo de personas que no estan bajo la enseñanza ( la verdad), como sabemos esto, al revisasr el contexto vemos que el anciano debe se run retenedor de la palabra fiel conforme a la enseñanza, para refutar a los que contradicen, esto podia estar identificandona estos rebeldes.
+##### "rebeldes" literalmente dicho no puesto bajo sujeción, es un grupo de personas que no estan bajo la enseñanza ( la verdad), como sabemos esto, al revisasr el contexto vemos que el anciano debe se run retenedor de la palabra fiel conforme a la enseñanza, para refutar a los que contradicen, esto podia estar identificandona estos rebeldes.
 
 ##### Los rebeldes habrian negado la fe, por lo cual naunfragaron de ella, estos abiertamente no estan deacuerdo con la enseñanza en la verdad biblica pues no se sujetan a ella.
 
 #### habladores vanos
 
-##### Esto es un adjetivo al igual que rebeldes, esta describiendo a este grupo de personas, son reberdes, hablan palabras vacias.
+##### Esto es un adjetivo al igual que rebeldes, esta describiendo a este grupo de personas, son rebeldes, hablan palabras vacías.
 
-##### "habladores vanos" se puede traducir como un charlatan o un hablador inutil ya que su habla no lleva a ningun lugar. 2 Pedro 1:21
+##### "habladores vanos" se puede traducir como un charlatan o un hablador inútil ya que su habla no lleva a ningún lugar. 2 Pedro 1:21
 
 #### y engañadores
 
-##### Tambien son engañadores, esto ya no solo es una caracteristica de ellos, sino que se refiere a ellos como una persona, son "Los Engañadores" asi se los identifica.
+##### También son engañadores, esto ya no solo es una caracteristica de ellos, sino que se refiere a ellos como una persona, son "Los Engañadores" asi se los identifica.
 
-##### "engañadores" viene de FRENAPATES literalmente dicho "Los que descarrian/seducens la mente".
+##### "engañadores" viene de FRENAPATES literalmente dicho "Los que descarrían/seducen la mente".
 
 #### especialmente los de la circuncisión
 
@@ -433,9 +433,9 @@ a quienes es preciso tapar la boca, porque están trastornando familias enteras,
 
 ##### Vemos porque esta inportante taparles la boca.
 
-##### Estos hombres estan transtornando literalmente dicho "voltear, destuir o arruinar" una connotacion negativa. Juan 2:15; 2 Timoteo 2:18
+##### Estos hombres están trastornando literalmente dicho "voltear, destruir o arruinar" una connotación negativa. Juan 2:15; 2 Timoteo 2:18
 
-##### A "familias enteras" tambien traducido como casas o moradas, estos hombres estan destruyendo casas, ahora es interesante que no es una frase literal, sino que se refiera a las personas que se reunen en un lugar, estas estan siendo destruidas. Pero ¿De que manera?
+##### A "familias enteras" también traducido como casas o moradas, estos hombres están destruyendo casas, ahora es interesante que no es una frase literal, sino que se refiera a las personas que se reúnen en un lugar, estas están siendo destruidas. Pero ¿De que manera?
 
 #### enseñando por ganancias deshonestas
 
@@ -464,15 +464,15 @@ Uno de ellos, su propio profeta, dijo: «Los cretenses son siempre mentirosos, m
 
 ##### Esto es dicho por primera vez por Epimanes en el siglo XII a.C. a raiz de que los cretences aseveraban que la tumba de zeus(jupiter) se encontraba en la isla.
 
-##### Los cretences tenian la fama de ser siempre mentirosos, "siempre" da a entender continuidad/constantemente. Mentiroso es un sustantivo esto esta descripiendo a una persona, cretence y mentiroso eran intercambiabres cuando te referias a ellos. Hechos 9:13; Romanos 3:8; 2 Timoteo 4:14; 1 Pedro 3:12
+##### Los cretenses tenían la fama de ser siempre mentirosos, "siempre" da a entender continuidad/constantemente. Mentiroso es un sustantivo esto esta descripiendo a una persona, cretence y mentiroso eran intercambiabres cuando te referias a ellos. Hechos 9:13; Romanos 3:8; 2 Timoteo 4:14; 1 Pedro 3:12
 
 #### malas bestias
 
-##### "malas" es un adjetivo de bestias que es el sustantivo. A los cretences se los identificaba como bestias, o por lo menos se referian a ellos asi, a demas de bestias eran maliciosas. Marcos 1:13; Hechos 11:6, 28:4-5
+##### "malas" es un adjetivo de bestias que es el sustantivo. A los cretenses se los identificaba como bestias, o por lo menos se referían a ellos así, a demás de bestias eran maliciosas. Marcos 1:13; Hechos 11:6, 28:4-5
 
 #### glotones ociosos»
 
-##### Eran conocidos por ser glotones o del comer, sin embargo esto tenia una connotacion negativa al ser complementado con ociosos, esto es alguien sin que hacer o desempleado.
+##### Eran conocidos por ser glotones o del comer, sin embargo esto tenia una connotación negativa al ser complementado con ociosos, esto es alguien sin que hacer o desempleado.
 
 ### Tito 1:13 
 Este testimonio es verdadero. Por eso, repréndelos severamente para que sean sanos en la fe, 
@@ -487,9 +487,9 @@ Este testimonio es verdadero. Por eso, repréndelos severamente para que sean sa
 
 ##### El "por eso " en esta parte del texto es una conclusion que engloba desde el verso 10 al 13. Habia un peligro latente al asecho, habian rebeldes enseñando cosas que no deben, Tito debia reprenderlos severamente. Tito 1:9, 13, 2:15 
 
-##### "Reprenderlos" es ELENKJO, quiere decir: Poner al descubierto, Tito debia exponer (sacar a la luz) a estos rebeldes, es interesante la manera, solo podria ser a traves de la verdad. Juan 8:46; 1 Corintios 14:24; Efesios 5:11; 1 Timoteo 5:20; Judas 22
+##### "Repréndelos" es ELENKJO, quiere decir: Poner al descubierto, Tito debia exponer (sacar a la luz) a estos rebeldes, es interesante la manera, solo podria ser a traves de la verdad. Juan 8:46; 1 Corintios 14:24; Efesios 5:11; 1 Timoteo 5:20; Judas 22
 
-##### "reprendelos severamente" Esta confrontacion con la verdad debia ser de manera abupta, vemos que no tenia caso a tolerancia, esto no indica el trato con la persona sino con respencto a la verdad del evangelio, no hay caso en otorgar tolerancia cuando la verdad esta siendo cambiada, no es algo permisible. 2 Corintios 13:10
+##### "repréndelos severamente" Esta confrontación con la verdad debía ser de manera abrupta, vemos que no tenia caso a tolerancia, esto no indica el trato con la persona sino con respecto a la verdad del evangelio, no hay caso en otorgar tolerancia cuando la verdad esta siendo cambiada, no es algo permisible. 2 Corintios 13:10
 
 #### para que sean sanos en la fe
 
@@ -510,7 +510,7 @@ y no presten atención a mitos judaicos y a mandamientos de hombres que se apart
 
 ##### Al ser sanos en la fe no estaremos yendo tras fabulas o mitos judios o de cualquier clase, cosas que al ser fantaciosas nos desvian de la verdad.
 
-##### "prestar atencion" (presente, participio, activo) se refiere a buscar activamente o navegar hacia. 1 Timoteo 1:4, 3:8 4:1, 13; 2 Pedro 1:19
+##### "prestar atención" (presente, participio, activo) se refiere a buscar activamente o navegar hacia. 1 Timoteo 1:4, 3:8 4:1, 13; 2 Pedro 1:19
 
 #### y a mandamientos de hombres que se apartan de la verdad
 
@@ -518,7 +518,7 @@ y no presten atención a mitos judaicos y a mandamientos de hombres que se apart
 
 ##### Literalmente dicho: Hombres apartados de la verdad, estos han sido apartados de la verdad, mostrando que la verdad no mora en ellos o sus enseñanzas.
 
-##### Estos hombres se han apartado de la verdad y aun asi dictan mandamientos sobre sus seguidores, evidentemente lo que recomiendan jamas estara alineado con la verdad, al ser sanos en la fe no seremos engañados facilmente.
+##### Estos hombres se han apartado de la verdad y aun así dictan mandamientos sobre sus seguidores, evidentemente lo que recomiendan jamas estara alineado con la verdad, al ser sanos en la fe no seremos engañados facilmente.
 
 ##### La iglesia de Dios debe estar siendo nutrida en y a traves de la verdad, hasta este momento hemos visto como la verdad a sido enfatizada, empezando con la presentacion de Pablo, su apostolado, su servicio son conforme a la verdad segun piedad, la designacion de ancianos en la iglesia en cumplimiento de los requisitos (una conductaconforme a la verdad segun piedad), la conducta que no esta alineada a la verdad segun piedad y la reprencion a los rebeldes en base a la verdad.
 
@@ -543,7 +543,7 @@ Todas las cosas son puras para los puros, pero para los corrompidos e incrédulo
 
 ##### Todo creyente posicionalmente es limpio, el enfasis aqui es "el limpio contaminado" y esta contaminacion o corrupcion es en cuanto a la palabra de verdad. 
 
-##### Un creyente que ha sido corrompido en cuanto a la verdad biblica nada le es puro, todo le resulta en contaminacion hacia si mismo y es una afrenta a su fe.
+##### Un creyente que ha sido corrompido en cuanto a la verdad bíblica nada le es puro, todo le resulta en contaminación hacia si mismo y es una afrenta a su fe.
 
 ##### "incredulo" Primeramnente puede referirse al incredulo (no salvo) en si mismo el no es puro y no tiene ninguna cosa pura.
 
@@ -560,13 +560,13 @@ Profesan conocer a Dios, pero con sus hechos lo niegan, siendo abominables y des
 
 ##### EL corrompido e incredulo profesa conocer a Dios.
 
-##### "profesar" quiere decir confesar o declarar persibir a Dios. El sabe quien es Dios y que quiere. Conocer (perfecto, infinitivo, activo), ellos dicen haber percibido a Dios y aun persibirlo o conocerlo. Esta es su verdad
+##### "profesar" quiere decir confesar o declarar percibir a Dios. El sabe quien es Dios y que quiere. Conocer (perfecto, infinitivo, activo), ellos dicen haber percibido a Dios y aun persibirlo o conocerlo. Esta es su verdad
 
 #### pero con sus hechos lo niegan
 
-##### Un pequeño contraste a su confesion, estos que dicen persibir a Dios niegan a Dios con sus aciones, su andar contradice sus palabras. esta es su piedad.
+##### Un pequeño contraste a su confesión, estos que dicen percibir a Dios niegan a Dios con sus acciones, su andar contradice sus palabras. esta es su piedad.
 
-##### Aqui podemos resaltar algo importante "El conocimiento de la verdad es segun piedad" ambos coinciden, hay la verdad que resulta en piedad, y esta misma piedad realza esta verdad y hay entre comillas " verdad pero que resulta en falsa piedad o en inpiedad". Lo unico que puede resultar en piedad real es la verdad biblica tomada por la fe.
+##### Aquí podemos resaltar algo importante "El conocimiento de la verdad es segun piedad" ambos coinciden, hay la verdad que resulta en piedad, y esta misma piedad realza esta verdad y hay entre comillas " verdad pero que resulta en falsa piedad o en inpiedad". Lo unico que puede resultar en piedad real es la verdad biblica tomada por la fe.
 
 ##### Veamos a continuacion en que resulta los que dicen conocer a Dios y sus hechos lo niegan o rechazan.
 
@@ -574,9 +574,9 @@ Profesan conocer a Dios, pero con sus hechos lo niegan, siendo abominables y des
 
 ##### Son abominables y desobedientes estos son caracteristicas de ellos.
 
-##### "abominable" es BDELUKTOS quiere decir ser repugnante, detestable o de hedor insoportable, se usaba para calificar a la idoratria como repugnante, 
+##### "abominable" es BDELUKTOS quiere decir ser repugnante, detestable o de hedor insoportable, se usaba para calificar a la idolatría como repugnante, 
 
-##### "desobediente" es un rebelde o contumaz, esta caracteristica tine que ver con haber rechazado la verdad.
+##### "desobediente" es un rebelde o contumaz, esta característica tiene que ver con haber rechazado la verdad.
 
 #### e inútiles para cualquier obra buena
 
@@ -619,12 +619,12 @@ Ancianos-PRESBUTES
 
 - Esto no indica hecho, una orden, un deseo o posibilidad.
 - Tampoco indica un tiempo de inicio o final
-- Indica una acion en proceso " Ancianos sed sobrios o Hombres mayores son sobrios" 
+- Indica una accion en proceso, un estado" Ancianos sed sobrios o Hombres mayores son sobrios" 
 
 ##### Que los hombres mayores sean sobrios es una conducta que esta alineada a una enseñanza saludable, no debemos olvidad que los resultados de conducta es a causa de estar alineados con la verdad, obviamentee ste no sera el resultado si la verdad a sido cambiada o rechazada.
 
 Sobrio - NEFALEOS
-: Quiere decir alguien libre de influencia alcoholíca, sin embargo se limita a embriages por alcohol sino que resalta el hecho de estar cuerdo o conciente en todos los sentidos.
+: Quiere decir alguien libre de influencia alcohólica, sin embargo se limita a embriages por alcohol sino que resalta el hecho de estar cuerdo o conciente en todos los sentidos.
 
 #### dignos 
 
@@ -638,7 +638,7 @@ Prudentes - SOFRON
 
 #### sanos en la fe
 
-##### Que los hombres mayores sean sanos (saludabes) con respecto a la fe, el producto/resultado de permanecer en la verdad es sanidad en la fe, es alguien literalmente que no esta enfermo en cuanto a la enseñanza o torcido, esto alinea con una enseñanza saludable.
+##### Que los hombres mayores sean sanos (saludables) con respecto a la fe, el producto/resultado de permanecer en la verdad es sanidad en la fe, es alguien literalmente que no esta enfermo en cuanto a la enseñanza o torcido, esto alinea con una enseñanza saludable.
 
 - Aqui nuevamente "la fe" no es nuentra confianza sino hace referencia a la verdad y el conjunto de enseñanzas que proceden del evengelio sobre lo cual esta nuestra confianza.
 
@@ -670,31 +670,31 @@ Asimismo, las ancianas deben ser reverentes en su conducta, no calumniadoras ni 
 ##### Recordemos que estos versos no contiene ningun mandato, Pablo descrice como es el alineamiento con la sana eneñamnza en la conducta o el ser.
 
 Ancianas - PRESBUTIS
-: Es el femenino de PRESBUTES significa anciana o vieja (mujer mayor), esta palabra no es sinonimo de un rol ademas que el contexto nos enfatiza la diversidad de persona a las cules de dirige.
+: Es el femenino de PRESBUTES significa anciana o vieja (mujer mayor), esta palabra no es sinónimo de un rol además que el contexto nos enfatiza la diversidad de persona a las cuáles de dirige.
 
-##### Asimismo la mujeres mayores "en comportamiento propio de consagrada". Una mujer mayor que en su conducta refleja santidad o consagrada (apartada para) es unha realidad cuando esta alineada con una enseñanza saludable que proviene de la verdad.
+##### Asimismo la mujeres mayores "en comportamiento propio de consagrada". Una mujer mayor que en su conducta refleja santidad o consagrada (apartada para) es una realidad cuando esta alineada con una enseñanza saludable que proviene de la verdad.
 
 ##### Un vivir santo o en satidad no puede provenir de la mentira o el engaño solo puede provenir del unico y verdadero Evangelio el cual es poder de Dios para el creyente en su diario andar.
 
 #### no calumniadoras
 
-##### En este verso aparacen las primeras negativas no en forma de mandato mas bien en contraste a un conducirse santo. Una mujer mayor no calumniadora solo contrasta mas su conducirse santo.
+##### En este verso aparasen las primeras negativas no en forma de mandato mas bien en contraste a un conducirse santo. Una mujer mayor no calumniadora solo contrasta mas su conducirse santo.
 
 Calumniadora - DIABOLOS
-: Es una palabra conocida del griego significa "acusar falsamente", "hablar con malicia" tambien utilizado para traducir "Diablo".
+: Es una palabra conocida del griego significa "acusar falsamente", "hablar con malicia" también utilizado para traducir "Diablo".
 
 #### ni esclavas de mucho vino
 
 ##### "ni haber sido esclavizadas a mucho vino" el verbo(perfecto, participio, medio/pasivo) nos da ha entender que han sido esclavizadas del mucho vino y al dia de hoy continuan como esclavizas del mucho vino.
 
-##### Esto no es una prohibicion contra el vino (bebidas alcoholicas), el enfasis se encuantra en haber sido y ser esclavizados por el mucho vino, ser esclava contrasta a una conducta de santidad.
+##### Esto no es una prohibición contra el vino (bebidas alcohólicas), el énfasis se encuentra en haber sido y ser esclavizados por el mucho vino, ser esclava contrasta a una conducta de santidad.
 
 #### Que enseñen lo bueno
 
 ##### Una mujer mayor que es maestra de li bueno, normalmente no tendemos a pensar la gran ayuda y trabajo que llega a realizar una hermana en nuestra familia (iglesia), el resultado de una enseñanza saludable puede verse como una mujer de conducta santa que es maestra de lo bueno.
 
 Enseñen lo bueno - KALODIDASKALOS
-: Esta palabra se compone de dos en el griego KALOS (quiere decir bueno, lo excelente, lo apropiado, se refiere a todo lo que es bello intriscicamente que proviene de lo verdadero y perdura con el tiempo como valioso) y DIDASKALOS (quiere decir instructor o maestro, alguien que enseña a otro).
+: Esta palabra se compone de dos en el griego KALOS (quiere decir bueno, lo excelente, lo apropiado, se refiere a todo lo que es bello intrínsicamente que proviene de lo verdadero y perdura con el tiempo como valioso) y DIDASKALOS (quiere decir instructor o maestro, alguien que enseña a otro).
 
 ### Tito 2:4 
 para que puedan instruir a las jóvenes a que amen a sus maridos, a que amen a sus hijos, 
@@ -710,16 +710,16 @@ Instruir - SOFRONIZO
 
 #### a que amen a sus maridos
 
-##### Aunque no se muestra el verbo "ser" aqui esta presente en el griego en la misma forma verbal continuando un mismo pensamiento, las mujeres jovenes son enseñadas por las mayores a ser amantes de sus esposos. Esto viene a traves de de gozar de una mente sana, que increible es que una mujer joven ame a su esposo, esto solo puede povenir de una enseñanza sana.
+##### Aunque no se muestra el verbo "ser" aquí esta presente en el griego en la misma forma verbal continuando un mismo pensamiento, las mujeres jovenes son enseñadas por las mayores a ser amantes de sus esposos. Esto viene a traves de de gozar de una mente sana, que increible es que una mujer joven ame a su esposo, esto solo puede povenir de una enseñanza sana.
 
 Amen a sus maridos - FILANDROS
-: Es una palabra compuesta en el griego PHILOS (significa amor pero hay una ligera diferencia este amor es mas emocional o sentimental, mas expresivo en afecto, puede se rusado en diferente contextos, entre esposos, padre e hijos, amigos) y ANER ( signifiva varon, hombre o esposo)
+: Es una palabra compuesta en el griego PHILOS (significa amor pero hay una ligera diferencia este amor es mas emocional o sentimental, mas expresivo en afecto, puede ser usado en diferente contextos, entre esposos, padre e hijos, amigos) y ANER ( significa varón, hombre o esposo)
 
 ##### Es curioso ver esta conducta en una mujer joven, no porque no amen a sus esposos sino en que en ellas nazca ser afectivas con sus esposos. Esta palabra es un sustantivo enfatizando a "ellas que son afectivas con sus esposos"
 
 #### a que amen a sus hijos
 
-#### Esta parte tiene la misma composicion que la anterioir solo remplazando ANER por TEKNOS, esto es una adjetivo, una mujer que es afectiva con sus hijos.
+#### Esta parte tiene la misma composición que la anterior solo remplazando ANER por TEKNOS, esto es una adjetivo, una mujer que es afectiva con sus hijos.
 
 ### Tito 2:5 
 a que sean prudentes, puras, hacendosas en el hogar, amables, sujetas a sus maridos, para que la palabra de Dios no sea blasfemada.
@@ -743,7 +743,7 @@ Puras - JAGNOS
 #### hacendosas en el hogar
 
 Hacendosas en el hogar - OIKURUS
-: Es interesante esta expresión por literalmente querra decir "guardias de la casa" o "que se queda en casa"
+: Es interesante esta expresión porque literalmente quiere decir "guardias de la casa" o "que se queda en casa"
 
 ##### No debemos malinterpretar esto, no significa que una mujer joven no pueda salir de casa, más bien está palabra tiene el significado de "ser cuidador de su casa"
 
@@ -754,7 +754,7 @@ Hacendosas en el hogar - OIKURUS
 amables - AGATHOS
 : Quiere decir ser bueno, se usa para referirse al valor de algo o alguien o expresar el ser de alguien.
 
-### Una mujer joven que se distingue por su bondad pues ella en su ser es buena o amable.
+Una mujer joven que se distingue por su bondad pues ella en su ser es buena o amable.
 
 #### sujetas a sus maridos
 
@@ -808,7 +808,7 @@ Exhortar - PAAKALEO
 ##### "a ser prudentes" Comunmente los jovenes nos carecterizamos por ser inprudentes en nuestro acturar, no somos juiciosos al pensar o moderados, esto es en contraste a lo que la sana enseñanza puede hacer en nosotros.
 
 Prudentes - SOFRONEO
-: Quiere decir ser comedido, templado, de sano juicio o sano de mente. hemos visto esta caracteristica en todos los casos anteriores, como creyentes al estar alineados o siendo nutridos a traves de una enseñanza saludable podriamos estar gozando de una mente saludable en nuestro pensar o actuar, evidentemente esto sera el resultado de adoptar la enseñanza.
+: Quiere decir ser comedido, templado, de sano juicio o sano de mente. hemos visto esta característica en todos los casos anteriores, como creyentes al estar alineados o siendo nutridos a través de una enseñanza saludable podríamos estar gozando de una mente saludable en nuestro pensar o actuar, evidentemente esto será el resultado de adoptar la enseñanza.
 
 ### Tito 2:7 
 Muéstrate en todo como ejemplo de buenas obras, con pureza de doctrina, con dignidad, 
@@ -839,7 +839,7 @@ con palabra sana e irreprochable, a fin de que el adversario se avergüence al n
 
 #### con palabra sana e irreprochable
 
-##### Sana e irreprochable son caracteristicas de "la palabra" en esta porción, en cuanto a la enseñanza... con palabra sana o saludable. Es curioso para que la palabra que Tito hable sea saludable debe estar alineado con la verdad. 
+##### Sana e irreprochable son características de "la palabra" en esta porción, en cuanto a la enseñanza... con palabra sana o saludable. Es curioso para que la palabra que Tito hable sea saludable debe estar alineado con la verdad. 
 
 ##### En cuato a la enseñanza... con palabra irreprochable, todo lo que Tito fuera a enseñar, toda palabra que fuera a salir de su boca debia ser tan acertada con la verdad de manera que no haya oportunidad de que la censuren o que sea condenada, que no puedan hayar motivo de tropiezo. Esto solo seria posible si Tito alineaba con la verdad y de ella exprsara una sana enseñanza.
 
@@ -850,9 +850,9 @@ con palabra sana e irreprochable, a fin de que el adversario se avergüence al n
 ##### Estos hombres tenian su propia verdad y esta producia algo "con sus hechos lo niegan"
 
 Adversario - ENANTIOS
-: Significa "lugar opuesto", contrario, adversario, opuesto u hostil. Comunmente cuando oimos adversario automaticamente pensamos en satanas, y si el es "El adversario" el que esta en contar pero esta palabra no esta describiendo a satanas sino a todo persona que esta en contra u opuesto.
+: Significa "lugar opuesto", contrario, adversario, opuesto u hostil. Comúnmente cuando oímos adversario automáticamente pensamos en satanás, y si el es "El adversario" el que esta en contar pero esta palabra no esta describiendo a satanás sino a todo persona que esta en contra u opuesto.
 
-##### En el contexto el adversario es todo aquel que es contrario o se opone a la verdad, al observar la verdadera piedad que produce la verdad y como esta esta deacuerdo con ella, estos que se oponen seran avergonsados "se avergonzaran" a causa de la verdad. Marcos 15:39
+##### En el contexto el adversario es todo aquel que es contrario o se opone a la verdad, al observar la verdadera piedad que produce la verdad y como esta esta de acuerdo con ella, estos que se oponen serán avergonzados "se avergonzaran" a causa de la verdad. Marcos 15:39
 
 - Se "averguence" es un verbo(aoristo, subjuntivo, pasivo) esto no muesta que es un hecho ellos se avergonzaran por causa de la verdad, sin embargo el pasivo no indica que no debemos ser nosotros los que busquen su verguenza, ellos seran avergonzados por la verdad.
 
@@ -879,39 +879,39 @@ Exhorta a los siervos a que se sujeten a sus amos en todo, que sean complaciente
 
 ##### La palabra "exhorta" no se encuentra en los textos originales, sin embargo fue añadida pues el texto continua con la misma idea, la conducta o actuar de piedad alineada con la verdad (lo que esta deacuerdo con la sana doctrina), para este caso ahora hablara a los siervos. 
 
-##### "que se sujeten a sus amos" pareciera ser una orden activa, sin embargo el verbo es (presente, infinitivo, pasivo) esto nos muestra que no es un mandato sino un estado del ser "que los siervos sean sujetos" la voz pasiva no enfatizara que estan "siendo sujetos a sus amos" esto es por su condicion de sirvos. 
+##### "que se sujeten a sus amos" pareciera ser una orden activa, sin embargo el verbo es (presente, infinitivo, pasivo) esto nos muestra que no es un mandato sino un estado del ser "que los siervos sean sujetos" la voz pasiva no enfatizara que están "siendo sujetos a sus amos" esto es por su condición de sirvos. 
 
-- Cuando uno era siervo de algien esta sujeto a su merced, sin importar si el siervo queria sujetarse a el o no, esa era su condicion, no tenia opcion, podria estar siendo sumiso a su amo pero en su ser estar en eberldia contra su amo. 
+- Cuando uno era siervo de alguien esta sujeto a su merced, sin importar si el siervo quería sujetarse a el o no, esa era su condición, no tenia opción, podría estar siendo sumiso a su amo pero en su ser estar en rebeldía contra su amo. 
 
-- En este verso se enfatiza a que como siervo el se deje "estar siendo sujetado" no por obligacion, sino en contentamiento, se entrege a la sujecion de su amo, a estar debajo de sus amo por causa de la confianza.
+- En este verso se enfatiza a que como siervo el se deje "estar siendo sujetado" no por obligación, sino en contentamiento, se entregue a la sujeción de su amo, a estar debajo de sus amo por causa de la confianza.
 
 - El siervo estaria siendo sujeto a su amo en todo, esta palabra muestra la sujecion del siervo.
 
 #### que sean complacientes
 
-##### "complacientes" es un adjetivo del siervo, una caracteristica suya de ser agradable en todo a su amo, tambien se puede entender como que el siervo pueda ser el que contenta a su amo en todo lo que hace, esto enfatiza mas su contucta entorno a su condicion de siervo, que el pueda estar mostrando toda pieda para con su amo.
+##### "complacientes" es un adjetivo del siervo, una característica suya de ser agradable en todo a su amo, también se puede entender como que el siervo pueda ser el que contenta a su amo en todo lo que hace, esto enfatiza mas su conducta entorno a su condición de siervo, que el pueda estar mostrando toda piedad para con su amo.
 
 #### no contradiciendo
 
-##### Que el siervo no sea que se carecteriza por contradecir o oponerse a su amo, estontrasta con ser el que trae contentamiento a su amo, uno que se opone a el, uno que habla en su contra.
+##### Que el siervo no se caracterice por contradecir o oponerse a su amo, esto contrasta con ser el que trae contentamiento a su amo, a uno que se opone a el, uno que habla en su contra.
 
 ### Tito 2:10 
 no defraudando, sino mostrando toda buena fe, para que adornen la doctrina de Dios nuestro Salvador en todo respecto.
 
 #### no defraudando
 
-Defradando - NOSFIZOMAI
-: Significa poner aparte, sustraer, secuestra o retener, comunmente esta palabra tiene un enfasis negativo de sustraer de la propiedad de otro.
+Defraudando - NOSFIZOMAI
+: Significa poner aparte, sustraer, secuestra o retener, comúnmente esta palabra tiene un énfasis negativo de sustraer de la propiedad de otro.
 
-##### Que el siervo no sea el que le sustrae a su amo, este verbo es (presente, participio, medio) esto nos da ha entender que el siervo no sea el que se carecteriza por sustrer o robar a su amo, la voz media no indica que sustrae para si mismo.
+##### Que el siervo no sea el que le sustrae a su amo, este verbo es (presente, participio, medio) esto nos da ha entender que el siervo no sea el que se caracteriza por sustraer o robar a su amo
 
 #### sino mostrando toda buena fe
 
-##### En comparacion a no ser el que deufrada a su amo, sino que es un siervo de confianza para con su amo, el es digno de toda buena fe o de toda confianza para con su amo.
+##### En comparación a no ser el que defrauda a su amo, sino que es un siervo de confianza para con su amo, el es digno de toda buena fe o de toda confianza para con su amo.
 
 #### para que adornen la doctrina de Dios nuestro Salvador en todo respecto
 
-#### Una segunda pequeña conclusion enfatizada en un proposito, esta conducta de piedad por parte de los siervos a sus amos adorna, embellese la docrina de Dios, es asombroso que esto sea observable, la piedad exhibida a traves de este siervo solo realza la verdad, la enseñanza que provien de parte de nuesr Dios.
+Una segunda pequeña conclusión enfatizada en un propósito, esta conducta de piedad por parte de los siervos a sus amos adorna, embellece la doctrina de Dios, es asombroso que esto sea observable, la piedad exhibida a través de este siervo solo realza la verdad, la enseñanza que proviene de parte de nuestro Dios.
 
 - Dios nuestro Salvador, esto nos muestra de manera objetiva a quien nos referimos del origen de esta enzeñanza.
 
@@ -972,7 +972,7 @@ Impiedad - ASEBEIA
 : Quiere decir literalmente "falta de reverencia" pero tambien se puede traducir como toda malicia o perversidad en pensamiento y accion contra Dios.
 
 - Nos enseña que repudiando los deseos mundanos. Los desos mundanos son literalmnete lo que dice los deseos que existen en el mundo, la tentacion del mundo con lo que puede ofrecer.
- 
+
 #### vivamos en este mundo sobria, justa y piadosamente
 
 ##### "para que...vivamos en este mundo" Pueden observar que la gracia de Dios nos enseña7intruye con el proposito de vivir en este mundo ¿Podemos pensar que vivir en el mundo es terrible para un creyente?. Pues no negamos esa realidad, el mundo estara siempre presente alrededor de nosotro con lo que puede ofrecer, sin embargo Dios ha provisto de un maestro de una guia que nos enseña a vivir en este mundo, nos enseña lo que es viva y a vivirla en deleite segun la verdad.
