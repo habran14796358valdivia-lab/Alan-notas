@@ -1257,6 +1257,8 @@ Detenerse en estas cosa resultaría en un desperdicio ya que no tienen ningún v
 
 #### Al hombre que cause divisiones, 
 
+
+
 #### después de la primera y segunda amonestación, recházalo,
 
 #### 
