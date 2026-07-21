@@ -40,3 +40,11 @@ Finaliza con un porque
 
 ---
 
+El encargo ¿De quien vino? 
+
+A Pablo le fue confiado    (SU SERVICIO Y APOTOLADO ) es conforme a algo "la fe, la verdad, la piedad y la esperanza" 
+
+Esto es según la perspectiva de DIos "el encargo"
+
+---
+
