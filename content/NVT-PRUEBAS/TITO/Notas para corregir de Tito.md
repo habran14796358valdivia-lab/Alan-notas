@@ -20,3 +20,23 @@ y Dios es salvador de Tito
 
 y Pablo le va encargar a Tito como un padre a hijo.
 
+---
+
+Marca un contraste interesante en como son los cretenses
+
+Son así " el testimonio es verdero"
+
+Por eso "reprendelos"
+
+​					"Ser mentiroso, glotones, malas bestias "¿Con que alinea? ¿Sana enseñanza? 
+
+Profesan pero con sus hechos lo niegan
+
+​	un nuevo contraste 
+
+Pero tu habla "lo que esta de acuerdo" con "sana doctrina"
+
+Finaliza con un porque
+
+---
+
