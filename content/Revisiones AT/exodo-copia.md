@@ -31,7 +31,7 @@ Y murió Yosef y todos sus hermanos y toda aquella generación.
 
 ### 1:7
 
-Y hijos de Israel fructificaron y enjambraron y se multiplicaron y se fortalecieron en mucho mucho, y se llenó la tierra de ellos.
+Y hijos de Israel fructificaron y enjambraron y se multiplicaron y se fortalecieron en mucho*, y se llenó la tierra de ellos.
 
 ### 1:8
 
